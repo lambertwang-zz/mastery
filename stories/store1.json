@@ -1,0 +1,138 @@
+[
+{
+    "characters": {
+        "Uther": {
+            "class": "paladin",
+            "alive": true,
+            "level": 5,
+            "str": 15,
+            "agi": 12,
+            "con": 14,
+            "int": 10,
+            "wis": 12,
+            "cha": 11,
+            "skills": {
+                "ride": 5,
+                "sense motive": 5
+            },
+            "ac": 16,
+            "inventory": [
+                "Hammer of Justice"
+            ],
+            "feelings": {
+                "Ugg the Evil": {
+                    "trust": 0,
+                    "love": 0,
+                    "admiration": 0,
+                    "malice": 10
+                }
+            },
+            "memories": [
+
+            ],
+            "location": "Townsville"
+        },
+        "Ugg the Evil": {
+            "class": "barbarian",
+            "alive": true,
+            "level": 6,
+            "str": 20,
+            "agi": 12,
+            "con": 17,
+            "int": 6,
+            "wis": 8,
+            "cha": 4,
+            "skills": {
+                "climb": 5
+            },
+            "ac": 17,
+            "inventory": [
+                "Staff of Stabbing"
+            ],
+            "feelings": {
+                "Uther": {
+                    "trust": 0,
+                    "love": 0,
+                    "admiration": 0,
+                    "malice": 10
+                }
+            },
+            "memories": [
+
+            ],
+            "location": "Evil Lair"
+        }
+    },
+    "settings": {
+        "Townsville": {
+            "type": "town",
+            "neighbors": {
+                "east": "Dark Forest"
+            }
+        },
+        "Dark Forest": {
+            "type": "wilderness",
+            "danger": 5,
+            "neighbors": {
+                "west": "Townsville",
+                "east": "Evil Lair"
+            },
+            "inventory": [
+                "Orb of Malice"
+            ]
+        },
+        "Evil Lair": {
+            "type": "town",
+            "neighbors": {
+                "west": "Dark Forest"
+            }
+        }
+    },
+    "things": {
+        "Hammer of Justice": {
+            "type": "weapon",
+            "tags": [],
+            "weight": 1,
+            "damage": {
+                "d8": 2,
+                "flat": 2
+            }
+        },
+        "Orb of Malice": {
+            "type": "trinket",
+            "tags": [],
+            "weight": 1,
+            "action": {
+                "name": "destroy",
+                "target": "1"
+            }
+        },
+        "Staff of Stabbing": {
+            "type": "weapon",
+            "tags": [],
+            "weight": 1,
+            "damage": {
+                "d12": 1,
+                "flat": 1
+            }
+        }
+    }
+},
+{
+    "characters": {
+        "Uther": {
+            "alive": true,
+            "location": "Evil Lair"
+        },
+        "Ugg the Evil": {
+            "alive": false,
+            "inventory": [
+                "Orb of Malice"
+            ],
+            "location": "Evil Lair"
+        }
+    },
+    "settings": [],
+    "things": []
+}
+]

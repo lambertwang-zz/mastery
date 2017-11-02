@@ -3,9 +3,13 @@ Mastery
 
 Some elements similar to [MARYSUE](https://github.com/catseye/MARYSUE)
 
-Nouns/Relationships > Plot Points > Plot Lines > Chapters > Text > convolute > convolute > Final
+World Store > Plot Points > Plot Lines > Simulator > Synthesize > Final
 
-### Nouns ###
+# World Store
+
+A database of all Nouns in the world.
+
+## Nouns ##
 What are nouns?
 
 * Noun
@@ -29,7 +33,7 @@ What are nouns?
     * Weight (kg)
 
 
-#### Noun Generation ####
+### Noun Generation ###
 
 This is where Pathfinder helps out.
 In addition to all of the attributes listed above for characters, they also have attributes and skills that Pathfinder characters would have.
@@ -70,7 +74,7 @@ Skills
 * Swim
 * Use Magic Device
 
-#### Dialogue and Memory ####
+## Dialogue and Memory ##
 
 Characters have "memory"
 Each character has a dictionary of what they know about an noun
@@ -85,10 +89,32 @@ They also have 'feelings' toward objects or nouns.
 
 These 'memories' are what drives dialogue.
 
-#### Relationships ####
+### Relationships ###
 
 Relationships are also generated for characters.
 
 Examples:
     Brother/Sister/Co-worker/Friend/Idol/Leader/Rival/etc.
 
+### Motivations ###
+
+
+# Plot Points #
+
+Each plot point contains a subset of the world state, like a checkpoint for the story that describes some key things that have to occur by that point. It is defined by certain locations, items, or knowledge that certain characters must have.
+
+# Plot Lines #
+
+Plot lines are the actual paths between each point. They contain specific events.
+Events are limited to 4 types:
+
+* Travelling
+* Dialogue between party and NPCs
+* Dialogue between party and party
+* Combat Encounters
+
+# Simulation #
+
+Simulation takes these plot lines and expands them into individual actions that can be
+
+    PlotLine(Goblin Encounter) -> [action(Bob, stab, [Goblin]), action(Goblin, die), action(Bob, loot, [Goblin])]

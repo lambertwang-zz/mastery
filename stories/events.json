@@ -1,0 +1,13 @@
+[
+    {
+        "name": "walk",
+        ""
+    },
+    {
+        "name": "stab",
+        "subject": "character",
+        "tag": "alive",
+        "start": true,
+        "end": false
+    }
+]
