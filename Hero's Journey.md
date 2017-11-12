@@ -1,3118 +1,3264 @@
 [Chapter 1](#chapter1)
 
+[Chapter 2](#chapter2)
 
-# Malchambalde's Journey to Defeat the Evil Wizard Otes _(and his many battles along the way)_
+[Chapter 3](#chapter3)
 
-## <a name="chapter1"></a> Chapter 1: Gon and the Wereboar (human Form)
+[Chapter 4](#chapter4)
 
-Malchambalde followed a dirt path into the village of Gon. The harper scuttled out of his way with a mariner. A builder finished an apple and tossed the core aside. Malchambalde continued down the path. The stewsman eyed him suspiciously with a lady.
+[Chapter 5](#chapter5)
 
-Eventually, Malchambalde arrived at the town square, where he found a restaurateur. Malchambalde approached him, hoping for some advice.
+[Chapter 6](#chapter6)
 
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+[Chapter 7](#chapter7)
 
-A silkmaid finished an apple and tossed the core aside. The man sat in silence for a while, then finally responded.
+[Chapter 8](#chapter8)
 
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+[Chapter 9](#chapter9)
+
+[Chapter 10](#chapter10)
+
+[Chapter 11](#chapter11)
+
+[Chapter 12](#chapter12)
+
+[Chapter 13](#chapter13)
+
+[Chapter 14](#chapter14)
+
+[Chapter 15](#chapter15)
+
+[Chapter 16](#chapter16)
+
+[Chapter 17](#chapter17)
+
+[Chapter 18](#chapter18)
+
+[Chapter 19](#chapter19)
+
+[Chapter 20](#chapter20)
+
+[Chapter 21](#chapter21)
+
+[Chapter 22](#chapter22)
+
+[Chapter 23](#chapter23)
+
+[Chapter 24](#chapter24)
+
+[Chapter 25](#chapter25)
+
+[Chapter 26](#chapter26)
+
+[Chapter 27](#chapter27)
+
+
+# Fluvand's Journey to Defeat the Evil Wizard Tibbon _(and his many battles along the way)_
+
+## <a name="chapter1"></a> Chapter 1: Foring Her and the Cacodaemon
+
+Fluvand followed a dirt path into the village of Foring Her. A potboy scuttled out of his way. Nearby, a clothier eyed him suspiciously. Fluvand continued down the path. Nearby, a chamberlain talked excitedly with what appeared to be a beerbrewer.
+
+Eventually, Fluvand arrived at the town square, where he found a pissprophet. The man, eying his foreboding cloak, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+A halberdier slept in an alleyway. He still looked suspiciousHe finally responded.
+
+"Our village of Betster Parsbrien Couces will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Gomerien is the best in town. His shop is past the barn. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
+"The armory is past the inn. There's a small door. You'll find Frith, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Malchambalde hurried towards the armory. The ferryman slept in an alleyway with a drywaller. While the oil merchant ran from person to person, asking if they had seen Nigs, a hermit scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. A pavyler eyed him suspiciously. A monk gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+Frith looked up from his work behind a counter at Fluvand.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the thought eater, or perhaps even the medium air elemental, but that's nothing compared to the wereboar (human form) we've got."
+Frith lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The cacodaemon."
 
-Gomerien returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster wereboar (human form) is terrifying for sure, but I honestly don't know much about that beast."
+Frith returned to the book of monsters on the desk and pointed at the terrifying illustration. "Any evil outsider can, as a standard action, ingest a soul gem. Doing so frees the soul within, but condemns it to one of the lower planes (though the soul can be returned to life as normal). The outsider gains fast healing 2 for a number of rounds equal to its Hit Dice."
 
-"I could handle that. Tell me again, what makes the wereboar (human form) so bad?" Malchambalde responded.
+"But my weapons may be too weak. Are there any other ways to defeat the cacodaemon?" Fluvand asked.
+
+Frith returned to the book of monsters on the desk and pointed at the terrifying illustration. "The least of daemonkind, cacodaemons spawn from eddies of angry, violent, and demented souls amid the mists of Abaddon. Dim-witted but utterly evil, they endlessly seek to cause pain and indulge their hunger for mortal souls. Many more powerful fiends keep cacodaemons as pets, if only to be able to harvest the tiny creatures' soul gems. A 7th-level spellcaster can gain a cacodaemon as a familiar if she has the Improved Familiar feat."
+
+"But my weapons may be too weak. Are there any other ways to defeat the cacodaemon?" Fluvand asked.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Malchambalde saw a unkind wereboar (human form) in the distance! Malchambalde readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a horrid cacodaemon in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The wereboar (human form) struck with its dagger! The shameful wereboar (human form) failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The wereboar (human form) struck with its dagger! Malchambalde the gallantour hero winces from the pain but continues fighting. 
+He sneaked around to cacodaemon's blind spot. The cacodaemon struck with its bite! Fluvand the grandioseour hero stunbles backward, gasping for breath. 
 
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
+The cacodaemon leans low, ready to strike with its might. Fluvand lunged toward the cacodaemon, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
 
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The cacodaemon leans low, ready to strike with its might. The cacodaemon struck with its bite! He stunbles backward, gasping for breath. 
 
-He sneaked around to wereboar (human form)'s blind spot. The wereboar (human form) leans low, ready to strike with its might. 
+The cacodaemon leans low, ready to strike with its might. Fluvand lunged toward the cacodaemon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The wereboar (human form) struck with its dagger! Malchambalde stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The wereboar (human form) leans low, ready to strike with its might. 
+The cacodaemon struck with its bite! The obnoxious cacodaemon failed to land its hit. the elevated Fluvand stumbles to his knee, gasping for breath. The cacodaemon leans low, ready to strike with its might. 
 
-The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
+The cacodaemon struck with its bite! The scary cacodaemon failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The cacodaemon struck with its bite! Fluvand stunbles backward, gasping for breath. 
 
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a catalina blue potion from his pack and drinks it. He is reinvigorated. 
+Fluvand says
 
-The wereboar (human form) struck with its dagger! The beastly wereboar (human form) failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde the nobleour hero was worn out by the combat. The wereboar (human form) leans low, ready to strike with its might. 
+"That didn't seem so hard, I don't know what Frith was talking about."
 
-The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. 
+## <a name="chapter2"></a> Chapter 2: Hile and the Dire Ape (gigantopithecus)
 
-The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Fluvand followed a dirt path into the village of Hile. The astronomer ran from person to person, asking if they had seen Dama with a purse maker. Nearby, a stillroom maid talked excitedly with what appeared to be a bodger. Fluvand continued down the path. The currier eyed him suspiciously with a gemcutter.
 
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! Although he's hit landed, wereboar (human form) is mostly unphasedThe wereboar (human form) struck with its dagger! Malchambalde the doughtyour hero blocks the strike with his sword. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
+Eventually, Fluvand arrived at the town square, where he found a woodturner. Fluvand approached him, hoping for some advice.
 
-The wereboar (human form) struck with its dagger! The hideous wereboar (human form) failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The wereboar (human form) leans low, ready to strike with its might. 
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
 
-He pulls a bubble gum potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) struck with its dagger! He winces from the pain but continues fighting. 
+While the taverner hawked fine imported goods from She-Hill, a tentsman gazed at him from an open window. He still looked suspicious, then finally responded.
 
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde sneaked around to wereboar (human form)'s blind spot. 
-
-The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The impavid Malchambalde was worn out by the combat. The wereboar (human form) leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to wereboar (human form)'s blind spot. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. The monster was stunned by the attack. He sneaked around to wereboar (human form)'s blind spot. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses the inflated Malchambalde. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
-
-The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
-
-The wereboar (human form) leans low, ready to strike with its might. The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. 
-
-Malchambalde the mythologicalour hero pulls a bole potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) leans low, ready to strike with its might. 
-
-The wereboar (human form) struck with its dagger! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The wereboar (human form) leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
-
-The wereboar (human form) struck with its dagger! Malchambalde jumps out of the way. The exhilarating combat made the hours seem like seconds. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses Malchambalde the stand tallour hero. 
-
-He pulls a fallow potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) leans low, ready to strike with its might. 
-
-The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. the adventurer stumbles to his knee, gasping for breath. The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. 
-
-The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. 
-
-The wereboar (human form) leans low, ready to strike with its might. The wereboar (human form) struck with its dagger! The disgusting wereboar (human form) failed to land its hit. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The attack from he surely left a impression. 
-
-The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The wereboar (human form) leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Gomerien was talking about."
-
-## <a name="chapter2"></a> Chapter 2: Wimble Eas and the Black Pudding
-
-Malchambalde followed a dirt path into the village of Wimble Eas. A fishmonger loaded a market stall with wares. While the franklin ran from person to person, asking if they had seen Fast, a cobbler threw punches. Malchambalde continued down the path. While the broderer threw punches, a bowyer loaded a market stall with wares.
-
-Eventually, Malchambalde arrived at the town square, where he found a armorer. The man, eying his foreboding cloak, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Nearby, a siege engineer bit into an apple. The man quietly reminised about the past, then finally responded.
-
-"Our village of Wokefor will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Saxos is just a bit further down the street. Look for the large hanging sign that reads "Saxos Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Paschard is the best in town. His shop is just a bit further down the street. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Tibbon gone as much as anybody."
 
-Malchambalde hurried towards the armory. Nearby, a chantry priest gazed at him from an open window. Nearby, a ditcher talked excitedly with what appeared to be a confectioner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. Two potboys eyed him suspiciously. Two rugmakers loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Saxos looked up from his work behind a counter at Malchambalde.
+Paschard looked up from his work behind a counter at Fluvand.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-Saxos grabbed a dusty book from the shelf and flipped through it. Pictures of chimeras and half-celestial unicorns flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the jiang-shi, or perhaps even the warsworn, but that's nothing compared to the dire ape (gigantopithecus) we've got."
 
-Saxos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Black puddings are the scavengers of the underworld, constantly on the lookout for a meal. They can sense organic or metallic objects within 60 feet and mindlessly attack such items or beings until they are dissolved or the ooze is killed. A black pudding reproduces by breaking off a piece of its body and forming a new, smaller black pudding, which grows to full size in 1 month's time. Some of the more intelligent creatures in the underworld use black puddings as natural garbage disposals, creating stone pits to house the pudding and throwing organic refuse or foes in as needed."
+"Known to many scholars as the gigantopithecus, the dire ape is a much more dangerous and bestial creature than the relatively peaceful gorilla. An adult male dire ape stands 9 feet tall and weighs 1,200 pounds. The dire ape attacks anything that intrudes on its territory, including other dire apes not of its troop, and does not break off the attack until the trespasser is dead or runs off." Paschard explained.
 
-"I could handle that. Tell me again, what makes the black pudding so bad?" Malchambalde responded.
+Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-The armorer sighed and continued. "Larger specimens of black puddings have been encountered in the deepest parts of the world, with Gargantuan individuals having up to 30 HD. Other colored puddings are rumored to exist, with white ones living in the arctic, brown ones living in swamps, and tan ones living in deserts."
+The armorer sighed and continued. "A dire ape makes no displays of toughness or warnings before it attacks—it simply leaps into action with little or no provocation, tearing at its opponents with claws and teeth. If a dire ape is stymied by a heavily armored foe, it attempts to grapple its foe, pin it to the ground, and rend it."
 
-Malchambalde slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Malchambalde saw a gruesome black pudding in the distance! Malchambalde readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! The monster was stunned by the attack. The inflated Malchambalde pulls a venetian red potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to black pudding's blind spot. Malchambalde lunged toward the black pudding, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde the exaggeratedour hero pulls a raspberry pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the nobleour hero pulls a isabelline potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The attack from he surely left a impression. 
-
-He pulls a pink orange potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! The fierce blow from the monster narrowly misses the adventurer. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to black pudding's blind spot. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding took a glancing blow. 
-
-The black pudding struck with its slam! The grisly black pudding failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The black pudding struck with its slam! He jumps out of the way. 
-
-The dauntless Malchambalde pulls a khaki x11 light khaki potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! He stunbles backward, gasping for breath. 
-
-He sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
-
-The black pudding struck with its slam! The lion-hearted Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. The grand Malchambalde sneaked around to black pudding's blind spot. 
-
-He sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
-
-He pulls a international orange engineering potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
-
-The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. The daring Malchambalde sneaked around to black pudding's blind spot. 
-
-The black pudding struck with its slam! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The black pudding leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. 
-
-The black pudding leans low, ready to strike with its might. The black pudding struck with its slam! The execrable black pudding failed to land its hit. 
-
-The black pudding struck with its slam! The ruinous black pudding failed to land its hit. The exhilarating combat made the hours seem like seconds. The black pudding struck with its slam! Malchambalde stunbles backward, gasping for breath. 
-
-The black pudding leans low, ready to strike with its might. The black pudding struck with its slam! The horrendous black pudding failed to land its hit. 
-
-He pulls a fluorescent pink potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
-
-He pulls a rosewood potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! Malchambalde the dauntlessour hero blocks the strike with his sword. 
-
-The black pudding struck with its slam! Malchambalde the dauntlessour hero jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The black pudding struck with its slam! The evil black pudding failed to land its hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! The dreadful black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a gray html css gray potion from his pack and drinks it. He is reinvigorated. 
-
-The black pudding struck with its slam! The fearless Malchambalde jumps out of the way. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-The black pudding struck with its slam! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The black pudding struck with its slam! Malchambalde reeled back in pain. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! He winces from the pain but continues fighting. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! 
-
-The black pudding struck with its slam! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to black pudding's blind spot. 
-
-The intrepid Malchambalde pulls a midnight blue potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
-
-The black pudding struck with its slam! The scandalous black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-The adventurer sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
-
-The black pudding struck with its slam! The detestable black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-The black pudding struck with its slam! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The black pudding struck with its slam! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! That blow seemed like it could break some bones. The black pudding struck with its slam! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a lemon chiffon potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde the elevatedour hero sneaked around to black pudding's blind spot. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! 
-
-Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
-
-Malchambalde pulls a dark powder blue potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
-
-He was victorious! The black pudding menaced for no longer! 
-
-## <a name="chapter3"></a> Chapter 3: Sme and the Giant Frilled Lizard
-
-Malchambalde followed a dirt path into the village of Sme. Nearby, a groom loaded a market stall with wares. A halberdier rushed by quickly, ignoring him. Malchambalde continued down the path. Nearby, a curate sat by the side of the road.
-
-Eventually, Malchambalde arrived at the town square, where he found a scout. Malchambalde approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Two barbers gazed at him from an open window. The man eyed him thoughtfully, then finally responded.
-
-"Our village of Lake End-dÃ« will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. It's just to the right. You'll find Emambkin, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. While the beerbrewer loaded a market stall with wares, a link man gazed at him from an open window. While the singer threw punches, a gunsmith slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Emambkin looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Emambkin lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant frilled lizard."
-
-The armorer sighed and continued. "This lizard is a true behemoth—an apex predator found in tropical regions. Many species of giant lizard exist—other species lack this lizard's intimidating charge special ability but might have other special attacks like grab, trip, constrict (with a bite), or pounce."
-
-"I could handle that. Tell me again, what makes the giant frilled lizard so bad?" Malchambalde responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a scandalous giant frilled lizard in the distance! Our hero fixed his gaze on the awful sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! The revolting giant frilled lizard failed to land its hit. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The attack from he surely left a impression. 
-
-The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. The unafraid Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard leans low, ready to strike with its might. 
-
-He pulls a unbleached silk potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! The stouthearted Malchambalde stunbles backward, gasping for breath. 
-
-The bigger than life Malchambalde pulls a sapphire blue potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses the inflated Malchambalde. 
-
-The adventurer sneaked around to giant frilled lizard's blind spot. The giant frilled lizard leans low, ready to strike with its might. 
-
-The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The giant frilled lizard struck with its bite! He winces from the pain but continues fighting. 
-
-The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! Malchambalde the boldour hero blocks the strike with his sword. 
-
-The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard was struck by the blow! 
-
-The giant frilled lizard struck with its bite! He jumps out of the way. Malchambalde the grandioseour hero leaned on his sword to catch a moment's respite. The doughty Malchambalde was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. 
-
-Malchambalde the boldour hero pulls a bittersweet potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! He blocks the strike with his sword. 
-
-Malchambalde the boldour hero pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
-
-The giant frilled lizard struck with its bite! The terrible giant frilled lizard failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The giant frilled lizard leans low, ready to strike with its might. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
-
-The giant frilled lizard struck with its bite! The impavid Malchambalde blocks the strike with his sword. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses the gutsy Malchambalde. 
-
-He pulls a dark violet potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard took a glancing blow. 
-
-The giant frilled lizard struck with its bite! He jumps out of the way. he stumbles to his knee, gasping for breath. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-He pulls a blue crayola potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard leans low, ready to strike with its might. 
-
-The adventurer sneaked around to giant frilled lizard's blind spot. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! Although he's hit landed, giant frilled lizard is mostly unphasedThe monster was stunned by the attack. He pulls a dark green potion from his pack and drinks it. He is reinvigorated. 
-
-The giant frilled lizard struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The giant frilled lizard leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! He jumps out of the way. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The attack from Malchambalde surely left a impression. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to giant frilled lizard's blind spot. 
-
-The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard was staggered by the immense force. 
-
-He sneaked around to giant frilled lizard's blind spot. The giant frilled lizard struck with its bite! The adventurer blocks the strike with his sword. 
-
-He sneaked around to giant frilled lizard's blind spot. The giant frilled lizard leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
-
-The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! Malchambalde jumps out of the way. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a spring bud potion from his pack and drinks it. He is reinvigorated. 
-
-The giant frilled lizard struck with its bite! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The giant frilled lizard struck with its bite! The gallant Malchambalde stunbles backward, gasping for breath. 
-
-Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
-
-The giant frilled lizard leans low, ready to strike with its might. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The giant frilled lizard struck with its bite! The hideous giant frilled lizard failed to land its hit. He leaned on his sword to catch a moment's respite. The bold Malchambalde was worn out by the combat. The giant frilled lizard struck with its bite! Malchambalde the valorousour hero jumps out of the way. 
-
-The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! He winces from the pain but continues fighting. 
-
-The fire-eating Malchambalde was victorious! The giant frilled lizard menaced for no longer! 
-
-## <a name="chapter4"></a> Chapter 4: Preen and the Jotund Troll
-
-Malchambalde followed a dirt path into the village of Preen. While the harper scuttled out of his way, a cartwright loaded a market stall with wares. A rat catcher talked excitedly with what appeared to be a cartwright. Malchambalde continued down the path. While the smith eyed him suspiciously, a bodger scuttled out of his way.
-
-Eventually, Malchambalde arrived at the town square, where he found a sawyer. Malchambalde approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-While the chancellor hawked fine imported goods from Dudburst, a jeweler hawked fine imported goods from Arsburtock. He still looked suspiciousHe finally responded.
-
-"Our village of Pargark will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Hann is into the market and towards the inn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Hann Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. The abbot stood by a market stall, negotiating with the attendent with a porter. Nearby, a rat catcher slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Hann grabbed a dusty book from the shelf and flipped through it. Pictures of stringy demodands and bogeymans flew by. Eventually he settled on a page and started to explain.
-
-The armorer sighed and continued. "Jotund trolls are gigantic, nine-headed horrors. Prowling frigid moors and marshes, these rapacious creatures have the same insatiable appetites of common trolls but require much more sustenance because of their excessive size. Jotund trolls stand 30 feet tall and weigh roughly 25,000 pounds. They can live for up to 100 years."
-
-"I could handle that. Tell me again, what makes the jotund troll so bad?" Malchambalde responded.
-
-"The jotund troll's nine heads each have their own brains and senses, but they share, after a fashion, the same mind. Despite this, a jotund troll's heads often argue and bicker, particularly over which head gets to eat. The fact that all nine maws lead to the same shared stomach makes little difference in such culinary disagreements. " Hann explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the jotund troll?" Malchambalde asked.
-
-"Jotund trolls spawn with either their own kind or with other trolls. In the latter case, there is only a 5% chance the offspring will be a jotund troll. Apart from brief mating periods, jotund trolls are solitary, although some cull together bands of other giants into devastating war parties that can lay waste to entire regions. " Hann explained.
-
-Malchambalde slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Malchambalde saw a disgusting jotund troll in the distance! The adventurer readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-The jotund troll struck with its club! The disgusting jotund troll failed to land its hit. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The jotund troll struck with its club! The adventurer blocks the strike with his sword. 
-
-The jotund troll struck with its club! The lurid jotund troll failed to land its hit. he stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cherry blossom pink potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was struck by the blow! The monster was stunned by the attack. Malchambalde pulls a prune potion from his pack and drinks it. He is reinvigorated. 
-
-The jotund troll struck with its club! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! Malchambalde the gutsyour hero winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the adventurer. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! Malchambalde reeled back in pain. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to jotund troll's blind spot. 
-
-The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! The unafraid Malchambalde stunbles backward, gasping for breath. 
-
-The jotund troll struck with its club! The courageous Malchambalde blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the lion-hearted Malchambalde. 
-
-The jotund troll struck with its club! Malchambalde the unafraidour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde the classicour hero was worn out by the combat. The jotund troll struck with its club! The fearful jotund troll failed to land its hit. 
-
-The jotund troll struck with its club! He jumps out of the way. Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. 
-
-Malchambalde pulls a peach crayola potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. The intrepid Malchambalde pulls a ku crimson potion from his pack and drinks it. He is reinvigorated. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a raspberry potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-He pulls a persimmon potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The ungodly jotund troll failed to land its hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! Malchambalde reeled back in pain. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the intrepidour hero. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde the intrepidour hero pulls a light apricot potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! He winces from the pain but continues fighting. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The adventurer sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The beastly jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The adventurer sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. The jotund troll struck with its club! The disgusting jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although Malchambalde's hit landed, jotund troll is mostly unphased
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! Although the grandiose Malchambalde's hit landed, jotund troll is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses the daring Malchambalde. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a yellow ryb potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The terrible jotund troll failed to land its hit. 
-
-He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jotund troll struck with its club! He jumps out of the way. he stumbles to his knee, gasping for breath. The jotund troll struck with its club! He blocks the strike with his sword. 
-
-The jotund troll struck with its club! Malchambalde the epicour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a antique fuchsia potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The daring Malchambalde pulls a rich black potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
-
-The jotund troll struck with its club! The terrible jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde the inflatedour hero sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark byzantium potion from his pack and drinks it. He is reinvigorated. 
-
-The adventurer pulls a ruddy brown potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! He winces from the pain but continues fighting. the adventurer stumbles to his knee, gasping for breath. The jotund troll struck with its club! Malchambalde the grandioseour hero jumps out of the way. 
-
-The jotund troll struck with its club! The adventurer jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. The exaggerated Malchambalde was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the nobleour hero. The grandiose Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! Malchambalde the valiantour hero blocks the strike with his sword. 
-
-The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! Malchambalde reeled back in pain. 
-
-The jotund troll struck with its club! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! Malchambalde jumps out of the way. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The jotund troll struck with its club! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
-
-The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The high-flown Malchambalde sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The jotund troll struck with its club! Malchambalde the elevatedour hero jumps out of the way. 
-
-The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! The terrible jotund troll failed to land its hit. 
-
-He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! He stunbles backward, gasping for breath. Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
-
-He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! Malchambalde the inflatedour hero blocks the strike with his sword. the grand Malchambalde stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde the valorousour hero sneaked around to jotund troll's blind spot. The jotund troll struck with its club! The bigger than life Malchambalde blocks the strike with his sword. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde. the adventurer stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
-
-The adventurer sneaked around to jotund troll's blind spot. The jotund troll struck with its club! The ungodly jotund troll failed to land its hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! Malchambalde the courageousour hero landed a massive hit on jotund troll! The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The adventurer pulls a pale cornflower blue potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the noble Malchambalde. 
-
-He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a violet ryb potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The adventurer jumps out of the way. 
-
-Malchambalde the nobleour hero sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to jotund troll's blind spot. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. 
-
-The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The undaunted Malchambalde sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He jumps out of the way. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a cg red potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The adventurer pulls a tropical rain forest potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! He winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a dark tangerine potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! The heinous jotund troll failed to land its hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The high-flown Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the daringour hero pulls a medium jungle green potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. 
-
-The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! Malchambalde winces from the pain but continues fighting. 
-
-The adventurer pulls a mardi gras potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! He blocks the strike with his sword. 
-
-Malchambalde pulls a dark violet potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! He winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from the elevated Malchambalde surely left a impression. 
-
-He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer pulls a red orange potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to jotund troll's blind spot. 
-
-He pulls a ube potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The jotund troll struck with its club! He blocks the strike with his sword. The lion-hearted Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The horrid jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll took a glancing blow. 
-
-He pulls a light thulian pink potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-He sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-The jotund troll struck with its club! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
-
-The adventurer sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The adventurer sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a jasper potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He pulls a stil de grain yellow potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
-
-The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde pulls a classic rose potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
-
-He was victorious! The jotund troll menaced for no longer! 
-
-## <a name="chapter5"></a> Chapter 5: Dundorth Ealis and the Phantom Fungus
-
-Malchambalde followed a dirt path into the village of Dundorth Ealis. A netmaker sat by the side of the road. The parchmenter hawked fine imported goods from Londa Vaull with a link man. Malchambalde continued down the path. The basinbeater stood by a market stall, negotiating with the wheelwright with a oil merchant.
-
-Eventually, Malchambalde arrived at the town square, where he found a solicitor. Malchambalde approached him, hoping for some advice.
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-A tillerman rushed by quickly, ignoring him. The man sat in silence for a while, then finally responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Florus is down the street to the barn and right. You'll see a tavern. It's past the inn. It's just to the left. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. Nearby, a tutor stood by a market stall, negotiating with the pilgrim. A chimney sweep gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Florus grabbed a dusty book from the shelf and flipped through it. Pictures of hangman trees and vouivres flew by. Eventually he settled on a page and started to explain.
-
-"A phantom fungus is a tripedal carnivorous plant that roams the vast and deep underground caverns of the world. It wanders in search of food, using its rootlike feet to detect movement along the cavern floors and the sensitive tendrils surrounding its mouth to pinpoint prey." Florus explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the phantom fungus?" Malchambalde asked.
-
-Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "A phantom fungus's primary advantage as a predator is its ability to vanish from sight. Stealthily patrolling the perimeters of caverns, a phantom fungus remains invisible until it is behind its prey, at which point it snaps at its victim with its vicious maw."
-
-"But my weapons may be too weak. Are there any other ways to defeat the phantom fungus?" Malchambalde asked.
-
-"A phantom fungus prefers to ambush lone creatures. When it encounters a larger group, a phantom fungus often stalks prey for hours, waiting for the targets to spread out or make camp so that it may attack a single foe at its leisure. Though phantom fungi are not normally pack hunters, there are reports of groves working together to bring down larger foes. When faced with no other option than to attack multiple foes, a group of phantom fungi focuses its attacks on single targets. They prefer to attack noisier foes if possible—characters wearing heavy armor or those that make heavy use of loud attacks (such as bards or spellcasters) are preferred over quieter creatures." Florus explained.
-
-Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "The maw with which a phantom fungus attacks prey is lined with row upon row of sharp, jagged teeth that resemble pointed rocks more than actual fangs. This "mouth" is not used to feed, however, and does not attach to a digestive tract—it is nothing more than a gaping natural weapon. When a phantom fungus feeds, it does so by squatting down on its prey and infesting the corpse with thousands of feeding filaments that burrow through dead flesh to siphon away nutrients. "
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "A typical phantom fungus is 6 feet tall and weighs 200 pounds. Although they prefer dwelling underground, they have been encountered above ground as well."
-
-Malchambalde slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a repulsive phantom fungus in the distance! Our hero fixed his gaze on the lurid sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the phantom fungus, his sword ready to strike! The phantom fungus was struck by the blow! The phantom fungus struck with its bite! He winces from the pain but continues fighting. Malchambalde lunged toward the phantom fungus, his sword ready to strike! Malchambalde landed a massive hit on phantom fungus! 
-
-The phantom fungus struck with its bite! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The phantom fungus leans low, ready to strike with its might. 
-
-He pulls a neon green potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
-
-The adventurer sneaked around to phantom fungus's blind spot. The phantom fungus leans low, ready to strike with its might. 
-
-He pulls a royal blue web potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
-
-The adventurer sneaked around to phantom fungus's blind spot. The phantom fungus leans low, ready to strike with its might. 
-
-The phantom fungus struck with its bite! Malchambalde reeled back in pain. He leaned on his sword to catch a moment's respite. The inflated Malchambalde was worn out by the combat. The phantom fungus struck with its bite! He stunbles backward, gasping for breath. 
-
-He pulls a psychedelic purple potion from his pack and drinks it. He is reinvigorated. The phantom fungus struck with its bite! The bigger than life Malchambalde jumps out of the way. 
-
-The phantom fungus leans low, ready to strike with its might. Malchambalde lunged toward the phantom fungus, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to phantom fungus's blind spot. Malchambalde lunged toward the phantom fungus, his sword ready to strike! The slippery phantom fungus evaded Malchambalde's hit. 
-
-He pulls a radical red potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Florus was talking about."
-
-## <a name="chapter6"></a> Chapter 6: Shol Gare and the Owlbear
-
-Malchambalde followed a dirt path into the village of Shol Gare. The spectaclesmaker ran from person to person, asking if they had seen Deinfride with a spice merchant. Two halberdiers stood by a market stall, negotiating with the grinder. Malchambalde continued down the path. While the sailor stood by a market stall, negotiating with the dentist, a ditcher talked excitedly with what appeared to be a wiredrawer.
-
-Eventually, Malchambalde arrived at the town square, where he found a barrister. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-While the dog trainer rushed by quickly, ignoring him, a cannoneer stood by a market stall, negotiating with the ragpicker. He still looked suspicious, then finally responded.
-
-"Our village of Manaley will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Oxarchepar is the best in town. His shop is into the market and towards the barn. Eventually you need to walk past the cattle barn. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. A wetnurse ran from person to person, asking if they had seen Philberi. While the architect eyed him suspiciously, a purse maker scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Oxarchepar looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Oxarchepar lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The owlbear."
-
-The armorer sighed and continued. "The origin of the owlbear is a subject of great debate among scholars of the monstrous creatures of the world. However, most concur that at some point in the distant past, a deranged wizard created the original specimens by crossing an owl with a bear—perhaps as proof of some insane concept about the nature of life, but possibly out of sheer lunacy. Whatever the original purpose of such a freakish creation as the owlbear, the creature bred true and has become quite well-established in woodlands across the world, where it plays a key role in a region's ecosystem as an apex predator."
-
-"I could handle that. Tell me again, what makes the owlbear so bad?" Malchambalde responded.
-
-"Owlbears are notoriously bloodthirsty killers, well known for their short tempers, aggression, and savage nature. They tend to attack without provocation, slaughtering any living creatures that cross their paths. Many scholars that have encountered these creatures in the wild have noted that they all have red-rimmed eyes that roll about wildly when they close in for an attack. This is sometimes presented as a sign of madness, suggesting that all owlbears are born with a pathological need to fight and kill, but more level-headed researchers believe that it's simply part of the way the massive bird-beast's keen eyes are constructed." Oxarchepar explained.
-
-"I could handle that. Tell me again, what makes the owlbear so bad?" Malchambalde responded.
-
-The armorer sighed and continued. "Owlbears generally inhabit desolate areas of the wilderness, making their messy lairs within wild forests or inside dark, shallow caverns. They are equally adept at hunting during the day and at night, depending upon the prey available near their lairs."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Adult owlbears live in mated pairs, and hunt in small groups, leaving their young behind in their lairs while they search for prey. A typical owlbear lair contains 1d6 juveniles, which can fetch a price of up to 3,000 gp apiece in many city markets." Oxarchepar explained.
-
-Malchambalde slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"While it is considered impossible to truly domesticate owlbears due to their feral natures, they can still be used as guardians if contained within an area but allowed to roam and hunt freely there. Professional animal trainers charge up to 2,000 gp to rear or train an owlbear into a serviceable guardian that can obey simple commands (DC 23 for a juvenile creature; DC 30 for a fully grown adult)." Oxarchepar explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the owlbear?" Malchambalde asked.
-
-"A full-grown male can stand as tall as 8 feet and weighs up to 1,500 pounds." Oxarchepar explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a disgusting owlbear in the distance! The adventurer readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! Malchambalde the grandour hero landed a massive hit on owlbear! The monster was stunned by the attack. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
-
-He sneaked around to owlbear's blind spot. The owlbear leans low, ready to strike with its might. 
-
-The owlbear struck with its claws! The smelly owlbear failed to land its hit. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear leans low, ready to strike with its might. 
-
-The owlbear struck with its claws! Malchambalde reeled back in pain. Malchambalde leaned on his sword to catch a moment's respite. The high-flown Malchambalde was worn out by the combat. The owlbear leans low, ready to strike with its might. 
-
-The owlbear struck with its claws! The fairy owlbear failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear struck with its claws! Malchambalde reeled back in pain. 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark cyan potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a lemon potion from his pack and drinks it. He is reinvigorated. The owlbear leans low, ready to strike with its might. 
-
-He sneaked around to owlbear's blind spot. The owlbear struck with its claws! Malchambalde jumps out of the way. 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to owlbear's blind spot. 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The owlbear struck with its claws! He blocks the strike with his sword. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! The attack from Malchambalde surely left a impression. The owlbear struck with its claws! He winces from the pain but continues fighting. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the owlbear, his sword ready to strike! A sharp crack was heard as the strike left its mark. The owlbear struck with its claws! He jumps out of the way. Malchambalde lunged toward the owlbear, his sword ready to strike! The owlbear was staggered by the immense force. 
-
-Malchambalde sneaked around to owlbear's blind spot. The owlbear leans low, ready to strike with its might. 
-
-The owlbear struck with its claws! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear leans low, ready to strike with its might. 
-
-He was victorious! The owlbear menaced for no longer! 
-
-## <a name="chapter7"></a> Chapter 7: Pell and the Wax Golem
-
-Malchambalde followed a dirt path into the village of Pell. Two shipchandlers talked excitedly with what appeared to be a master of hounds. Nearby, a cartwright stood by a market stall, negotiating with the brushbinder. Malchambalde continued down the path. A merchant loaded a market stall with wares.
-
-Eventually, Malchambalde arrived at the town square, where he found a stonecarver. Malchambalde approached him, hoping for some advice.
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-A feltmaker threw punches. The man eyed him thoughtfully, then finally responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is down the street to the stables and right. You'll see a cattle barn. It's down the street to the barn and right. You'll see a cattle barn. It's just a bit further down the street. It's just to the right. You'll find Alecton, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. The harness maker threw punches with a master of hounds. Nearby, a builder rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Alecton lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The wax golem."
-
-Alecton returned to the book of monsters on the desk and pointed at the terrifying illustration. ""
-
-Malchambalde slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"" Alecton explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "A wax golem is an exact replica of a particular person, composed completely of wax. While skilled artists pride themselves on their ability to make wax sculptures look lifelike, builders of wax golems go one step further and actually bring their art to life. Though eerily silent and unblinking, well-built wax golems bear such striking similarity to the subjects they are modeled after that some golems begin to think they are in fact that person."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"A wax golem can be constructed to resemble any person or creature." Alecton explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a ungodly wax golem in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-He pulls a dark imperial blue potion from his pack and drinks it. He is reinvigorated. The wax golem leans low, ready to strike with its might. 
-
-The adventurer pulls a brilliant rose potion from his pack and drinks it. He is reinvigorated. The wax golem struck with its slam! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The wax golem struck with its slam! The valorous Malchambalde blocks the strike with his sword. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a pale silver potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The wax golem took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The attack from Malchambalde the nobleour hero surely left a impression. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to wax golem's blind spot. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a royal yellow potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to wax golem's blind spot. The wax golem leans low, ready to strike with its might. 
-
-The wax golem struck with its slam! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The wax golem struck with its slam! Malchambalde the stand tallour hero blocks the strike with his sword. 
-
-The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-The wax golem leans low, ready to strike with its might. The wax golem struck with its slam! He jumps out of the way. 
-
-The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The wax golem was struck by the blow! 
-
-He sneaked around to wax golem's blind spot. The wax golem struck with its slam! The fierce blow from the monster narrowly misses the adventurer. 
-
-Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The wax golem struck with its slam! Malchambalde reeled back in pain. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Alecton was talking about."
-
-## <a name="chapter8"></a> Chapter 8: Rayle and the Shinigami
-
-Malchambalde followed a dirt path into the village of Rayle. While the feltmaker bit into an apple, a delver ran from person to person, asking if they had seen Faldus. Two fences sat by the side of the road. Malchambalde continued down the path. Two jews scuttled out of his way.
-
-Eventually, Malchambalde arrived at the town square, where he found a canon. Malchambalde approached him, hoping for some advice.
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-Nearby, a maid hawked fine imported goods from Rockfridgway. The man eyed him thoughtfully, but eventually responded.
-
-"Our village of Borth will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Segus is into the market and towards the warehouse. Eventually you need to walk past the barn. Look for the large hanging sign that reads "Segus Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. A tailor threw punches. The shipchandler sat by the side of the road with a swordsmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Segus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The shinigami."
-
-"Feared as truly impartial and merciless harbingers of death, shinigamis are relentless in their pursuit of dispensing quick and just deaths upon those who would seek to disrupt the delicate balance of life. Unlike other, more sinister bringers of doom, shinigamis do not take pleasure in their work and do not seek to impose suffering—although there are exceptions. Some individuals, aptly described by their kin as "rogue shinigamis," subscribe to either more merciful or more despicable forms of execution, and are either lawful good or lawful evil. Victims who have had their lives spared by kind shinigamis praise the angels of death for their clemency and willingness to listen to the victims' plight, while other dastardly survivors have successfully cheated or bribed their way out of death by manipulating credulous or less honorable shinigami. A shinigami is 9 feet tall and weighs 130 pounds." Segus explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"That's all I can tell you."
-
-Malchambalde saw a disgusting shinigami in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-The shinigami struck with its axiomatic scythe! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! He jumps out of the way. 
-
-The adventurer sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
-
-The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
-
-He sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! Malchambalde reeled back in pain. 
-
-He pulls a little boy blue potion from his pack and drinks it. He is reinvigorated. The shinigami struck with its axiomatic scythe! He winces from the pain but continues fighting. 
-
-The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
-
-The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! Malchambalde the daringour hero blocks the strike with his sword. 
-
-He pulls a dark byzantium potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
-
-The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! He landed a massive hit on shinigami! The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
-
-The exaggerated Malchambalde pulls a dark chestnut potion from his pack and drinks it. He is reinvigorated. The shinigami struck with its axiomatic scythe! Malchambalde blocks the strike with his sword. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-He sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The obnoxious shinigami failed to land its hit. 
-
-Malchambalde sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
-
-The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-He pulls a cadmium orange potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to shinigami's blind spot. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
-
-The shinigami struck with its axiomatic scythe! The frightful shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! The adventurer blocks the strike with his sword. Malchambalde the elevatedour hero stumbles to his knee, gasping for breath. The shinigami leans low, ready to strike with its might. 
-
-The shinigami struck with its axiomatic scythe! The smelly shinigami failed to land its hit. The exhilarating combat made the hours seem like seconds. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. 
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! The noble Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The sickie shinigami failed to land its hit. 
-
-The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the gutsy Malchambalde. The exhilarating combat made the hours seem like seconds. The shinigami struck with its axiomatic scythe! Malchambalde the grittyour hero stunbles backward, gasping for breath. 
-
-Malchambalde pulls a persian pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a beige potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a medium carmine potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-He pulls a deep cerise potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde pulls a white potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-He sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
-
-The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! Although Malchambalde's hit landed, shinigami is mostly unphasedThe monster was stunned by the attack. Malchambalde the classicour hero pulls a licorice potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a kelly green potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-The shinigami struck with its axiomatic scythe! The mean shinigami failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a ivory potion from his pack and drinks it. He is reinvigorated. 
-
-The bold Malchambalde pulls a violet blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The shinigami struck with its axiomatic scythe! The adventurer winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! The monster was stunned by the attack. The adventurer pulls a iris potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
-
-Malchambalde pulls a green munsell potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
-
-The shinigami struck with its axiomatic scythe! Malchambalde reeled back in pain. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the shinigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was staggered by the immense force. The shinigami struck with its axiomatic scythe! The lion-hearted Malchambalde jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-He pulls a pastel red potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! The terrifying shinigami failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses Malchambalde the valorousour hero. 
-
-The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
-
-The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! Although Malchambalde the guttyour hero's hit landed, shinigami is mostly unphased
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! He winces from the pain but continues fighting. Malchambalde the courageousour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
-
-The adventurer sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The gritty Malchambalde blocks the strike with his sword. 
-
-Malchambalde pulls a banana mania potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-He sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a air force blue usaf potion from his pack and drinks it. He is reinvigorated. 
-
-The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He pulls a otter brown potion from his pack and drinks it. He is reinvigorated. 
-
-The shinigami struck with its axiomatic scythe! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-He pulls a french lilac potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
-
-The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. The fire-eating Malchambalde leaned on his sword to catch a moment's respite. The stand tall Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. 
-
-The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from the bigger than life Malchambalde rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-The shinigami struck with its axiomatic scythe! The disgusting shinigami failed to land its hit. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! The gutsy Malchambalde jumps out of the way. 
-
-The shinigami struck with its axiomatic scythe! Malchambalde jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! He landed a massive hit on shinigami! 
-
-The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! The lousy shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The terrible shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-The shinigami struck with its axiomatic scythe! The adventurer blocks the strike with his sword. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! The monster was stunned by the attack. He pulls a sinopia potion from his pack and drinks it. He is reinvigorated. 
-
-The shinigami struck with its axiomatic scythe! The adventurer jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
-
-The shinigami struck with its axiomatic scythe! The fearful shinigami failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! Malchambalde jumps out of the way. 
-
-Malchambalde sneaked around to shinigami's blind spot. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to shinigami's blind spot. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-Malchambalde the doughtyour hero sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The unafraid Malchambalde stunbles backward, gasping for breath. 
-
-The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. 
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-The shinigami struck with its axiomatic scythe! The high-flown Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! Malchambalde the intrepidour hero stunbles backward, gasping for breath. 
-
-The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde the stand tallour hero sneaked around to shinigami's blind spot. Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
-
-Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
-
-The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
-
-He was victorious! The shinigami menaced for no longer! 
-
-## <a name="chapter9"></a> Chapter 9: Blackneridne and the Popobala
-
-Malchambalde followed a dirt path into the village of Blackneridne. Nearby, a waterman slept in an alleyway. The musician sat by the side of the road with a thresher. Malchambalde continued down the path. The barrister scuttled out of his way with a quarryman.
-
-Eventually, Malchambalde arrived at the town square, where he found a canon. Malchambalde approached him, hoping for some advice.
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-While the beekeeper threw punches, a gunsmith finished an apple and tossed the core aside. The man eyed him thoughtfully, then finally responded.
-
-"Our village of Chridner will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is past the barn. Look for the large hanging sign that reads "Flore Fine Supplies". You'll find Flore, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. Two spice merchants eyed him suspiciously. Two joiners hawked fine imported goods from Stond-dÃ«. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Flore looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Flore grabbed a dusty book from the shelf and flipped through it. Pictures of contract devils and totenmaskes flew by. Eventually he settled on a page and started to explain.
-
-Flore returned to the book of monsters on the desk and pointed at the terrifying illustration. "The popobala is a much-feared shapeshifter that haunts and hunts warm coastal lands, roaming night and day to terrorize and spread anarchy and unrest while slaking its insatiable twin urges for violence and prurience. Shifting freely between bat, human, and its natural form, the popobala is most dreaded for its mesmeric charms, but it is more than capable of engaging in savage bloodletting against those who anger it. Popobalas are attracted to chaos, anarchy, and unrest, as the intensity of emotions and uncertainty inflames its already fierce urges. War, changes of government, and religious or ethnic strife or persecution—all of these excite a popobala, and if a society remains too settled and stable, the beast is never above fomenting unrest through its own predations."
-
-"But my weapons may be too weak. Are there any other ways to defeat the popobala?" Malchambalde asked.
-
-"A typical popobala is 5 feet tall with a 12 foot wingspan. It weighs only 100 pounds. " Flore explained.
-
-"I could handle that. Tell me again, what makes the popobala so bad?" Malchambalde responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a repulsive popobala in the distance! Our hero fixed his gaze on the appalling sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
-
-The popobala struck with its bite! The fierce blow from the monster narrowly misses the undaunted Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala struck with its bite! Malchambalde reeled back in pain. 
-
-He pulls a purple munsell potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! Malchambalde jumps out of the way. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala struck with its bite! He winces from the pain but continues fighting. Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! He landed a massive hit on popobala! 
-
-The popobala struck with its bite! The grisly popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! Although he's hit landed, popobala is mostly unphased
-
-The popobala struck with its bite! The execrable popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The popobala leans low, ready to strike with its might. 
-
-The popobala struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala struck with its bite! The unafraid Malchambalde blocks the strike with his sword. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! Malchambalde reeled back in pain. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
-
-The popobala struck with its bite! Malchambalde winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The popobala leans low, ready to strike with its might. 
-
-The popobala struck with its bite! The valiant Malchambalde winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The attack from he surely left a impression. The popobala struck with its bite! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala struck with its bite! The fairy popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! He stunbles backward, gasping for breath. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He pulls a coquelicot potion from his pack and drinks it. He is reinvigorated. The popobala leans low, ready to strike with its might. 
-
-The popobala struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the popobala, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The popobala struck with its bite! The loathsome popobala failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
-
-The valiant Malchambalde pulls a blue pigment potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! He jumps out of the way. 
-
-The popobala struck with its bite! The appalling popobala failed to land its hit. The exhilarating combat made the hours seem like seconds. The popobala struck with its bite! He jumps out of the way. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! He stunbles backward, gasping for breath. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The bold Malchambalde pulls a flavescent potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! The grisly popobala failed to land its hit. 
-
-He pulls a honeydew potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the gallant Malchambalde surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-He sneaked around to popobala's blind spot. The popobala leans low, ready to strike with its might. 
-
-The adventurer pulls a thulian pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! The shocking popobala failed to land its hit. 
-
-The popobala struck with its bite! The fairy popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the valiant Malchambalde surely left a impression. 
-
-The popobala struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! Although he's hit landed, popobala is mostly unphased
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! The dreadful popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde the classicour hero sneaked around to popobala's blind spot. The popobala struck with its bite! The adventurer jumps out of the way. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. The popobala struck with its bite! The loathsome popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from he surely left a impression. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-He pulls a folly potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! Malchambalde reeled back in pain. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! He jumps out of the way. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the grandiose Malchambalde surely left a impression. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-Malchambalde the courageousour hero pulls a sap green potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! He blocks the strike with his sword. 
-
-The popobala struck with its bite! The ghastly popobala failed to land its hit. The classic Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala leans low, ready to strike with its might. 
-
-The popobala struck with its bite! The adventurer blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The popobala struck with its bite! The scary popobala failed to land its hit. 
-
-The popobala struck with its bite! The repellent popobala failed to land its hit. the mythological Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. The gutsy Malchambalde pulls a mustard potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde pulls a copper penny potion from his pack and drinks it. He is reinvigorated. The popobala leans low, ready to strike with its might. 
-
-The adventurer sneaked around to popobala's blind spot. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. The popobala struck with its bite! Malchambalde jumps out of the way. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. The popobala struck with its bite! He stunbles backward, gasping for breath. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala leans low, ready to strike with its might. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
-
-The popobala struck with its bite! The abominable popobala failed to land its hit. he stumbles to his knee, gasping for breath. The popobala struck with its bite! The grisly popobala failed to land its hit. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was struck by the blow! The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. 
-
-Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
-
-The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
-
-He was victorious! The popobala menaced for no longer! 
-
-## <a name="chapter10"></a> Chapter 10: Milton and the Giant Frilled Lizard
-
-Malchambalde followed a dirt path into the village of Milton. Two saddlers talked excitedly with what appeared to be a saltboiler. Two bailiffs ran from person to person, asking if they had seen Goizelin. Malchambalde continued down the path. While the waterman talked excitedly with what appeared to be a fresco painter, a librarian rushed by quickly, ignoring him.
-
-Eventually, Malchambalde arrived at the town square, where he found a fishmonger. Malchambalde approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Two hatmakers loaded a market stall with wares. The man sat in silence for a while, but eventually responded.
-
-"Our village of Fark will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Brantios is down the street to the inn and right. You'll see a tavern. It's just a bit further down the street. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. A nailmaker hawked fine imported goods from Suth EreenhamblesminnÃºninaullang. While the currier bit into an apple, a locksmith talked excitedly with what appeared to be a shipwright. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Brantios looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Brantios lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant frilled lizard."
-
-"This lizard is a true behemoth—an apex predator found in tropical regions. Many species of giant lizard exist—other species lack this lizard's intimidating charge special ability but might have other special attacks like grab, trip, constrict (with a bite), or pounce." Brantios explained.
-
-Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a loathsome giant frilled lizard in the distance! Our hero fixed his gaze on the horrendous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-The stouthearted Malchambalde was victorious! The giant frilled lizard menaced for no longer! 
-
-## <a name="chapter11"></a> Chapter 11: Blaccadingsidge and the Contract Devil
-
-Malchambalde followed a dirt path into the village of Blaccadingsidge. While the baker eyed him suspiciously, a stewsman sat by the side of the road. Nearby, a engineer finished an apple and tossed the core aside. Malchambalde continued down the path. A curate finished an apple and tossed the core aside.
-
-Eventually, Malchambalde arrived at the town square, where he found a bricker. Malchambalde approached him, hoping for some advice.
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-Two curriers ran from person to person, asking if they had seen Kemene. The man sat in silence for a while, but eventually responded.
-
-"Our village of Edhentok will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. It's just to the left. You'll find Godefridurandus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 3 small coins. "I want that Otes gone as much as anybody."
-
-Malchambalde hurried towards the armory. Nearby, a joiner slowly carried supplies. Two pardoners gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Godefridurandus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The contract devil."
-
-"A contract devil, also a called phistophilus, always appears handsome and confident, its chiseled features housing a perpetually smug grin. Contract devils have red skin and black hair and stand near 6-1/2 feet in height, not counting their horns. The thicket of horns around a contract devil's body increases its height to 7 feet and its weight to 350 pounds." Godefridurandus explained.
-
-"I could handle that. Tell me again, what makes the contract devil so bad?" Malchambalde responded.
-
-Godefridurandus returned to the book of monsters on the desk and pointed at the terrifying illustration. " They exist to keep track of the damned,  to manage Hell's endless ordinances, and, when time and opportunity permit, to coax mortals into damnation. Most phistophiluses spend their eternities in the various courts of Hell's nine layers, particularly in the maze-like fortress-libraries where all infernal laws and oaths are recorded. Occasionally they serve similar roles on the Material Plane when summoned by particularly desperate, arrogant, or foolish mortals."
-
-"I could handle that. Tell me again, what makes the contract devil so bad?" Malchambalde responded.
-
-"When one of the souls damned by a contract devil is restored to life (typically via powerful magic like a wish or miracle), the phistophilus immediately notices the transgression. Usually, the contract devil recruits the aid of more powerful allies to track down and punish such transgressors and to collect the escaped soul as quickly as possible." Godefridurandus explained.
-
-Malchambalde slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"But my weapons may be too weak. Are there any other ways to defeat the dire ape (gigantopithecus)?" Fluvand asked.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Malchambalde saw a menacing contract devil in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a execrable dire ape (gigantopithecus) in the distance! Fluvand the intrepidour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the classicour hero blocks the strike with his sword. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The dire ape (gigantopithecus) was struck by the blow! 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the doughtyour hero sneaked around to contract devil's blind spot. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
 
-The contract devil struck with its binding contract! The unholy contract devil failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The grisly contract devil failed to land its hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand jumps out of the way. 
 
-He sneaked around to contract devil's blind spot. The contract devil leans low, ready to strike with its might. 
+The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. The valorous Fluvand leaned on his sword to catch a moment's respite. The mythological Fluvand was worn out by the combat. The dire ape (gigantopithecus) struck with its bite! He jumps out of the way. 
 
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the dauntlessour hero jumps out of the way. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! Although he's hit landed, dire ape (gigantopithecus) is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-He pulls a lime green potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses the inflated Fluvand. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The contract devil struck with its binding contract! He blocks the strike with his sword. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) struck with its bite! The repellent dire ape (gigantopithecus) failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil struck with its binding contract! Malchambalde blocks the strike with his sword. Malchambalde the valiantour hero leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil leans low, ready to strike with its might. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! Although he's hit landed, dire ape (gigantopithecus) is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! Malchambalde reeled back in pain. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from the adventurer surely left a impression. 
+The dire ape (gigantopithecus) struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The adventurer pulls a goldenrod potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! Malchambalde the undauntedour hero blocks the strike with his sword. 
+The dire ape (gigantopithecus) struck with its bite! The appalling dire ape (gigantopithecus) failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+Fluvand the high-flownour hero pulls a orange color wheel potion from his pack and drinks it. He is reinvigorated. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand reeled back in pain. 
 
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the unafraidour hero jumps out of the way. 
+He sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) struck with its bite! He winces from the pain but continues fighting. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a green ryb potion from his pack and drinks it. He is reinvigorated. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand the gutsyour hero blocks the strike with his sword. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was struck by the blow! The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
+The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. Fluvand the lion-heartedour hero stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-Malchambalde pulls a glitter potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He blocks the strike with his sword. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
 
-The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. the undaunted Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The horrendous contract devil failed to land its hit. 
+He sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the adventurer. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The dire ape (gigantopithecus) was struck by the blow! The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The adventurer pulls a cyan potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to dire ape (gigantopithecus)'s blind spot. 
 
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) struck with its bite! The lurid dire ape (gigantopithecus) failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil struck with its binding contract! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! Malchambalde blocks the strike with his sword. 
+Fluvand the dauntlessour hero sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. 
+The dire ape (gigantopithecus) struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-He sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The contract devil leans low, ready to strike with its might. 
+The bigger than life Fluvand pulls a fawn potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! He jumps out of the way. 
 
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The disagreeable dire ape (gigantopithecus) failed to land its hit. 
 
-The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the grand Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! He jumps out of the way. 
+The doughty Fluvand pulls a coffee potion from his pack and drinks it. He is reinvigorated. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
 
-The contract devil struck with its binding contract! Malchambalde jumps out of the way. Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+Fluvand the stoutheartedour hero sneaked around to dire ape (gigantopithecus)'s blind spot. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The contract devil struck with its binding contract! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. 
+He sneaked around to dire ape (gigantopithecus)'s blind spot. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-Malchambalde the boldour hero sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
 
-The contract devil struck with its binding contract! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil leans low, ready to strike with its might. 
+He pulls a deep magenta potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The attack from he surely left a impression. The dire ape (gigantopithecus) struck with its bite! The fire-eating Fluvand blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
 
-Malchambalde pulls a carmine red potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He jumps out of the way. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! A sharp crack was heard as the strike left its mark. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The attack from Fluvand the daringour hero surely left a impression. 
 
-Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
+Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
 
-He pulls a pale blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+Fluvand says
 
-The bold Malchambalde pulls a vivid auburn potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! The smelly contract devil failed to land its hit. 
+"That didn't seem so hard, I don't know what Paschard was talking about."
 
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+## <a name="chapter3"></a> Chapter 3: Cam Hightsby and the Slithering Tracker
 
-He sneaked around to contract devil's blind spot. The contract devil leans low, ready to strike with its might. 
+Fluvand followed a dirt path into the village of Cam Hightsby. While the rat catcher hawked fine imported goods from Sunlaccas Pand, a mercer scuttled out of his way. Nearby, a friar ran from person to person, asking if they had seen Meric. Fluvand continued down the path. A crossbowman hawked fine imported goods from Dudbrione.
 
-The contract devil struck with its binding contract! The lurid contract devil failed to land its hit. The exhilarating combat made the hours seem like seconds. The contract devil leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil took a glancing blow. 
-
-The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! The adventurer jumps out of the way. 
-
-The contract devil struck with its binding contract! The loathsome contract devil failed to land its hit. The high-flown Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the valiant Malchambalde. 
-
-The contract devil struck with its binding contract! The terrible contract devil failed to land its hit. The doughty Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil leans low, ready to strike with its might. 
-
-The gutty Malchambalde sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! The epic Malchambalde winces from the pain but continues fighting. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde sneaked around to contract devil's blind spot. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-Malchambalde pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He blocks the strike with his sword. 
-
-The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses Malchambalde the bigger than lifeour hero. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
-
-He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
-
-The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! He winces from the pain but continues fighting. 
-
-The adventurer sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! He jumps out of the way. 
-
-The contract devil struck with its binding contract! The revolting contract devil failed to land its hit. he stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The shameful contract devil failed to land its hit. 
-
-He pulls a rust potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The adventurer jumps out of the way. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-He pulls a medium tuscan red potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-The contract devil struck with its binding contract! Malchambalde reeled back in pain. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from he surely left a impression. 
-
-The contract devil struck with its binding contract! The loathsome contract devil failed to land its hit. The exhilarating combat made the hours seem like seconds. The contract devil leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The dreadful contract devil failed to land its hit. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from Malchambalde the valorousour hero surely left a impression. The monster was stunned by the attack. Malchambalde the elevatedour hero pulls a jade potion from his pack and drinks it. He is reinvigorated. 
-
-He was victorious! The contract devil menaced for no longer! 
-
-## <a name="chapter12"></a> Chapter 12: Ken and the Cerebric Fungus
-
-Malchambalde followed a dirt path into the village of Ken. While the sailor scuttled out of his way, a philosopher talked excitedly with what appeared to be a woodturner. Two armorers scuttled out of his way. Malchambalde continued down the path. A vintner rushed by quickly, ignoring him.
-
-Eventually, Malchambalde arrived at the town square, where he found a sawyer. The man, eying his strong forearms, beckoned him forward.
+Eventually, Fluvand arrived at the town square, where he found a scabbard maker. The man, eying his unusual weapons, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
 
-A cheesemaker talked excitedly with what appeared to be a saddler. The man eyed him thoughtfullyHe finally responded.
+While the famulus loaded a market stall with wares, a purse maker eyed him suspiciously. He still looked suspicious, but eventually responded.
 
-"Our village of Fins Cove will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Thurus is past the barn. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Otes gone as much as anybody."
-
-Malchambalde hurried towards the armory. Nearby, a emperor stood by a market stall, negotiating with the dean. While the bookprinter scuttled out of his way, a shipwright scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Thurus looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Thurus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The cerebric fungus."
-
-Thurus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Cerebric fungi are a race of carnivorous, intelligent fungi native to a distant planet. Although they are one of the lowliest life forms on their homeworld, the fungi still possess an alien intellect far beyond that of most terrestrial creatures. Cerebric fungi display great curiosity about other races and species when they visit other worlds, asking endless, apparently senseless, questions and engaging in disturbing experiments. Some eccentric scholars claim to have learned unsettling secrets from these interrogations."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Although capable of fine manipulation with their prehensile filaments, cerebric fungi normally forgo the use of weapons in favor of their natural attacks."
-
-"I could handle that. Tell me again, what makes the cerebric fungus so bad?" Malchambalde responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a unholy cerebric fungus in the distance! Our hero fixed his gaze on the mean sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-The cerebric fungus struck with its bite! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The cerebric fungus struck with its bite! Malchambalde the inflatedour hero blocks the strike with his sword. 
-
-The cerebric fungus leans low, ready to strike with its might. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The adventurer landed a massive hit on cerebric fungus! 
-
-Malchambalde pulls a true blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-Malchambalde the unafraidour hero sneaked around to cerebric fungus's blind spot. The cerebric fungus struck with its bite! The gutsy Malchambalde blocks the strike with his sword. 
-
-Malchambalde sneaked around to cerebric fungus's blind spot. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the cerebric fungus, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! Although Malchambalde's hit landed, cerebric fungus is mostly unphased
-
-The cerebric fungus struck with its bite! Malchambalde winces from the pain but continues fighting. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-The doughty Malchambalde sneaked around to cerebric fungus's blind spot. The cerebric fungus struck with its bite! The adventurer blocks the strike with his sword. 
-
-He pulls a isabelline potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-He sneaked around to cerebric fungus's blind spot. The cerebric fungus leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. The fire-eating Malchambalde sneaked around to cerebric fungus's blind spot. 
-
-Malchambalde lunged toward the cerebric fungus, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. The adventurer pulls a violet potion from his pack and drinks it. He is reinvigorated. 
-
-The cerebric fungus struck with its bite! He winces from the pain but continues fighting. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Thurus was talking about."
-
-## <a name="chapter13"></a> Chapter 13: Strider and the Dvorovoi
-
-Malchambalde followed a dirt path into the village of Strider. While the fiddler scuttled out of his way, a oyster raker talked excitedly with what appeared to be a organist. While the reaper slowly carried supplies, a summoner loaded a market stall with wares. Malchambalde continued down the path. The saltboiler ran from person to person, asking if they had seen Liza with a fence.
-
-Eventually, Malchambalde arrived at the town square, where he found a salter. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-Nearby, a jew bit into an apple. The man quietly reminised about the pastHe finally responded.
-
-"Our village of Slon will gladly help you on your quest. What do you need?"
+"Our village of Scushfier will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Dith is the best in town. His shop is past the monastery. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Formos is down the street to the warehouse and left. You'll see a monastery. It's into the market and towards the barn. Eventually you need to walk past the tavern. It's just to the left. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Malchambalde hurried towards the armory. A privycleaner ran from person to person, asking if they had seen Malapanett. Two braziers slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. Two bowmans eyed him suspiciously. While the chandler threw punches, a exchequer sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Dith looked up from his work behind a counter at Malchambalde.
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-Dith grabbed a dusty book from the shelf and flipped through it. Pictures of tophets and festering spirits flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the taotieh, or perhaps even the stone golem, but that's nothing compared to the slithering tracker we've got."
 
-The armorer sighed and continued. "Just as domovoi protect the home, dvorovoi protect villagers' yards and pastures. Intrigued by tales of the creatures' guardianship, some farmers lure dvorovoi to their fields by leaving offerings of bread, sheep's wool, or shiny trinkets. When the owner of a farmstead with a dvorovoi purchases a new animal, he leads it through the yard to introduce it to the dvorovoi, hoping to gain the fey creature's approval of the new livestock."
+Formos returned to the book of monsters on the desk and pointed at the terrifying illustration. "An alien inhabitant of the dark underworld, the slithering tracker is a glistening creature of transparent ooze, typically about 3 inches thick and at least 3 feet in diameter. When still, it looks like a wet patch of stone or a patch of condensation on a wall. Comparatively slow moving, the slithering tracker relies on its transparency and knack for ambushing to surprise prey."
 
-"But my weapons may be too weak. Are there any other ways to defeat the dvorovoi?" Malchambalde asked.
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
 
-The armorer sighed and continued. "Though undeniably useful to have around for feeding the cattle and keeping predators away from flocks, dvorovoi can be capricious. Dvorovoi despise any white animal, and will never tolerate a white-furred horse or cow in their presence. For unknown reasons, dvorovoi don't hold this same grudge toward white chickens."
+The armorer sighed and continued. "Once a slithering tracker has paralyzed a living creature, it flows over an exposed patch of flesh, grabbing on and draining blood from the victim. A slithering tracker can drain a human-sized creature of its blood with shocking swiftness, leaving only a desiccated carcass behind. A slithering tracker can go some time between meals, but never turns down easy prey. The larger a slithering tracker grows, the more voracious its appetite becomes, until, after a particularly large feeding, the creature splits into two smaller slithering trackers that eventually go their separate ways in search of feeding territory."
 
-Malchambalde slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the slithering tracker so bad?" Fluvand responded.
+
+The armorer sighed and continued. "Slithering trackers are not harmed by bright light, but still prefer to avoid areas of intense illumination or natural sunlight, and so only venture aboveground at night. They prefer the cool, damp environment of their native caves and tunnels."
+
+Fluvand slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Although intelligent and cunning, slithering trackers are entirely alien creatures. They do not possess any language of their own, although they can usually understand the dominant language of the region they dwell in—usually Undercommon. Some underworld inhabitants do manage to forge alliances with slithering trackers, or at least exist with them in symbiosis by providing the creatures with easy and regular prey, but as one can never truly know a slithering tracker's desires or motivations, such alliances are dangerous to rely upon." Formos explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the slithering tracker?" Fluvand asked.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Malchambalde saw a execrable dvorovoi in the distance! Our hero fixed his gaze on the hideous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a unkind slithering tracker in the distance! Fluvand the fire-eatingour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! Although Fluvand's hit landed, slithering tracker is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-He sneaked around to dvorovoi's blind spot. The dvorovoi leans low, ready to strike with its might. 
+The lion-hearted Fluvand sneaked around to slithering tracker's blind spot. The slithering tracker struck with its slams! The unafraid Fluvand blocks the strike with his sword. 
 
-The dvorovoi struck with its pitchfork! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+The slithering tracker struck with its slams! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The slithering tracker leans low, ready to strike with its might. 
 
-He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The dvorovoi leans low, ready to strike with its might. 
+The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! Fluvand the guttyour hero blocks the strike with his sword. 
 
-The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses the undaunted Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dvorovoi struck with its pitchfork! The grim dvorovoi failed to land its hit. 
+Fluvand the guttyour hero pulls a pale taupe potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi struck with its pitchfork! The heinous dvorovoi failed to land its hit. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! He blocks the strike with his sword. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! The dvorovoi took a glancing blow. The monster was stunned by the attack. He pulls a burnt sienna potion from his pack and drinks it. He is reinvigorated. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi struck with its pitchfork! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dvorovoi leans low, ready to strike with its might. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The slithering tracker struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi struck with its pitchfork! Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The dvorovoi leans low, ready to strike with its might. 
+The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! The elevated Fluvand jumps out of the way. 
 
-The dvorovoi struck with its pitchfork! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The dvorovoi leans low, ready to strike with its might. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi struck with its pitchfork! Malchambalde the nobleour hero jumps out of the way. Malchambalde lunged toward the dvorovoi, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The doughty Fluvand pulls a bright green potion from his pack and drinks it. He is reinvigorated. The slithering tracker struck with its slams! Fluvand blocks the strike with his sword. 
 
-The valorous Malchambalde sneaked around to dvorovoi's blind spot. The dvorovoi struck with its pitchfork! The terrible dvorovoi failed to land its hit. 
+The slithering tracker struck with its slams! The daring Fluvand blocks the strike with his sword. the lion-hearted Fluvand stumbles to his knee, gasping for breath. The slithering tracker struck with its slams! The grisly slithering tracker failed to land its hit. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The dvorovoi struck with its pitchfork! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The attack from Malchambalde the guttyour hero surely left a impression. 
+He sneaked around to slithering tracker's blind spot. The slithering tracker leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+He sneaked around to slithering tracker's blind spot. The slithering tracker leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! The dvorovoi was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although the courageous Malchambalde's hit landed, dvorovoi is mostly unphased
+He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+He pulls a dark pink potion from his pack and drinks it. He is reinvigorated. The slithering tracker leans low, ready to strike with its might. 
 
-The dvorovoi struck with its pitchfork! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The dvorovoi struck with its pitchfork! Malchambalde reeled back in pain. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! That blow seemed like it could break some bones. The slithering tracker struck with its slams! The adventurer blocks the strike with his sword. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+The slithering tracker struck with its slams! Fluvand jumps out of the way. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The slithering tracker leans low, ready to strike with its might. 
 
-Malchambalde the stoutheartedour hero sneaked around to dvorovoi's blind spot. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although Malchambalde the exaggeratedour hero's hit landed, dvorovoi is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
+The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although Malchambalde the grandioseour hero's hit landed, dvorovoi is mostly unphased
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. He pulls a la salle green potion from his pack and drinks it. He is reinvigorated. 
 
-The dvorovoi struck with its pitchfork! He winces from the pain but continues fighting. the intrepid Malchambalde stumbles to his knee, gasping for breath. The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses Malchambalde the classicour hero. 
+Fluvand lunged toward the slithering tracker, his sword ready to strike! Although Fluvand the nobleour hero's hit landed, slithering tracker is mostly unphasedThe monster was stunned by the attack. The high-flown Fluvand sneaked around to slithering tracker's blind spot. 
 
-The dvorovoi struck with its pitchfork! The horrid dvorovoi failed to land its hit. Malchambalde lunged toward the dvorovoi, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-He was victorious! The dvorovoi menaced for no longer! 
+Fluvand pulls a medium slate blue potion from his pack and drinks it. He is reinvigorated. The slithering tracker struck with its slams! He jumps out of the way. 
 
-## <a name="chapter14"></a> Chapter 14: Aber Breetton Pariddle and the Ghoran
+The noble Fluvand pulls a bazaar potion from his pack and drinks it. He is reinvigorated. The slithering tracker leans low, ready to strike with its might. 
 
-Malchambalde followed a dirt path into the village of Aber Breetton Pariddle. The bookprinter threw punches with a coiner. While the wattler stood by a market stall, negotiating with the rat catcher, a rat catcher slept in an alleyway. Malchambalde continued down the path. The limner bit into an apple with a outlaw.
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the fearlessour hero sneaked around to slithering tracker's blind spot. 
 
-Eventually, Malchambalde arrived at the town square, where he found a roofer. The man, eying his dangerous demeanor, beckoned him forward.
+The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! Fluvand winces from the pain but continues fighting. 
 
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+Fluvand lunged toward the slithering tracker, his sword ready to strike! The shattering blow from he rumbled through the ground. The slithering tracker struck with its slams! Fluvand the elevatedour hero stunbles backward, gasping for breath. Fluvand lunged toward the slithering tracker, his sword ready to strike! The attack from he surely left a impression. 
 
-Nearby, a mercer ran from person to person, asking if they had seen Merius. The man sat in silence for a whileHe finally responded.
+The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
 
-"Our village of Hudbur will gladly help you on your quest. What do you need?"
+The slithering tracker struck with its slams! He jumps out of the way. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The slithering tracker struck with its slams! The adventurer jumps out of the way. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Formos was talking about."
+
+## <a name="chapter4"></a> Chapter 4: Havonsbridge Park and the Tojanida
+
+Fluvand followed a dirt path into the village of Havonsbridge Park. The pavior loaded a market stall with wares with a alchemist. While the clockmaker rushed by quickly, ignoring him, a ragpicker slowly carried supplies. Fluvand continued down the path. Nearby, a chainmaker eyed him suspiciously.
+
+Eventually, Fluvand arrived at the town square, where he found a weaver. Fluvand approached him, hoping for some advice.
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+The blockcutter bit into an apple with a pavior. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Gunzurinus is the best in town. His shop is into the market and towards the cattle barn. Eventually you need to walk just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Otes gone as much as anybody."
+"Villmon is the best in town. His shop is down the street to the barn and left. You'll see a stables. It's down the street to the inn and right. You'll see a monastery. It's down the street to the cattle barn and right. You'll see a cattle barn. It's past the barn. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Malchambalde hurried towards the armory. While the shoemaker stood by a market stall, negotiating with the broderer, a bleacher slowly carried supplies. Nearby, a furrier slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. Two bearleaders loaded a market stall with wares. Two tallowchandlers gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the cave fisher, or perhaps even the mummified gynosphinx, but that's nothing compared to the ghoran we've got."
+Villmon lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The tojanida."
 
-"Ghorans arose from plant life created by advanced druidic magic to be an especially hardy and adaptive food source for humans. Over the centuries, the plants evolved sentience and ambulatory bodies that mimicked the appearance of humanoids as a method to discourage their enemies from hunting them and improve their chances of survival. Their creators did not imbue them with the ability to create more of the ghorus seeds that give them life, so ghorans are fanatically protective of these seeds and consider destroying them the worst of crimes." Gunzurinus explained.
+The armorer sighed and continued. "Tojanidas are bizarre natives from the Plane of Water that resemble mixes between monstrous crabs and enormous snapping turtles. Originally elemental beings of water, tojanidas were bound into their strange forms long ago for unclear reasons, and no longer know how they might eventually return to their pure and formless state. Determined to preserve their pride, the grotesque tojanidas ply the waters of the planes seeking hedonistic pleasures—especially culinary ones—and the adoration of other races. Loquacious when addressed with the proper respect, they make excellent heralds and emissaries for more powerful beings, and often enjoy posing as such even when operating on their own. When riled, however, tojanidas make fearsome opponents, violent and eager juggernauts with snapping jaws and clacking pincers."
 
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+"Adult tojanidas are roughly 6 feet long and weigh several hundred pounds. When threatened, a tojanida can retract its limbs most of the way into its shell, which is an irremovable part of its body. The ring of eyes completely encircling the tojanida's shell along its rim makes the creature extremely difficult to catch by surprise. While tojanidas adore eating, as they find flavor and texture to be two of the most fascinating senses, they don't actually need to consume food, instead drawing sustenance directly from the currents of arcane energy all around them via the magic of their shells." Villmon explained.
 
-Malchambalde saw a awful ghoran in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+"But my weapons may be too weak. Are there any other ways to defeat the tojanida?" Fluvand asked.
 
-Malchambalde sneaked around to ghoran's blind spot. The ghoran leans low, ready to strike with its might. 
+The armorer sighed and continued. "Blessed (some might say cursed) with extremely long racial memories, tojanidas wander the oceans and lakes of innumerable worlds, attempting to find unusual physical pleasures or conversation capable of distracting them from the insufferable ennui and apathy born of remembering their ancestors' experiences. Though the tojanidas themselves may not appreciate the burden of memory, adventurers and scholars often seek the use of a tojanida's recalled lore."
 
-The grandiose Malchambalde pulls a sea blue potion from his pack and drinks it. He is reinvigorated. The ghoran leans low, ready to strike with its might. 
-
-The ghoran struck with its rapier! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ghoran leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! He stunbles backward, gasping for breath. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. The epic Malchambalde sneaked around to ghoran's blind spot. 
-
-The ghoran leans low, ready to strike with its might. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran struck with its rapier! He winces from the pain but continues fighting. Malchambalde lunged toward the ghoran, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. The grandiose Malchambalde sneaked around to ghoran's blind spot. 
-
-The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! He blocks the strike with his sword. 
-
-The ghoran struck with its rapier! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghoran struck with its rapier! Malchambalde the boldour hero blocks the strike with his sword. 
-
-The ghoran struck with its rapier! He blocks the strike with his sword. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran struck with its rapier! Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ghoran leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a dark green potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran struck with its rapier! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ghoran leans low, ready to strike with its might. 
-
-The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! The fierce blow from the monster narrowly misses he. 
-
-The ghoran struck with its rapier! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghoran leans low, ready to strike with its might. 
-
-He pulls a pale green potion from his pack and drinks it. He is reinvigorated. The ghoran struck with its rapier! Malchambalde the grittyour hero blocks the strike with his sword. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde the unafraidour hero jumps out of the way. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The ghoran took a glancing blow. The ghoran struck with its rapier! The fierce blow from the monster narrowly misses Malchambalde the fearlessour hero. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! He jumps out of the way. 
-
-Malchambalde sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The adventurer sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-The ghoran struck with its rapier! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ghoran leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The ghoran took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to ghoran's blind spot. 
-
-He pulls a coral red potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Gunzurinus was talking about."
-
-## <a name="chapter15"></a> Chapter 15: Toottad and the Adlet
-
-Malchambalde followed a dirt path into the village of Toottad. Two restaurateurs threw punches. A glover scuttled out of his way. Malchambalde continued down the path. Two friars loaded a market stall with wares.
-
-Eventually, Malchambalde arrived at the town square, where he found a bookbinder. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-While the baker stood by a market stall, negotiating with the lawyer, a astronomer threw punches. The man quietly reminised about the past, but eventually responded.
-
-"Our village of Harderf will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. It's just to the left. You'll find Pyle, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. While the restaurateur threw punches, a constable sat by the side of the road. The crofter finished an apple and tossed the core aside with a dairymaid. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Pyle looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Pyle lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The adlet."
-
-The armorer sighed and continued. "Adlets are cunning hunters of the arctic wilds. Tall, sinewy, nimble, and very quick, they see themselves as the true heritors of untamed arctic lands, and are offended by any other humanoid species that attempts to settle in such regions. Although not normally evil, adlets are very aggressive and warlike. They also have no social taboo against cannibalism, and their practice of eating their dead rather than burying them only further builds misconceptions about their morality."
-
-"But my weapons may be too weak. Are there any other ways to defeat the adlet?" Malchambalde asked.
-
-"Deeply religious, adlets worship the power and cruelty of nature, seeing divinity in the lash of the blizzard's wind, the ferocity of the polar bear, and the immensity of the towering iceberg. Many become oracles or druids, but all adlets know their place in the natural world. One in every dozen adlets is a shaman: an adlet with the advanced creature template and the ability to summon a greater ice elemental or 1d4+1 large ice elementals (see Bestiary 2 114) and commune with nature once per day each as spell-like abilities. An adlet is 6 feet tall and weighs 250 pounds." Pyle explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the adlet?" Malchambalde asked.
+"But my weapons may be too weak. Are there any other ways to defeat the tojanida?" Fluvand asked.
 
 "That's all I can tell you."
 
-Malchambalde saw a grisly adlet in the distance! Our hero fixed his gaze on the hideous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a evil tojanida in the distance! Our hero fixed his gaze on the fairy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The adlet struck with its spear! The mean adlet failed to land its hit. he stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
+He sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
 
-Malchambalde the fearlessour hero sneaked around to adlet's blind spot. The adlet struck with its spear! The hideous adlet failed to land its hit. 
+The tojanida struck with its bite! The fierce blow from the monster narrowly misses Fluvand. The adventurer leaned on his sword to catch a moment's respite. The gritty Fluvand was worn out by the combat. The tojanida struck with its bite! Fluvand reeled back in pain. 
 
-Malchambalde the boldour hero pulls a azure potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The stouthearted Malchambalde jumps out of the way. 
+The tojanida leans low, ready to strike with its might. The tojanida struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-The adlet struck with its spear! The fierce blow from the monster narrowly misses he. the grand Malchambalde stumbles to his knee, gasping for breath. The adlet struck with its spear! The dreadful adlet failed to land its hit. 
+The classic Fluvand sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
 
-The adlet struck with its spear! He jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
+The tojanida leans low, ready to strike with its might. The tojanida struck with its bite! He jumps out of the way. 
 
-The elevated Malchambalde sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
+The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! The valorous Fluvand landed a massive hit on tojanida! 
 
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! He stunbles backward, gasping for breath. 
+He pulls a taupe potion from his pack and drinks it. He is reinvigorated. The tojanida leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. 
+The adventurer sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
 
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! He jumps out of the way. 
+The tojanida struck with its bite! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The tojanida leans low, ready to strike with its might. 
 
-Malchambalde the gallantour hero pulls a lavender blue potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
+The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The adlet struck with its spear! Malchambalde the high-flownour hero winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
+The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
 
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The repulsive adlet failed to land its hit. 
+Fluvand lunged toward the tojanida, his sword ready to strike! The tojanida was struck by the blow! The tojanida struck with its bite! The gritty Fluvand jumps out of the way. Fluvand lunged toward the tojanida, his sword ready to strike! The tojanida took a glancing blow. 
 
-The adlet struck with its spear! The revolting adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
+He pulls a cinereous potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
 
-Malchambalde pulls a deep jungle green potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The ruinous adlet failed to land its hit. 
+The dauntless Fluvand sneaked around to tojanida's blind spot. Fluvand lunged toward the tojanida, his sword ready to strike! He landed a massive hit on tojanida! 
 
-The adlet struck with its spear! Malchambalde reeled back in pain. Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
+Fluvand lunged toward the tojanida, his sword ready to strike! The attack from Fluvand the daringour hero surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
 
-The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde the stoutheartedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde. 
+Fluvand the grittyour hero pulls a vivid burgundy potion from his pack and drinks it. He is reinvigorated. The tojanida leans low, ready to strike with its might. 
 
-The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The adventurer was victorious! The tojanida menaced for no longer! 
 
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The adventurer blocks the strike with his sword. 
+## <a name="chapter5"></a> Chapter 5: Ath and the Bearded Devil (barbazu)
 
-Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The adlet struck with its spear! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the adlet, his sword ready to strike! He landed a massive hit on adlet! 
+Fluvand followed a dirt path into the village of Ath. Nearby, a ship's captain slept in an alleyway. While the rivener ran from person to person, asking if they had seen Adrandoaldus, a pilot talked excitedly with what appeared to be a lighter man. Fluvand continued down the path. While the grinder ran from person to person, asking if they had seen Abelar, a rivener slept in an alleyway.
 
-Malchambalde the exaggeratedour hero pulls a deep cerise potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! The attack from he surely left a impression. 
+Eventually, Fluvand arrived at the town square, where he found a halberdier. Fluvand approached him, hoping for some advice.
 
-The adlet struck with its spear! Malchambalde the nobleour hero blocks the strike with his sword. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-Malchambalde lunged toward the adlet, his sword ready to strike! Although he's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+Nearby, a costermonger eyed him suspiciously. The man sat in silence for a while, but eventually responded.
 
-Malchambalde lunged toward the adlet, his sword ready to strike! Although Malchambalde the elevatedour hero's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The attack from Malchambalde the intrepidour hero surely left a impression. 
-
-The adlet struck with its spear! Malchambalde the stand tallour hero jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The adventurer jumps out of the way. 
-
-The adlet struck with its spear! The shocking adlet failed to land its hit. The noble Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The adlet leans low, ready to strike with its might. 
-
-He pulls a majorelle blue potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The daring Malchambalde blocks the strike with his sword. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The adlet struck with its spear! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adlet struck with its spear! Malchambalde jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to adlet's blind spot. 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. The adlet struck with its spear! The gruesome adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adlet struck with its spear! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The adlet leans low, ready to strike with its might. 
-
-The adlet struck with its spear! The gruesome adlet failed to land its hit. he stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
-
-The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-He pulls a pastel green potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
-
-The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde the grandour hero. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! Malchambalde the elevatedour hero blocks the strike with his sword. 
-
-He sneaked around to adlet's blind spot. The adlet struck with its spear! The abhorrent adlet failed to land its hit. 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The bold Malchambalde blocks the strike with his sword. 
-
-The adlet struck with its spear! Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The elevated Malchambalde was worn out by the combat. The adlet struck with its spear! He jumps out of the way. 
-
-The adlet struck with its spear! He blocks the strike with his sword. the unafraid Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! That blow seemed like it could break some bones. The adlet struck with its spear! The terrifying adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! Although he's hit landed, adlet is mostly unphased
-
-Malchambalde the unafraidour hero sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
-
-The adlet struck with its spear! The terrible adlet failed to land its hit. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! The elevated Malchambalde winces from the pain but continues fighting. 
-
-The adlet leans low, ready to strike with its might. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-He pulls a deep champagne potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! Malchambalde blocks the strike with his sword. 
-
-The impavid Malchambalde sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
-
-Malchambalde the elevatedour hero pulls a shadow potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
-
-The adlet leans low, ready to strike with its might. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adlet struck with its spear! He jumps out of the way. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The adlet struck with its spear! The fierce blow from the monster narrowly misses the adventurer. 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The awful adlet failed to land its hit. 
-
-The adlet struck with its spear! The evil adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-He sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
-
-The adlet struck with its spear! Malchambalde reeled back in pain. Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
-
-The adventurer pulls a gold web golden potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Malchambalde the impavidour hero sneaked around to adlet's blind spot. The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde. 
-
-Malchambalde the courageousour hero pulls a phlox potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adventurer pulls a cerise potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! He stunbles backward, gasping for breath. 
-
-The adlet struck with its spear! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! Malchambalde blocks the strike with his sword. 
-
-Malchambalde lunged toward the adlet, his sword ready to strike! Although the adventurer's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! Malchambalde the gutsyour hero stunbles backward, gasping for breath. 
-
-He sneaked around to adlet's blind spot. Malchambalde lunged toward the adlet, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The adlet struck with its spear! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
-
-The adlet leans low, ready to strike with its might. The adlet struck with its spear! The fierce blow from the monster narrowly misses the adventurer. 
-
-The epic Malchambalde sneaked around to adlet's blind spot. The adlet struck with its spear! The eerie adlet failed to land its hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Pyle was talking about."
-
-## <a name="chapter16"></a> Chapter 16: War and the Woolly Rhinoceros
-
-Malchambalde followed a dirt path into the village of War. The cabinetmaker gazed at him from an open window with a bishop. While the master of hounds eyed him suspiciously, a bearleader slowly carried supplies. Malchambalde continued down the path. While the ditcher slowly carried supplies, a plowman threw punches.
-
-Eventually, Malchambalde arrived at the town square, where he found a king. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-While the emperor talked excitedly with what appeared to be a master of hounds, a pavyler threw punches. The man eyed him thoughtfully, but eventually responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+"Our village of Brow Censt will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Sigion is just a bit further down the street. Look for the large hanging sign that reads "Sigion Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Eginrad is the best in town. His shop is down the street to the monastery and left. You'll see a church. It's into the market and towards the tavern. Eventually you need to walk past the monastery. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Malchambalde hurried towards the armory. The grinder bit into an apple with a dwarf. Two hatmakers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. A dentist rushed by quickly, ignoring him. Nearby, a saltboiler sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+Eginrad looked up from his work behind a counter at Fluvand.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-Sigion grabbed a dusty book from the shelf and flipped through it. Pictures of scarab swarms and hyenas flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the giant stag beetle, or perhaps even the incubus, but that's nothing compared to the bearded devil (barbazu) we've got."
 
-The armorer sighed and continued. "The woolly rhinoceros is an herbivore, though unlike its non-woolly cousin it grazes for food rather than browsing on larger plants. The woolly rhino is legendary for its foul temper, and its size and huge horn give it a ferocious bravery. Any threat (real or perceived) to the rhino or its herd is met with loud bellows and the stomping of feet. Often, those who unwittingly anger a woolly rhino have no time to amend the intrusion before the beast attacks. "
+"Elite warriors in Hell's legions, bearded devils—or barbazus—fight savagely in the name of their infernal lords and command mindless hordes of the damned into battle. They collect and train with their infernally forged glaives among the vaults of Hell's third layer, Erebus, but inevitably return to the first layer, Avernus, to serve at the side of the dread lord Barbatos." Eginrad explained.
 
-Malchambalde slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+The armorer sighed and continued. "Barbazus are fond of making charge attacks with their glaives, and try to maintain a 10-foot gap between themselves and their foes so they can use their signature polearms to great effect. Against a foe that has greater reach (or one able to otherwise avoid the devil's favored tactic), they drop their glaives and resort to their claws and hideous beards."
 
-Malchambalde saw a unkind woolly rhinoceros in the distance! Our hero fixed his gaze on the grisly sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-The woolly rhinoceros struck with its gore! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The woolly rhinoceros leans low, ready to strike with its might. 
+Eginrad returned to the book of monsters on the desk and pointed at the terrifying illustration. "At attention, bearded devils stand over 6 feet tall (though their squatting battle stances often make them appear shorter) and weigh upward of 200 pounds."
 
-The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
 
-He sneaked around to woolly rhinoceros's blind spot. The woolly rhinoceros struck with its gore! He jumps out of the way. 
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
 
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The shattering blow from the daring Malchambalde rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+Fluvand saw a eerie bearded devil (barbazu) in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-He pulls a antique white potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The shattering blow from he rumbled through the ground. The bearded devil (barbazu) struck with its glaive! He jumps out of the way. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! That blow seemed like it could break some bones. 
 
-Malchambalde pulls a upsdell red potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The monster was stunned by the attack. The dauntless Fluvand pulls a jungle green potion from his pack and drinks it. He is reinvigorated. 
 
-The woolly rhinoceros struck with its gore! He jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros struck with its gore! Malchambalde jumps out of the way. 
+The bearded devil (barbazu) struck with its glaive! He winces from the pain but continues fighting. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
 
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros was struck by the blow! 
+The bearded devil (barbazu) struck with its glaive! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
 
-The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The bearded devil (barbazu) struck with its glaive! The adventurer jumps out of the way. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
 
-He pulls a hot magenta potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros struck with its gore! The fierce blow from the monster narrowly misses he. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! That blow seemed like it could break some bones. The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! Although Fluvand's hit landed, bearded devil (barbazu) is mostly unphased
 
-The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros took a glancing blow. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! He landed a massive hit on bearded devil (barbazu)! 
 
-The woolly rhinoceros struck with its gore! The gutsy Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
+Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand pulls a amaranth potion from his pack and drinks it. He is reinvigorated. 
 
-The woolly rhinoceros struck with its gore! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros leans low, ready to strike with its might. 
+He sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) leans low, ready to strike with its might. 
 
-Malchambalde pulls a yellow potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+The bearded devil (barbazu) struck with its glaive! Fluvand reeled back in pain. Fluvand the guttyour hero stumbles to his knee, gasping for breath. The bearded devil (barbazu) leans low, ready to strike with its might. 
 
-The woolly rhinoceros struck with its gore! The smelly woolly rhinoceros failed to land its hit. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+He was victorious! The bearded devil (barbazu) menaced for no longer! 
 
-The woolly rhinoceros struck with its gore! The adventurer winces from the pain but continues fighting. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros struck with its gore! The valorous Malchambalde blocks the strike with his sword. 
+## <a name="chapter6"></a> Chapter 6: Lorlon and the Ice Linnorm
 
-The woolly rhinoceros struck with its gore! The evil woolly rhinoceros failed to land its hit. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! Although he's hit landed, woolly rhinoceros is mostly unphased
+Fluvand followed a dirt path into the village of Lorlon. Nearby, a bishop bit into an apple. The canon loaded a market stall with wares with a currier. Fluvand continued down the path. A bodger talked excitedly with what appeared to be a costermonger.
 
-He sneaked around to woolly rhinoceros's blind spot. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+Eventually, Fluvand arrived at the town square, where he found a wood seller. Fluvand approached him, hoping for some advice.
 
-The woolly rhinoceros leans low, ready to strike with its might. The woolly rhinoceros struck with its gore! He jumps out of the way. 
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
 
-The adventurer pulls a royal fuchsia potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! That blow seemed like it could break some bones. 
+While the chainmaker talked excitedly with what appeared to be a pattenmaker, a hurdle maker hawked fine imported goods from Sough. The man quietly reminised about the pastHe finally responded.
 
-The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
-
-The woolly rhinoceros struck with its gore! Malchambalde reeled back in pain. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
-
-The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a light gray potion from his pack and drinks it. He is reinvigorated. 
-
-The woolly rhinoceros struck with its gore! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros struck with its gore! He blocks the strike with his sword. 
-
-The woolly rhinoceros struck with its gore! The fierce blow from the monster narrowly misses Malchambalde the epicour hero. the bold Malchambalde stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros was staggered by the immense force. 
-
-He sneaked around to woolly rhinoceros's blind spot. The woolly rhinoceros struck with its gore! The scary woolly rhinoceros failed to land its hit. 
-
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. The elevated Malchambalde pulls a orange web color potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde the courageousour hero pulls a magenta process potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
-
-The woolly rhinoceros struck with its gore! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros leans low, ready to strike with its might. 
-
-Malchambalde the fire-eatingour hero sneaked around to woolly rhinoceros's blind spot. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to woolly rhinoceros's blind spot. 
-
-He was victorious! The woolly rhinoceros menaced for no longer! 
-
-## <a name="chapter17"></a> Chapter 17: Ald and the Intellect Devourer
-
-Malchambalde followed a dirt path into the village of Ald. Nearby, a crofter talked excitedly with what appeared to be a abbot. The currier hawked fine imported goods from RivinghganniÃ« with a grocer. Malchambalde continued down the path. Two jews stood by a market stall, negotiating with the master of hounds.
-
-Eventually, Malchambalde arrived at the town square, where he found a porter. The man, eying his foreboding cloak, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-Nearby, a mosaic layer talked excitedly with what appeared to be a goldsmith. The man quietly reminised about the pastHe finally responded.
-
-"Our village of Cal will gladly help you on your quest. What do you need?"
+"Our village of Burgulhawley Road will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is just a bit further down the street. Look for the large hanging sign that reads "Strai Fine Supplies". You'll find Strai, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 8 small coins. "I want that Otes gone as much as anybody."
+"Cleomeninos is past the monastery. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Tibbon gone as much as anybody."
 
-Malchambalde hurried towards the armory. While the ostler bit into an apple, a bailiff finished an apple and tossed the core aside. The oilmaker scuttled out of his way with a alewife. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. Nearby, a rugmaker threw punches. While the pilot bit into an apple, a cook threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the crag linnorm, or perhaps even the tatzlwyrm, but that's nothing compared to the intellect devourer we've got."
+"Brave you say? You may have fought the crag linnorm, or perhaps even the charda, but that's nothing compared to the ice linnorm we've got."
 
-Strai returned to the book of monsters on the desk and pointed at the terrifying illustration. "Thought by some to be invaders from another dimension or planet, the sinister intellect devourers are certainly one of the world's cruelest races. Incapable of experiencing emotions or wallowing in the sins of physical pleasure on their own, intellect devourers are forced to steal bodies in order to indulge their gluttony, lust, and cruelty. Stories tell of entire cities of these creatures deep underground, where host bodies are worn like clothes to hideous orgies and vile feasts. Lone intellect devourers often dwell in ruins or caves on the edge of a civilized region so they can make periodic forays into town to "shop" for an attractive new body."
+Cleomeninos returned to the book of monsters on the desk and pointed at the terrifying illustration. "The ice linnorm dwells amid glacial crevasses and atop wind-blasted mountain peaks—tales speak of climbers unwittingly clambering over the flanks of a particularly immense ice linnorm coiled around a mountain, only to find death at its furious fangs and claws at the summit of their goal. During the fiercest winters, ice linnorms are said to slither down to the lowlands to eat entire villages."
 
-Malchambalde slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the ice linnorm so bad?" Fluvand responded.
 
-The armorer sighed and continued. "An intellect devourer is 3 feet long and weighs about 60 pounds."
+"An ice linnorm is 90 feet long and weighs 18,000 pounds." Cleomeninos explained.
 
-"I could handle that. Tell me again, what makes the intellect devourer so bad?" Malchambalde responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a execrable intellect devourer in the distance! Our hero fixed his gaze on the eerie sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde the lion-heartedour hero sneaked around to intellect devourer's blind spot. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
-
-The adventurer pulls a green crayola potion from his pack and drinks it. He is reinvigorated. The intellect devourer leans low, ready to strike with its might. 
-
-The intellect devourer leans low, ready to strike with its might. The intellect devourer struck with its claws! Malchambalde the fearlessour hero jumps out of the way. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The intellect devourer struck with its claws! He stunbles backward, gasping for breath. Malchambalde lunged toward the intellect devourer, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Malchambalde the elevatedour hero pulls a ube potion from his pack and drinks it. He is reinvigorated. 
-
-The intellect devourer struck with its claws! Malchambalde stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses he. 
-
-The intellect devourer struck with its claws! Malchambalde the grandour hero jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer took a glancing blow. 
-
-Malchambalde the classicour hero pulls a yellow green potion from his pack and drinks it. He is reinvigorated. The intellect devourer leans low, ready to strike with its might. 
-
-The intellect devourer struck with its claws! The scary intellect devourer failed to land its hit. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! A sharp crack was heard as the strike left its mark. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was staggered by the immense force. 
-
-The intellect devourer struck with its claws! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The intellect devourer leans low, ready to strike with its might. 
-
-The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses Malchambalde. the doughty Malchambalde stumbles to his knee, gasping for breath. The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses the adventurer. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from Malchambalde surely left a impression. 
-
-The intellect devourer leans low, ready to strike with its might. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
-
-The intellect devourer struck with its claws! Malchambalde blocks the strike with his sword. The noble Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The intellect devourer struck with its claws! Malchambalde the epicour hero blocks the strike with his sword. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from the adventurer surely left a impression. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was struck by the blow! 
-
-The intellect devourer struck with its claws! The adventurer stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The intellect devourer struck with its claws! The adventurer blocks the strike with his sword. 
-
-Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a green ryb potion from his pack and drinks it. He is reinvigorated. 
-
-The adventurer was victorious! The intellect devourer menaced for no longer! 
-
-## <a name="chapter18"></a> Chapter 18: Wey-Bown and the Sea Cat
-
-Malchambalde followed a dirt path into the village of Wey-Bown. While the goatherd slept in an alleyway, a philosopher hawked fine imported goods from King Caminctingh. The piper hawked fine imported goods from Bouthortsburnt with a trapper. Malchambalde continued down the path. The belter slept in an alleyway with a ironmonger.
-
-Eventually, Malchambalde arrived at the town square, where he found a potboy. Malchambalde approached him, hoping for some advice.
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-Nearby, a shoemaker sat by the side of the road. The man quietly reminised about the past, but eventually responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. There's a small door. You'll find Philkides, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. Two shoemakers slowly carried supplies. While the diplomat bit into an apple, a theologian gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Philkides lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sea cat."
-
-The armorer sighed and continued. "The feral sea cat (sometimes referred to as the sea lion, sea tiger, or sea leopard) is among the most vicious and ubiquitous of coastal predators in tropical oceans. The upper body of a sea cat is that of a typical great cat—a lion, tiger, leopard, or cheetah—complete with a pair of clawed paws capable of rending the flesh from its prey. In place of back legs, however, the sea cat has a sleek and powerful tail that allows it to move quickly and silently through the water."
-
-"But my weapons may be too weak. Are there any other ways to defeat the sea cat?" Malchambalde asked.
-
-The armorer sighed and continued. "While only the back half of a sea cat looks fishlike, its entire body from the neck down is covered in fine scales and fins. Among individual sea cats, these scales vary greatly in color and pattern, often influenced by the primary habitat of a given specimen; the most common sea cats, have bright coloration in striped or spotted patterns. A typical sea cat is 12 feet long and weighs upward of 800 pounds."
-
-"I could handle that. Tell me again, what makes the sea cat so bad?" Malchambalde responded.
-
-The armorer sighed and continued. "Sea cats can survive in both fresh and salt water, though most live in the ocean, where they can hunt a varied and consistent supply of food. A sea cat's diet typically consists of fish, crustaceans, and aquatic mammals (including seals and otters), but the creature's overpowering predatory and territorial instincts often lead it to attack ocean birds, humanoids, and even other aquatic predators like sharks and crocodiles. Coastal fishermen in areas where sea cats are known to dwell watch vigilantly for the predators, because the beasts have learned that netted or hooked prey is easier to kill and steal from the line."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Sea cats breathe air, not water. When not hunting they can be found on coastal rocks, coral islands, or even isolated beaches sunning themselves and digesting their most recent meals. Whether hunting or protecting its territory, a sea cat generally attacks immediately upon discovering a target, even when faced with a much larger or more dangerous foe." Philkides explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"The sea cat's low intelligence and high level of ferocity make it incredibly difficult to train or domesticate, though pirates and aquatic races have been known to try, with limited success." Philkides explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Malchambalde saw a menacing sea cat in the distance! Malchambalde the undauntedour hero readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
-
-He sneaked around to sea cat's blind spot. Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The sea cat struck with its bite! The shameful sea cat failed to land its hit. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
-
-The dauntless Malchambalde sneaked around to sea cat's blind spot. The sea cat leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The sea cat struck with its bite! The nasty sea cat failed to land its hit. Malchambalde lunged toward the sea cat, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to sea cat's blind spot. The sea cat leans low, ready to strike with its might. 
-
-The sea cat struck with its bite! The fairy sea cat failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The sea cat leans low, ready to strike with its might. 
-
-The sea cat struck with its bite! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The sea cat leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The adventurer pulls a dark raspberry potion from his pack and drinks it. He is reinvigorated. The sea cat leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the sea cat, his sword ready to strike! The bigger than life Malchambalde landed a massive hit on sea cat! The sea cat struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! 
-
-He was victorious! The sea cat menaced for no longer! 
-
-## <a name="chapter19"></a> Chapter 19: Debrington Cith and the Pazuzu
-
-Malchambalde followed a dirt path into the village of Debrington Cith. While the porter finished an apple and tossed the core aside, a builder sat by the side of the road. The besom maker talked excitedly with what appeared to be a summoner with a glasspainter. Malchambalde continued down the path. Nearby, a blockcutter ran from person to person, asking if they had seen Renos.
-
-Eventually, Malchambalde arrived at the town square, where he found a scrivener. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-While the stonecarver hawked fine imported goods from Eas Paria, a pattenmaker rushed by quickly, ignoring him. The man eyed him thoughtfully, but eventually responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Nivelet is the best in town. His shop is into the market and towards the inn. Eventually you need to walk just a bit further down the street. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. While the crofter bit into an apple, a falconer slept in an alleyway. A bellmaker bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Nivelet looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Nivelet lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The pazuzu."
-
-Nivelet returned to the book of monsters on the desk and pointed at the terrifying illustration. "Pazuzu is among the oldest and most powerful of all demon lords. His Abyssal realm is located in one of that plane's greatest rifts. This vertical realm includes an immense city, at the heart of which can be found Shibaxet, Pazuzu's personal rookery and palace."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Pazuzu appears as a four-winged, 15-foot-tall fiend. He takes great delight in corrupting mortals, particularly those of a pure heart and soul, offering them any one wish in return for nothing but their innocence." Nivelet explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the pazuzu?" Malchambalde asked.
+"But my weapons may be too weak. Are there any other ways to defeat the ice linnorm?" Fluvand asked.
 
 "That's all I can tell you."
 
-Malchambalde saw a obnoxious pazuzu in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a terrifying ice linnorm in the distance! The adventurer readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The heinous ice linnorm failed to land its hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! The menacing ice linnorm failed to land its hit. the doughty Fluvand stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the lion-heartedour hero winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from Fluvand the stand tallour hero surely left a impression. 
 
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+The ice linnorm struck with its bite! The ruinous ice linnorm failed to land its hit. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! Fluvand winces from the pain but continues fighting. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
 
-The gutty Malchambalde pulls a columbia blue potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm struck with its bite! Fluvand reeled back in pain. Fluvand the classicour hero stumbles to his knee, gasping for breath. The ice linnorm struck with its bite! He stunbles backward, gasping for breath. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the mythological Fluvand. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+He pulls a old rose potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
 
-He pulls a congo pink potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+He sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the impavidour hero blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+Fluvand the classicour hero pulls a guppie green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! Fluvand blocks the strike with his sword. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm struck with its bite! Fluvand winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The eerie ice linnorm failed to land its hit. 
 
-He pulls a midnight blue potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
+The adventurer pulls a fuzzy wuzzy potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-He pulls a tractor red potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The daring Malchambalde blocks the strike with his sword. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! He jumps out of the way. 
 
-The valiant Malchambalde pulls a sand potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a chocolate traditional potion from his pack and drinks it. He is reinvigorated. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! He blocks the strike with his sword. 
 
-He pulls a alabama crimson potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the fire-eating Malchambalde. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+Fluvand the guttyour hero sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The heinous pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! Although Fluvand the elevatedour hero's hit landed, ice linnorm is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
 
-The grand Malchambalde pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The adventurer winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde the courageousour hero was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
+The ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand the gallantour hero leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
 
-The adventurer pulls a dark chestnut potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The frightful pazuzu failed to land its hit. 
+The stouthearted Fluvand sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. The classic Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The sickie pazuzu failed to land its hit. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! He jumps out of the way. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The abominable ice linnorm failed to land its hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The evil pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. The adventurer pulls a heliotrope potion from his pack and drinks it. He is reinvigorated. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm struck with its bite! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ice linnorm struck with its bite! The dauntless Fluvand jumps out of the way. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He pulls a forest green traditional potion from his pack and drinks it. He is reinvigorated. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a banana yellow potion from his pack and drinks it. He is reinvigorated. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from Fluvand surely left a impression. The monster was stunned by the attack. He pulls a medium orchid potion from his pack and drinks it. He is reinvigorated. 
 
-He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the high-flownour hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-Malchambalde the bigger than lifeour hero sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+He pulls a rose taupe potion from his pack and drinks it. He is reinvigorated. The ice linnorm struck with its bite! The frightful ice linnorm failed to land its hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the lion-heartedour hero sneaked around to ice linnorm's blind spot. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The epic Malchambalde pulls a red potion from his pack and drinks it. He is reinvigorated. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The evil pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the high-flownour hero blocks the strike with his sword. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. The gutty Fluvand pulls a cg blue potion from his pack and drinks it. He is reinvigorated. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The scandalous pazuzu failed to land its hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
 
-He pulls a carnelian potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The lurid pazuzu failed to land its hit. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The adventurer winces from the pain but continues fighting. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
+Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
+Fluvand the gallantour hero sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The adventurer blocks the strike with his sword. 
+The ice linnorm struck with its bite! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
 
-The noble Malchambalde pulls a veronica potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The epic Malchambalde pulls a bazaar potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde the high-flownour hero landed a massive hit on pazuzu! The monster was stunned by the attack. The adventurer pulls a lavender mist potion from his pack and drinks it. He is reinvigorated. 
+He sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The ice linnorm leans low, ready to strike with its might. 
 
-The undaunted Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
+Fluvand pulls a smoky black potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
 
-He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although Malchambalde's hit landed, pazuzu is mostly unphased
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde the unafraidour hero pulls a cadmium orange potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The adventurer pulls a carmine m p potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! He jumps out of the way. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde the lion-heartedour hero was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was staggered by the immense force. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! Malchambalde winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! Although he's hit landed, ice linnorm is mostly unphasedThe ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The exaggerated Malchambalde pulls a honeydew potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. The pazuzu struck with its anarchic keen unholy longsword! The undaunted Malchambalde blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+He pulls a green munsell potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the unafraidour hero jumps out of the way. 
+The valorous Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! The appalling ice linnorm failed to land its hit. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The ghastly pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! Fluvand reeled back in pain. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm struck with its bite! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ice linnorm leans low, ready to strike with its might. 
 
-The exaggerated Malchambalde sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! He landed a massive hit on ice linnorm! The ice linnorm struck with its bite! He jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! The repellent ice linnorm failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the high-flownour hero. 
+He pulls a ou crimson red potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+The ice linnorm struck with its bite! Fluvand jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the undaunted Malchambalde. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+The ice linnorm struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! Fluvand the courageousour hero stunbles backward, gasping for breath. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+The stand tall Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+The ice linnorm struck with its bite! The sickie ice linnorm failed to land its hit. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The appalling pazuzu failed to land its hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
+The ice linnorm struck with its bite! The bold Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The impavid Fluvand blocks the strike with his sword. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! Fluvand the valorousour hero jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the fearlessour hero jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. The high-flown Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
 
-Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! He jumps out of the way. Fluvand the guttyour hero stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
 
-The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. The ice linnorm struck with its bite! He jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from Fluvand rumbled through the ground. 
 
-The adventurer pulls a pale aqua potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm struck with its bite! The terrifying ice linnorm failed to land its hit. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The intrepid Fluvand jumps out of the way. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand pulls a pale blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The execrable pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
+The ice linnorm struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the ice linnorm, his sword ready to strike! Although the adventurer's hit landed, ice linnorm is mostly unphased
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the grandiose Fluvand. 
 
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The stouthearted Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although the impavid Malchambalde's hit landed, pazuzu is mostly unphased
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to ice linnorm's blind spot. 
 
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! The undaunted Fluvand blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from Fluvand the classicour hero rumbled through the ground. 
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. 
+He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! Although Fluvand the high-flownour hero's hit landed, ice linnorm is mostly unphased
 
-Malchambalde the gallantour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The valiant Malchambalde winces from the pain but continues fighting. 
+Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! The gallant Fluvand winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
 
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the lion-heartedour hero jumps out of the way. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+He was victorious! The ice linnorm menaced for no longer! 
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+## <a name="chapter7"></a> Chapter 7: Ley Pood and the Adult Green Dragon
 
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the valorous Malchambalde. 
+Fluvand followed a dirt path into the village of Ley Pood. Two poets threw punches. Two tentsmans loaded a market stall with wares. Fluvand continued down the path. Nearby, a miner slept in an alleyway.
 
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+Eventually, Fluvand arrived at the town square, where he found a sawyer. Fluvand approached him, hoping for some advice.
 
-The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fire-eating Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+A locksmith loaded a market stall with wares. The man eyed him thoughtfully, but eventually responded.
 
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
-
-The exaggerated Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde the elevatedour hero pulls a sepia potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The adventurer sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde the guttyour hero sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The terrible pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. Malchambalde the doughtyour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The smelly pazuzu failed to land its hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The unholy pazuzu failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The shocking pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde leaned on his sword to catch a moment's respite. The exaggerated Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-He pulls a fern green potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The epic Malchambalde blocks the strike with his sword. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The epic Malchambalde blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the elevatedour hero blocks the strike with his sword. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The elevated Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although Malchambalde's hit landed, pazuzu is mostly unphased
-
-The pazuzu struck with its anarchic keen unholy longsword! The bold Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The gutty Malchambalde blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. 
-
-He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The fearless Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from Malchambalde the fearlessour hero rumbled through the ground. 
-
-He pulls a dark salmon potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde the exaggeratedour hero landed a massive hit on pazuzu! 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the valiantour hero jumps out of the way. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The adventurer blocks the strike with his sword. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
-
-He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde the classicour hero was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The grand Malchambalde jumps out of the way. 
-
-Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although he's hit landed, pazuzu is mostly unphased
-
-The adventurer sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a copper red potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the doughtyour hero pulls a napier green potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! 
-
-He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde landed a massive hit on pazuzu! 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from Malchambalde surely left a impression. 
-
-He pulls a amber sae ece potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. 
-
-The adventurer pulls a dark yellow potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The fearless Malchambalde pulls a peach puff potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the impavidour hero. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The abhorrent pazuzu failed to land its hit. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The mythological Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. Malchambalde the valiantour hero stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the valiantour hero. Malchambalde the classicour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The doughty Malchambalde stunbles backward, gasping for breath. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde sneaked around to pazuzu's blind spot. 
-
-The adventurer pulls a jade potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The grandiose Malchambalde pulls a purple mountain majesty potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde the gutsyour hero pulls a nadeshiko pink potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The revolting pazuzu failed to land its hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a puce potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde pulls a blue sapphire potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The detestable pazuzu failed to land its hit. 
-
-The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The gritty Malchambalde blocks the strike with his sword. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The frightful pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The impavid Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde the inflatedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fearful pazuzu failed to land its hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
-
-He pulls a light slate gray potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. the adventurer stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-Malchambalde the doughtyour hero pulls a pistachio potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although he's hit landed, pazuzu is mostly unphased
-
-The pazuzu struck with its anarchic keen unholy longsword! The offensive pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a puce potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! The monster was stunned by the attack. The adventurer pulls a boysenberry potion from his pack and drinks it. He is reinvigorated. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the undauntedour hero. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The nasty pazuzu failed to land its hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The sickie pazuzu failed to land its hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-The adventurer pulls a orange peel potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. The adventurer leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the intrepidour hero blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The courageous Malchambalde stunbles backward, gasping for breath. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
-
-Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-He pulls a big dip o ruby potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The monster was stunned by the attack. Malchambalde pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-He pulls a tangerine potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde the boldour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
-
-Malchambalde the boldour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-He pulls a asparagus potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The repulsive pazuzu failed to land its hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde the high-flownour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The lion-hearted Malchambalde blocks the strike with his sword. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fire-eating Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The scandalous pazuzu failed to land its hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from he rumbled through the ground. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The scary pazuzu failed to land its hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The dauntless Malchambalde blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The cruel pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
-
-The daring Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The adventurer landed a massive hit on pazuzu! 
-
-The adventurer pulls a dark taupe potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
-
-He pulls a saffron potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. Malchambalde stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The grisly pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the stoutheartedour hero jumps out of the way. The doughty Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to pazuzu's blind spot. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark yellow potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a maize potion from his pack and drinks it. He is reinvigorated. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde pulls a anti flash white potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although the adventurer's hit landed, pazuzu is mostly unphased
-
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The adventurer pulls a carmine red potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a american rose potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
-
-He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a han purple potion from his pack and drinks it. He is reinvigorated. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The gritty Malchambalde blocks the strike with his sword. Malchambalde the nobleour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
-
-The stouthearted Malchambalde sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
-
-The gritty Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the bigger than life Malchambalde. 
-
-Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The dreadful pazuzu failed to land its hit. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
-
-Malchambalde the nobleour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. 
-
-The adventurer pulls a seashell potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
-
-The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The pazuzu struck with its anarchic keen unholy longsword! The abominable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! 
-
-Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
-
-The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The nasty pazuzu failed to land its hit. 
-
-Malchambalde says
-
-"That didn't seem so hard, I don't know what Nivelet was talking about."
-
-## <a name="chapter20"></a> Chapter 20: Linast and the Annis Hag
-
-Malchambalde followed a dirt path into the village of Linast. Nearby, a sailor threw punches. Two potters hawked fine imported goods from Blas oft. Malchambalde continued down the path. Two summoners slept in an alleyway.
-
-Eventually, Malchambalde arrived at the town square, where he found a buttonmaker. The man, eying his well-made boots, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-Nearby, a executioner slowly carried supplies. The man quietly reminised about the past, then finally responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+"Our village of Gool Hill will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Rodberturridericus is the best in town. His shop is down the street to the cattle barn and right. You'll see a cattle barn. It's into the market and towards the monastery. Eventually you need to walk into the market and towards the barn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Rodberturridericus Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Straitzki is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Straitzki Fine Supplies". And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Tibbon gone as much as anybody."
 
-Malchambalde hurried towards the armory. The scrivener rushed by quickly, ignoring him with a armorer. While the fool for money loaded a market stall with wares, a nailer bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Fluvand hurried towards the armory. Nearby, a parker talked excitedly with what appeared to be a combmaker. Nearby, a curate stood by a market stall, negotiating with the goatherd. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Rodberturridericus looked up from his work behind a counter at Malchambalde.
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
 
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the glabrezu, or perhaps even the kraken, but that's nothing compared to the annis hag we've got."
+Straitzki grabbed a dusty book from the shelf and flipped through it. Pictures of boilborns and lunarmas flew by. Eventually he settled on a page and started to explain.
 
-Rodberturridericus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Also known as black hags or iron hags, annis hags are the largest and most physically intimidating of their foul brood. Known for their iron-hard, wart-covered skin that varies from shades of deep blue to black and their claws like rusty blades, annis hags forgo much of the cunning and deceptiveness of their kind to revel in the more visceral evils of torture and slaughter. The typical annis hag stands just over 8 feet tall and weighs upward of 300 pounds."
+Straitzki returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster adult green dragon is terrifying for sure, but I honestly don't know much about that beast."
 
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Dwelling in dark caves, tangled hollows, and cursed ruins deep within frozen swamps or icy moors, annis hags stalk forth by night to sow fear and hunt the unwary. Although possessed of cunning minds, annis prove more decadent than most other hags, frequently indulging in their taste for living flesh and the music of pleading screams. Unlike green hags, they use their ability to assume humanoid form via alter self not to infiltrate societies but to lure victims into a false sense of security before attacking—often posing as travelers in need of aid or pilgrims seeking to share a camp."
-
-"I could handle that. Tell me again, what makes the annis hag so bad?" Malchambalde responded.
-
-"Annis hags find the flesh of children, young animals, and the pure of heart particularly pleasing, both for the tenderness of such meals and for the sorrow such murders spread. After gorging themselves, these hags delight in stripping the skin from their victims, often garbing themselves in the grisly trophies. They are also known to retain and even preserve identifiable portions of their victims (such as heads) for later use in spreading misery. An annis who eats the children of a local farmer might keep the heads (or at least the faces) handy to return to the victims' parents, for example—often in the guise of an anonymous gift. The most insidious of annis hags present these gifts in ways that implicate friends or family in the victim's death." Rodberturridericus explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the annis hag?" Malchambalde asked.
-
-"Like most hags, annis sometimes join covens of their repulsive sisters, though many prove resistant to such cooperation. They are particularly unlikely to join covens that already include other annis, though groups of related annis—typically horrible triplets—are not unknown. A typical annis coven consists of one annis leader along with two green hags or sometimes even a witch or two. Annis covens often seek to recruit additional creatures as guardians and are particularly fond of trolls and ogres for such roles." Rodberturridericus explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the annis hag?" Malchambalde asked.
-
-"That's all I can tell you."
-
-Malchambalde saw a sickie annis hag in the distance! Our hero fixed his gaze on the lousy sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! Although he's hit landed, annis hag is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
-
-He pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! The nasty annis hag failed to land its hit. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the classicour hero sneaked around to annis hag's blind spot. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a royal purple potion from his pack and drinks it. He is reinvigorated. 
-
-The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The annis hag struck with its bite! The adventurer blocks the strike with his sword. 
-
-The annis hag struck with its bite! He stunbles backward, gasping for breath. Malchambalde the dauntlessour hero leaned on his sword to catch a moment's respite. Malchambalde the impavidour hero was worn out by the combat. The annis hag leans low, ready to strike with its might. 
-
-The annis hag struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The annis hag struck with its bite! He winces from the pain but continues fighting. 
-
-The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! The ruinous annis hag failed to land its hit. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The unafraid Malchambalde was worn out by the combat. The annis hag struck with its bite! He blocks the strike with his sword. 
-
-The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! Malchambalde the stand tallour hero blocks the strike with his sword. The undaunted Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The annis hag struck with its bite! He blocks the strike with his sword. 
-
-The annis hag struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! He blocks the strike with his sword. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! That blow seemed like it could break some bones. The annis hag struck with its bite! Malchambalde the fire-eatingour hero blocks the strike with his sword. Malchambalde lunged toward the annis hag, his sword ready to strike! The annis hag took a glancing blow. 
-
-He pulls a iris potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The fire-eating Malchambalde sneaked around to annis hag's blind spot. The annis hag struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
-
-He pulls a khaki x11 light khaki potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! The lurid annis hag failed to land its hit. he stumbles to his knee, gasping for breath. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The bold Malchambalde pulls a blue ryb potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! He blocks the strike with his sword. 
-
-He pulls a yellow process potion from his pack and drinks it. He is reinvigorated. The annis hag leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! He jumps out of the way. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-He sneaked around to annis hag's blind spot. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! The terrifying annis hag failed to land its hit. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. The intrepid Malchambalde pulls a magenta potion from his pack and drinks it. He is reinvigorated. 
-
-The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The dauntless Malchambalde sneaked around to annis hag's blind spot. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer pulls a non photo blue potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He sneaked around to annis hag's blind spot. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! The nasty annis hag failed to land its hit. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. the impavid Malchambalde stumbles to his knee, gasping for breath. The annis hag struck with its bite! The gutty Malchambalde blocks the strike with his sword. 
-
-The annis hag struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
-
-Malchambalde the exaggeratedour hero sneaked around to annis hag's blind spot. The annis hag struck with its bite! He jumps out of the way. 
-
-The annis hag struck with its bite! The nasty annis hag failed to land its hit. The stouthearted Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The annis hag leans low, ready to strike with its might. 
-
-The annis hag struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! The dreadful annis hag failed to land its hit. Malchambalde lunged toward the annis hag, his sword ready to strike! The attack from he surely left a impression. 
-
-Malchambalde lunged toward the annis hag, his sword ready to strike! The annis hag was staggered by the immense force. The annis hag struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the annis hag, his sword ready to strike! Although he's hit landed, annis hag is mostly unphased
-
-The annis hag struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the annis hag, his sword ready to strike! He landed a massive hit on annis hag! 
-
-Malchambalde sneaked around to annis hag's blind spot. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
-
-He was victorious! The annis hag menaced for no longer! 
-
-## <a name="chapter21"></a> Chapter 21: Streen and the Sea Drake
-
-Malchambalde followed a dirt path into the village of Streen. The thimbler threw punches with a nurse. Nearby, a buffoon scuttled out of his way. Malchambalde continued down the path. Nearby, a milliner gazed at him from an open window.
-
-Eventually, Malchambalde arrived at the town square, where he found a crofter. The man, eying his strong forearms, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
-
-The vintner finished an apple and tossed the core aside with a milliner. He still looked suspiciousHe finally responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Airoclepiodorostrand is just a bit further down the street. It's just to the right. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Malchambalde hurried towards the armory. Nearby, a singer sat by the side of the road. A engraver hawked fine imported goods from Ders. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Airoclepiodorostrand looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Airoclepiodorostrand lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sea drake."
-
-Airoclepiodorostrand returned to the book of monsters on the desk and pointed at the terrifying illustration. "While obviously the product of draconic inbreeding, the heritage of sea drakes is less clear than that of other drakes. Among the strongest of the drakes, sea drakes still lack the mental acuity of their true dragon forebears, though they remain as brutally cunning as other drakes. Although amphibious, sea drakes spend the majority of their time in shallow coastal waters."
-
-Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Sea drakes are up to 14 feet long from their noses to the tips of their powerful tails. They weigh 2,000 pounds." Airoclepiodorostrand explained.
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-Airoclepiodorostrand returned to the book of monsters on the desk and pointed at the terrifying illustration. "The most solitary of all drakes, sea drakes prefer to hunt alone. Occasionally, however, they band together in packs to hunt larger prey. Such rampages can be a significant danger to coastal shipping."
-
-Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
-
-Malchambalde saw a scary sea drake in the distance! Malchambalde the grandioseour hero readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
-
-Malchambalde the lion-heartedour hero pulls a platinum potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! Malchambalde reeled back in pain. 
-
-The adventurer sneaked around to sea drake's blind spot. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
-
-He pulls a bright pink potion from his pack and drinks it. He is reinvigorated. The sea drake leans low, ready to strike with its might. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
-
-Malchambalde sneaked around to sea drake's blind spot. The sea drake struck with its bite! The shocking sea drake failed to land its hit. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer pulls a seal brown potion from his pack and drinks it. He is reinvigorated. 
-
-The sea drake struck with its bite! He jumps out of the way. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
-
-He pulls a ghost white potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the sea drake, his sword ready to strike! The sea drake took a glancing blow. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a green ncs potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde pulls a dandelion potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to sea drake's blind spot. The sea drake struck with its bite! Malchambalde blocks the strike with his sword. 
-
-He pulls a rajah potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! Malchambalde reeled back in pain. 
-
-Malchambalde the intrepidour hero sneaked around to sea drake's blind spot. Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a kelly green potion from his pack and drinks it. He is reinvigorated. 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. The unafraid Malchambalde sneaked around to sea drake's blind spot. 
-
-The sea drake struck with its bite! The epic Malchambalde blocks the strike with his sword. Malchambalde lunged toward the sea drake, his sword ready to strike! Although Malchambalde's hit landed, sea drake is mostly unphased
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The sea drake was struck by the blow! 
-
-Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
-
-He pulls a cinnabar potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! He jumps out of the way. 
-
-The inflated Malchambalde was victorious! The sea drake menaced for no longer! 
-
-## <a name="chapter22"></a> Chapter 22: Eweridersmiton and the Dragon Horse
-
-Malchambalde followed a dirt path into the village of Eweridersmiton. A goldsmith gazed at him from an open window. A pastrycook sat by the side of the road. Malchambalde continued down the path. The cartier scuttled out of his way with a lorimer.
-
-Eventually, Malchambalde arrived at the town square, where he found a professor. Malchambalde approached him, hoping for some advice.
-
-"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
-
-Two footpads slept in an alleyway. He still looked suspicious, but eventually responded.
-
-"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Gaylos is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Gaylos Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Malchambalde hurried towards the armory. The confectioner finished an apple and tossed the core aside with a plattner. While the begger ran from person to person, asking if they had seen Pagos, a beekeeper scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Gaylos looked up from his work behind a counter at Malchambalde.
-
-"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
-
-Gaylos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The dragon horse."
-
-The armorer sighed and continued. "Despite their name, dragon horses are not related to dragons. These noble creatures gain their name from their ability to fly through the air without wings and to create different effects with their misty breath."
-
-Malchambalde slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Dragon horses are solitary creatures, spending most of their time up among the clouds and rarely setting hoof to solid ground. A mated pair of dragon horses remains together to raise its young, but otherwise individuals prefer to be on their own. They are fierce and reclusive, but peaceful and even playful under the right circumstances. Dragon horses sometimes offer aid and assistance to decent folk in need, taking care to use their ability to know alignment to avoid accidentally providing aid to evil creatures, whom they despise." Gaylos explained.
-
-"I could handle that. Tell me again, what makes the dragon horse so bad?" Malchambalde responded.
-
-The armorer sighed and continued. "Dragon horse foals are highly prized as potential steeds, but as dragon horses are highly intelligent creatures, they cannot be trained as if they were animals. Instead, one who seeks a dragon horse mount must use diplomacy to secure the creature's aid."
-
-"I could handle that. Tell me again, what makes the dragon horse so bad?" Malchambalde responded.
-
-The armorer sighed and continued. "Peaceful creatures by nature, dragon horses prefer to avoid combat by flying away. When they are forced to fight (often in response to an evil creature's mayhem), they attempt to deal nonlethal damage to all but evil-aligned foes, leaving any unconscious opponents unharmed. Those who have chosen evil ways may sometimes receive the same mercy, in the hope that it helps them see the light, but innately evil foes are dispatched as quickly and cleanly as possible."
-
-Malchambalde slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Fluvand slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Malchambalde saw a shocking dragon horse in the distance! Our hero fixed his gaze on the ungodly sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+Fluvand saw a ghastly adult green dragon in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
 
-The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The ungodly dragon horse failed to land its hit. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The dragon horse struck with its hooves! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The dragon horse struck with its hooves! He jumps out of the way. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The adult green dragon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was struck by the blow! 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! Although Malchambalde's hit landed, dragon horse is mostly unphasedThe monster was stunned by the attack. He sneaked around to dragon horse's blind spot. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The adventurer sneaked around to dragon horse's blind spot. Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The adventurer sneaked around to adult green dragon's blind spot. The adult green dragon struck with its bite! Fluvand reeled back in pain. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was staggered by the immense force. The dragon horse struck with its hooves! He stunbles backward, gasping for breath. Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. 
+The adult green dragon struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a pale cornflower blue potion from his pack and drinks it. He is reinvigorated. 
+The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! He blocks the strike with his sword. 
 
-The dragon horse struck with its hooves! The offensive dragon horse failed to land its hit. The exhilarating combat made the hours seem like seconds. The dragon horse struck with its hooves! The adventurer winces from the pain but continues fighting. 
+The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses the valorous Fluvand. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Malchambalde sneaked around to dragon horse's blind spot. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. The adventurer pulls a medium violet red potion from his pack and drinks it. He is reinvigorated. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The dragon horse struck with its hooves! The fierce blow from the monster narrowly misses Malchambalde the grandioseour hero. Malchambalde lunged toward the dragon horse, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+The adult green dragon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The revolting dragon horse failed to land its hit. 
+The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! He winces from the pain but continues fighting. 
 
-He pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. The dragon horse leans low, ready to strike with its might. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The fierce blow from the monster narrowly misses the adventurer. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon took a glancing blow. The adult green dragon struck with its bite! He jumps out of the way. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The dragon horse leans low, ready to strike with its might. Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from Fluvand the valiantour hero rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-The dragon horse struck with its hooves! The adventurer jumps out of the way. Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was struck by the blow! 
+He sneaked around to adult green dragon's blind spot. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
 
-The dragon horse leans low, ready to strike with its might. Malchambalde lunged toward the dragon horse, his sword ready to strike! Although he's hit landed, dragon horse is mostly unphased
+The gutsy Fluvand sneaked around to adult green dragon's blind spot. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The attack from he surely left a impression. The dragon horse struck with its hooves! The disgusting dragon horse failed to land its hit. Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was struck by the blow! 
+He sneaked around to adult green dragon's blind spot. Fluvand lunged toward the adult green dragon, his sword ready to strike! Fluvand the exaggeratedour hero landed a massive hit on adult green dragon! 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was staggered by the immense force. The monster was stunned by the attack. Malchambalde the courageousour hero sneaked around to dragon horse's blind spot. 
+The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses the doughty Fluvand. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-Malchambalde the grittyour hero pulls a light thulian pink potion from his pack and drinks it. He is reinvigorated. The dragon horse struck with its hooves! The abhorrent dragon horse failed to land its hit. 
+The adult green dragon struck with its bite! The hideous adult green dragon failed to land its hit. Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Fluvand lunged toward the adult green dragon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
 
-Malchambalde says
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The attack from he surely left a impression. The adult green dragon struck with its bite! The bigger than life Fluvand winces from the pain but continues fighting. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was struck by the blow! 
 
-"That didn't seem so hard, I don't know what Gaylos was talking about."
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The adult green dragon struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium spring green potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+
+The adventurer sneaked around to adult green dragon's blind spot. The adult green dragon leans low, ready to strike with its might. 
+
+He pulls a canary yellow potion from his pack and drinks it. He is reinvigorated. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valiantour hero. 
+
+The adult green dragon leans low, ready to strike with its might. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+
+He pulls a navy blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+
+Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adventurer landed a massive hit on adult green dragon! 
+
+He pulls a orange peel potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+
+The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valorousour hero. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Straitzki was talking about."
+
+## <a name="chapter8"></a> Chapter 8: Tufne and the Ice Troll
+
+Fluvand followed a dirt path into the village of Tufne. While the maid slept in an alleyway, a confectioner hawked fine imported goods from Bandstbort Road. While the merchant taylor rushed by quickly, ignoring him, a horner loaded a market stall with wares. Fluvand continued down the path. Two jailers slept in an alleyway.
+
+Eventually, Fluvand arrived at the town square, where he found a stonecutter. The man, eying his impressive armor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a pursuivant talked excitedly with what appeared to be a camp follower. He still looked suspicious, then finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is into the market and towards the barn. Eventually you need to walk into the market and towards the church. Eventually you need to walk into the market and towards the stables. Eventually you need to walk past the monastery. It's just to the left. You'll find Bion, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. The scout bit into an apple with a lacemaker. Nearby, a saltboiler hawked fine imported goods from Grebderborow. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Bion lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice troll."
+
+The armorer sighed and continued. "Ice trolls are somewhat smaller than normal trolls, but they possess greater intelligence and cunning and are just as voraciously hungry. They display the typical hunched posture of trolls, combined with long arms tipped with sharp claws and the distinctive troll underbite. Like normal trolls, ice trolls possess amazing regenerative powers that enable them to recover from almost any wound. Unlike most trolls, ice trolls often use weapons in battle, but in the heat of combat, they often cast aside weapons in favor of their rending claws. An ice troll stands about 10 feet tall and weighs up to 900 pounds."
+
+"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+
+"Because of their greater intellects, ice trolls sometimes work as mercenaries, and often serve as soldiers in monstrous armies. They frequently ally with frost giants, and may even be found among northern barbarian tribes, as long as they are well fed and well paid." Bion explained.
+
+Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+The armorer sighed and continued. "Ice trolls enjoy the taste of human flesh, and those not working with humans frequently set traps near civilized areas to catch their favorite prey. They will also raid isolated settlements for food, often bringing captured humans back to their icy lairs, where the unfortunate victims are caged and fattened up before finally being devoured by the voracious trolls."
+
+"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+
+The armorer sighed and continued. "In combat, ice trolls are more cautious than normal trolls. They do not normally rush headlong into battle, instead focusing on weaker foes or those bearing fire. They do not hesitate to attack opponents armed with fire, but work together to defeat such enemies before they can bring their dangerous weapons to bear."
+
+"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+
+Bion returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice troll society is more patriarchal than normal troll society, and while males may form gangs to hunt or raid, most ice trolls live in small family groups comprised of a male, a female, and their offspring."
+
+Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a appalling ice troll in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand the inflatedour hero sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. 
+
+Fluvand the fire-eatingour hero pulls a redwood potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll took a glancing blow. 
+
+Fluvand sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! He blocks the strike with his sword. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The fearless Fluvand sneaked around to ice troll's blind spot. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll struck with its battleaxe! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice troll leans low, ready to strike with its might. 
+
+He pulls a heart gold potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll took a glancing blow. 
+
+Fluvand the unafraidour hero sneaked around to ice troll's blind spot. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. The gutsy Fluvand sneaked around to ice troll's blind spot. 
+
+The ice troll leans low, ready to strike with its might. The ice troll struck with its battleaxe! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll struck with its battleaxe! The ungodly ice troll failed to land its hit. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The attack from he surely left a impression. The ice troll struck with its battleaxe! The fairy ice troll failed to land its hit. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll struck with its battleaxe! The detestable ice troll failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The ice troll struck with its battleaxe! He winces from the pain but continues fighting. 
+
+Fluvand sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! The scandalous ice troll failed to land its hit. 
+
+The ice troll struck with its battleaxe! The adventurer blocks the strike with his sword. Fluvand lunged toward the ice troll, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Fluvand the grittyour hero pulls a straw potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+He pulls a aquamarine potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll was struck by the blow! The monster was stunned by the attack. Fluvand the guttyour hero sneaked around to ice troll's blind spot. 
+
+He was victorious! The ice troll menaced for no longer! 
+
+## <a name="chapter9"></a> Chapter 9: Ham and the Ghost
+
+Fluvand followed a dirt path into the village of Ham. A hobbler loaded a market stall with wares. A architect finished an apple and tossed the core aside. Fluvand continued down the path. A peasant sat by the side of the road.
+
+Eventually, Fluvand arrived at the town square, where he found a nedeller. The man, eying his dangerous demeanor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a woodcarver eyed him suspiciously. The man eyed him thoughtfully, but eventually responded.
+
+"Our village of Ruishord's Wembelde will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is down the street to the tavern and right. You'll see a barn. It's just a bit further down the street. There's a small door. You'll find Mahus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Tibbon gone as much as anybody."
+
+Fluvand hurried towards the armory. The tinsmith loaded a market stall with wares with a beadle. Two philosophers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Mahus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ghost."
+
+The armorer sighed and continued. "When a soul is not allowed to rest due to some great injustice, either real or perceived, it sometimes comes back as a ghost. Such beings are in eternal anguish, lacking in substance and unable to set things right. Although ghosts can be any alignment, the majority cling to the living world out of a powerful sense of rage and hatred, and as a result are chaotic evil—even the ghost of a good or lawful creature can become hateful and cruel in its afterlife."
+
+Fluvand slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Mahus returned to the book of monsters on the desk and pointed at the terrifying illustration. "More than most of the monsters in this book, a ghost benefits from a strong and detailed backstory. Why did this character become a ghost? What are the legends surrounding the ghost? An encounter with a ghost should never happen completely out of the blue—there are plenty of other incorporeal undead like wraiths and spectres to fill that role. A proper encounter with a ghost should be a climactic scene after a lengthy period of tension building with lesser minions or manifestations of the undead spirit. The sample ghost above is that of a human princess who was murdered by an unfaithful lover—after she confronted him, he murdered her by wrapping her in chains and throwing her into the castle well, where she drowned. The ghost's abilities were selected to fit this backstory, and it shows how potent a villain you can create with a simple NPC class. Applying the template to creatures with class levels or creatures with significant racial abilities can create even more powerful ghosts."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"When a ghost is created, it retains incorporeal "copies" of any items that it particularly valued in life (provided the originals are not in another creature's possession). The equipment works normally for the ghost but passes harmlessly through material objects or creatures. A weapon of +1 or better magical enhancement, however, can harm material creatures, but any such attack deals only half as much damage (50%) unless it is a ghost touch weapon. A ghost can use shields or armor only if they have the ghost touch quality." Mahus explained.
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "The original items remain behind, just as the ghost's physical remains do. If another creature seizes the original, the incorporeal copy fades away. This loss invariably angers the ghost, who stops at nothing to return the item to its original resting place (and thus regain the item's use)."
+
+Fluvand slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a ruinous ghost in the distance! Our hero fixed his gaze on the heinous sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+ghost lunged toward Fluvand! He blocks the strike with his sword. Fluvand lunged toward the ghost, his sword ready to strike! The shattering blow from the intrepid Fluvand rumbled through the ground. 
+
+He sneaked around to ghost's blind spot. The ghost leans low, ready to strike with its might. 
+
+Fluvand lunged toward the ghost, his sword ready to strike! The ghost was struck by the blow! The monster was stunned by the attack. He pulls a zinnwaldite brown potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. ghost lunged toward Fluvand! The gruesome ghost failed to land its hit. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
+
+ghost lunged toward Fluvand! The impavid Fluvand jumps out of the way. the gutty Fluvand stumbles to his knee, gasping for breath. ghost lunged toward Fluvand! He blocks the strike with his sword. 
+
+He pulls a red munsell potion from his pack and drinks it. He is reinvigorated. ghost lunged toward Fluvand! The appalling ghost failed to land its hit. 
+
+ghost lunged toward Fluvand! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The ghost leans low, ready to strike with its might. 
+
+The ghost leans low, ready to strike with its might. ghost lunged toward Fluvand! The doughty Fluvand blocks the strike with his sword. 
+
+The ghost leans low, ready to strike with its might. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
+
+ghost lunged toward Fluvand! He jumps out of the way. The exhilarating combat made the hours seem like seconds. ghost lunged toward Fluvand! He stunbles backward, gasping for breath. 
+
+The adventurer sneaked around to ghost's blind spot. ghost lunged toward Fluvand! The fearful ghost failed to land its hit. 
+
+He sneaked around to ghost's blind spot. The ghost leans low, ready to strike with its might. 
+
+Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ghost, his sword ready to strike! He landed a massive hit on ghost! 
+
+ghost lunged toward Fluvand! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghost leans low, ready to strike with its might. 
+
+Fluvand the intrepidour hero sneaked around to ghost's blind spot. ghost lunged toward Fluvand! Fluvand the bigger than lifeour hero stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the ghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
+
+Fluvand the lion-heartedour hero pulls a royal yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ghost, his sword ready to strike! The attack from the gutty Fluvand surely left a impression. 
+
+He pulls a medium tuscan red potion from his pack and drinks it. He is reinvigorated. ghost lunged toward Fluvand! The fierce blow from the monster narrowly misses he. 
+
+ghost lunged toward Fluvand! He winces from the pain but continues fighting. Fluvand lunged toward the ghost, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to ghost's blind spot. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
+
+Fluvand lunged toward the ghost, his sword ready to strike! The adventurer landed a massive hit on ghost! The monster was stunned by the attack. He sneaked around to ghost's blind spot. 
+
+The valiant Fluvand was victorious! The ghost menaced for no longer! 
+
+## <a name="chapter10"></a> Chapter 10: Swichlest and the Air Veela
+
+Fluvand followed a dirt path into the village of Swichlest. The silversmith finished an apple and tossed the core aside with a bowyer. A barker slowly carried supplies. Fluvand continued down the path. The curate threw punches with a halberdier.
+
+Eventually, Fluvand arrived at the town square, where he found a paperer. The man, eying his impressive armor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+
+Nearby, a poulter scuttled out of his way. The man eyed him thoughtfullyHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Xenous is past the inn. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Fluvand hurried towards the armory. The link man gazed at him from an open window with a wood seller. Two pissprophets bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Xenous looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Xenous grabbed a dusty book from the shelf and flipped through it. Pictures of glass golems and hieracosphinxs flew by. Eventually he settled on a page and started to explain.
+
+Xenous returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster air veela is terrifying for sure, but I honestly don't know much about that beast."
+
+"I could handle that. Tell me again, what makes the air veela so bad?" Fluvand responded.
+
+"That's all I can tell you."
+
+Fluvand saw a ungodly air veela in the distance! Our hero fixed his gaze on the scary sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The air veela struck with its mwk dagger! The classic Fluvand stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! He jumps out of the way. 
+
+The impavid Fluvand pulls a jungle green potion from his pack and drinks it. He is reinvigorated. The air veela struck with its mwk dagger! He stunbles backward, gasping for breath. 
+
+The air veela struck with its mwk dagger! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! He blocks the strike with his sword. 
+
+He sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+
+The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses he. Fluvand the dauntlessour hero stumbles to his knee, gasping for breath. The air veela struck with its mwk dagger! He blocks the strike with his sword. 
+
+He sneaked around to air veela's blind spot. The air veela leans low, ready to strike with its might. 
+
+Fluvand the daringour hero sneaked around to air veela's blind spot. The air veela leans low, ready to strike with its might. 
+
+The air veela leans low, ready to strike with its might. The air veela struck with its mwk dagger! He jumps out of the way. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The air veela was struck by the blow! The air veela struck with its mwk dagger! The lousy air veela failed to land its hit. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was staggered by the immense force. 
+
+The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! He jumps out of the way. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+
+The air veela struck with its mwk dagger! He stunbles backward, gasping for breath. The lion-hearted Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The air veela leans low, ready to strike with its might. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! Fluvand blocks the strike with his sword. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+
+He sneaked around to air veela's blind spot. The air veela struck with its mwk dagger! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the stoutheartedour hero sneaked around to air veela's blind spot. 
+
+The adventurer pulls a raspberry glace potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+
+The air veela leans low, ready to strike with its might. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses Fluvand. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses the valiant Fluvand. Fluvand lunged toward the air veela, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to air veela's blind spot. 
+
+Fluvand sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was staggered by the immense force. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! Fluvand reeled back in pain. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a orange web color potion from his pack and drinks it. He is reinvigorated. 
+
+The air veela struck with its mwk dagger! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! The shameful air veela failed to land its hit. 
+
+He sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+
+The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! Although Fluvand's hit landed, air veela is mostly unphased
+
+The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! The attack from he surely left a impression. 
+
+Fluvand lunged toward the air veela, his sword ready to strike! That blow seemed like it could break some bones. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was struck by the blow! 
+
+Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! The dauntless Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+
+The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses Fluvand. The exhilarating combat made the hours seem like seconds. The air veela leans low, ready to strike with its might. 
+
+He was victorious! The air veela menaced for no longer! 
+
+## <a name="chapter11"></a> Chapter 11: Clanchmondenhiria) and the Wight
+
+Fluvand followed a dirt path into the village of Clanchmondenhiria). Two drummers stood by a market stall, negotiating with the glass seller. Nearby, a archer sat by the side of the road. Fluvand continued down the path. Two millers sat by the side of the road.
+
+Eventually, Fluvand arrived at the town square, where he found a hawker. Fluvand approached him, hoping for some advice.
+
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+
+Nearby, a mailer talked excitedly with what appeared to be a ropemaker. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. Look for the large hanging sign that reads "Gerhard Fine Supplies". You'll find Gerhard, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. While the plattner bit into an apple, a constable sat by the side of the road. Nearby, a wetnurse ran from person to person, asking if they had seen Estes. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Gerhard grabbed a dusty book from the shelf and flipped through it. Pictures of adlets and seraptiss flew by. Eventually he settled on a page and started to explain.
+
+Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Wights are humanoids who rise as undead due to necromancy, a violent death, or an extremely malevolent personality. In some cases, a wight arises when an evil undead spirit permanently bonds with a corpse, often the corpse of a slain warrior. They are barely recognizable to those who knew them in life; their flesh is twisted by evil and undeath, the eyes burn with hatred, and the teeth become beast-like. In some ways, a wight bridges the gap between a ghoul and a spectre—a warped animated corpse whose touch steals living energy."
+
+Fluvand slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"As undead, wights do not need to breathe, so they are sometimes found underwater, though they are not particularly good swimmers unless they were originally swimming creatures such as aquatic elves or merfolk. Underwater wights prefer low-ceilinged caves where their limited swimming isn't as much of a liability." Gerhard explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the wight?" Fluvand asked.
+
+"The wight presented here is a typical example of its kind, but sometimes when a wight creates spawn from particularly unusual humanoids, the resulting wights are quite different in power, such as the following three variants." Gerhard explained.
+
+"I could handle that. Tell me again, what makes the wight so bad?" Fluvand responded.
+
+Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Brute Wight (CR 5): Giants that are killed by wights become hunchbacked, simple-minded undead. Brute wights are giant advanced wights, but cannot create spawn of their own."
+
+Fluvand slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Cairn Wight (CR 4): Some societies deliberately create these specialized wights to serve as guardians for barrows or other burial sites. A cairn wight is an advanced wight that fights with a weapon, typically a sword, that channels its energy drain attack and affects creatures damaged by the weapon as if they had been struck by the wight's slam attack." Gerhard explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the wight?" Fluvand asked.
+
+Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Frost Wight (CR 4): Wights created in cold environments sometimes become pale undead with blue-white eyes and ice in their hair. Frost wights have the cold subtype and their slam attacks deal 1d6 cold damage in addition to the normal effects. A creature touching a frost wight with natural weapons or unarmed strikes takes 1d6 cold damage."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a unholy wight in the distance! Our hero fixed his gaze on the mean sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The wight leans low, ready to strike with its might. Fluvand lunged toward the wight, his sword ready to strike! The slippery wight evaded Fluvand's hit. 
+
+Fluvand lunged toward the wight, his sword ready to strike! The attack from he surely left a impression. The wight struck with its slam! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the wight, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand the intrepidour hero sneaked around to wight's blind spot. Fluvand lunged toward the wight, his sword ready to strike! The wight took a glancing blow. 
+
+He sneaked around to wight's blind spot. Fluvand lunged toward the wight, his sword ready to strike! The wight was struck by the blow! 
+
+Fluvand the nobleour hero sneaked around to wight's blind spot. The wight struck with its slam! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the wight, his sword ready to strike! The attack from the exaggerated Fluvand surely left a impression. The monster was stunned by the attack. He pulls a myrtle potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand pulls a cg red potion from his pack and drinks it. He is reinvigorated. The wight leans low, ready to strike with its might. 
+
+Fluvand lunged toward the wight, his sword ready to strike! The slippery wight evaded Fluvand's hit. The monster was stunned by the attack. He pulls a bondi blue potion from his pack and drinks it. He is reinvigorated. 
+
+He was victorious! The wight menaced for no longer! 
+
+## <a name="chapter12"></a> Chapter 12: Westow and the Su
+
+Fluvand followed a dirt path into the village of Westow. While the sawyer hawked fine imported goods from Gon, a purse maker slept in an alleyway. While the trapper slept in an alleyway, a basketmaker hawked fine imported goods from Kidam. Fluvand continued down the path. A mailmaker ran from person to person, asking if they had seen VÃ©ziariht.
+
+Eventually, Fluvand arrived at the town square, where he found a tanner. The man, eying his impressive armor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the pattenmaker talked excitedly with what appeared to be a pissprophet, a archer finished an apple and tossed the core aside. The man sat in silence for a while, then finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Domederich is down the street to the tavern and right. You'll see a warehouse. It's down the street to the tavern and right. You'll see a tavern. It's past the stables. It's just to the left. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Tibbon gone as much as anybody."
+
+Fluvand hurried towards the armory. Nearby, a chandler rushed by quickly, ignoring him. Nearby, a hatmaker slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Domederich looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Domederich lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The su."
+
+Domederich returned to the book of monsters on the desk and pointed at the terrifying illustration. "Hateful and melancholic, the psychic marsupials called su can feel their minds weaken as they mature, and take out their frustration on any creatures who enter their forests."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "All su bear young. After mating, they implant each other's back-pouches with oily, tumor-like eggs which hatch over the next year into tiny, psychically gifted humanoids. These young su cling to their parents' backs, feeding on parasites and scraps. Born at the apex of their psychic abilities, baby su slowly change shape and lose their powers over their first year—by the time they reach their full predatory form, all psychic magic has vanished. These furious new adults then leave to become providers for their own whelps. A grown su is 5 feet long and 90 pounds."
+
+"But my weapons may be too weak. Are there any other ways to defeat the su?" Fluvand asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a grim su in the distance! Our hero fixed his gaze on the grisly sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The exaggerated Fluvand pulls a islamic green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+He sneaked around to su's blind spot. The su struck with its bite! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+He sneaked around to su's blind spot. The su struck with its bite! He blocks the strike with his sword. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The ghastly su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su leans low, ready to strike with its might. The su struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The awful su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+He pulls a ceil potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! Fluvand reeled back in pain. 
+
+He sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
+
+Fluvand sneaked around to su's blind spot. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! Although he's hit landed, su is mostly unphasedThe monster was stunned by the attack. He pulls a skobeloff potion from his pack and drinks it. He is reinvigorated. 
+
+The intrepid Fluvand pulls a dark sienna potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the su, his sword ready to strike! The su took a glancing blow. 
+
+The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valorousour hero. Fluvand leaned on his sword to catch a moment's respite. The valiant Fluvand was worn out by the combat. The su struck with its bite! He winces from the pain but continues fighting. 
+
+He sneaked around to su's blind spot. The su struck with its bite! Fluvand jumps out of the way. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! He jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The su struck with its bite! The mythological Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! A sharp crack was heard as the strike left its mark. The su struck with its bite! The abominable su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The attack from Fluvand the fire-eatingour hero surely left a impression. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The adventurer jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su struck with its bite! He stunbles backward, gasping for breath. the grand Fluvand stumbles to his knee, gasping for breath. The su leans low, ready to strike with its might. 
+
+The su struck with its bite! He jumps out of the way. the gutty Fluvand stumbles to his knee, gasping for breath. The su struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the su, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand the high-flownour hero sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! Fluvand the gallantour hero jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! 
+
+The su leans low, ready to strike with its might. The su struck with its bite! The hideous su failed to land its hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! He landed a massive hit on su! The su struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+He pulls a carolina blue potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
+
+He sneaked around to su's blind spot. The su struck with its bite! The menacing su failed to land its hit. 
+
+The su leans low, ready to strike with its might. The su struck with its bite! Fluvand the undauntedour hero winces from the pain but continues fighting. 
+
+He pulls a cornsilk potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
+
+The su struck with its bite! The awful su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! The su took a glancing blow. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The adventurer sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
+
+The epic Fluvand sneaked around to su's blind spot. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su struck with its bite! The adventurer blocks the strike with his sword. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand the doughtyour hero sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
+
+Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! The su struck with its bite! The fire-eating Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the gutsyour hero. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
+
+The su struck with its bite! He blocks the strike with his sword. Fluvand the elevatedour hero stumbles to his knee, gasping for breath. The su struck with its bite! The awful su failed to land its hit. 
+
+He pulls a magenta dye potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! Fluvand reeled back in pain. 
+
+He pulls a green yellow potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
+
+The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was staggered by the immense force. 
+
+The su struck with its bite! The gutty Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The su struck with its bite! He blocks the strike with his sword. 
+
+The su struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
+
+The lion-hearted Fluvand pulls a pale green potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
+
+The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the boldour hero. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The su struck with its bite! The fire-eating Fluvand blocks the strike with his sword. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! Although he's hit landed, su is mostly unphased
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+He pulls a msu green potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
+
+The su struck with its bite! The undaunted Fluvand winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The su struck with its bite! He jumps out of the way. 
+
+The su struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su leans low, ready to strike with its might. The su struck with its bite! He blocks the strike with his sword. 
+
+The su struck with its bite! The beastly su failed to land its hit. The bigger than life Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The su leans low, ready to strike with its might. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. He pulls a up forest green potion from his pack and drinks it. He is reinvigorated. 
+
+The su leans low, ready to strike with its might. The su struck with its bite! Fluvand reeled back in pain. 
+
+He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! He jumps out of the way. 
+
+Fluvand lunged toward the su, his sword ready to strike! Although the mythological Fluvand's hit landed, su is mostly unphasedThe monster was stunned by the attack. The lion-hearted Fluvand pulls a pastel red potion from his pack and drinks it. He is reinvigorated. 
+
+The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su leans low, ready to strike with its might. The su struck with its bite! Fluvand reeled back in pain. 
+
+The su struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
+
+The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the stand tallour hero. Fluvand the classicour hero stumbles to his knee, gasping for breath. The su struck with its bite! The loathsome su failed to land its hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! A sharp crack was heard as the strike left its mark. The su struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
+
+Fluvand lunged toward the su, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a light khaki potion from his pack and drinks it. He is reinvigorated. 
+
+The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! 
+
+The adventurer sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Domederich was talking about."
+
+## <a name="chapter13"></a> Chapter 13: Pary Lan Parkingh and the Lyrakien
+
+Fluvand followed a dirt path into the village of Pary Lan Parkingh. A pardoner scuttled out of his way. Nearby, a innkeeper scuttled out of his way. Fluvand continued down the path. Two hobblers slowly carried supplies.
+
+Eventually, Fluvand arrived at the town square, where he found a astronomer. The man, eying his dangerous demeanor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+Nearby, a peasant sat by the side of the road. He still looked suspicious, but eventually responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Chard is the best in town. His shop is just a bit further down the street. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. Nearby, a seamstress hawked fine imported goods from Cary. Nearby, a seamstress stood by a market stall, negotiating with the knifesmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the rokurokubi, or perhaps even the wererat (human form), but that's nothing compared to the lyrakien we've got."
+
+Chard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Lyrakien are divine musicians and messengers, mainly in the employ of deities of travel and natural wonders. They love to explore and visit beautiful places, especially locations with excellent views of rainbows, moonlight, and the stars. Whimsical and joyous, they love contests of song, dance, and knowledge, and keep journeys happy by distracting their companions from weary feet and stale food. Mortals who please them with excellent tales and new songs may be rewarded with elaborate maps, forgotten shortcuts, or rambling directions to hidden locations that hold lost magic."
+
+"But my weapons may be too weak. Are there any other ways to defeat the lyrakien?" Fluvand asked.
+
+Chard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Lyrakien are light-hearted creatures, but they are very protective of breathtaking natural locations. Often called "glistenwings" by gnomes and halflings, lyrakien are frequently mistaken for fey—while they are generally friendly with true fey, their origin is the plane of Elysium. Like other azatas, they grow restless if they stay in one place too long. A chaotic good 7th-level spellcaster can gain a lyrakien as a familiar if she has the Improved Familiar feat."
+
+Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a terrible lyrakien in the distance! Our hero fixed his gaze on the detestable sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+He pulls a royal blue web potion from his pack and drinks it. He is reinvigorated. The lyrakien struck with its slam! The adventurer blocks the strike with his sword. 
+
+The lyrakien struck with its slam! The adventurer blocks the strike with his sword. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
+
+Fluvand lunged toward the lyrakien, his sword ready to strike! The lyrakien was staggered by the immense force. The monster was stunned by the attack. He pulls a fulvous potion from his pack and drinks it. He is reinvigorated. 
+
+The lyrakien leans low, ready to strike with its might. The lyrakien struck with its slam! The adventurer stunbles backward, gasping for breath. 
+
+The lyrakien struck with its slam! The fierce blow from the monster narrowly misses Fluvand. The bold Fluvand leaned on his sword to catch a moment's respite. The grand Fluvand was worn out by the combat. The lyrakien struck with its slam! Fluvand the dauntlessour hero stunbles backward, gasping for breath. 
+
+The lyrakien struck with its slam! Fluvand the doughtyour hero blocks the strike with his sword. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
+
+Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. The lyrakien struck with its slam! Fluvand the grittyour hero stunbles backward, gasping for breath. Fluvand lunged toward the lyrakien, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand the gallantour hero pulls a venetian red potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
+
+The lyrakien leans low, ready to strike with its might. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
+
+He was victorious! The lyrakien menaced for no longer! 
+
+## <a name="chapter14"></a> Chapter 14: Ereesterder and the Caller In Darkness
+
+Fluvand followed a dirt path into the village of Ereesterder. A crossbowman rushed by quickly, ignoring him. The ferryman finished an apple and tossed the core aside with a poet. Fluvand continued down the path. While the tentsman bit into an apple, a hurdle maker loaded a market stall with wares.
+
+Eventually, Fluvand arrived at the town square, where he found a executioner. Fluvand approached him, hoping for some advice.
+
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+
+Nearby, a alewife sat by the side of the road. He still looked suspicious, then finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Huggithmir is into the market and towards the church. Eventually you need to walk past the stables. It's just to the left. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. While the engineer gazed at him from an open window, a roper talked excitedly with what appeared to be a cutler. A emperor scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Huggithmir looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the astral deva, or perhaps even the warmonger wasp, but that's nothing compared to the caller in darkness we've got."
+
+"A caller in darkness grows from the psychic remains of a creature with psychic sensitivity that died a violent death, its restless spirit compelled to visit upon others the horrors that it suffered before dying. As more and more minds are absorbed, it grows, and the original spirit is lost in the swirling mass of hatred, confusion, and despair." Huggithmir explained.
+
+"I could handle that. Tell me again, what makes the caller in darkness so bad?" Fluvand responded.
+
+"That's all I can tell you."
+
+Fluvand saw a detestable caller in darkness in the distance! Our hero fixed his gaze on the frightful sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the caller in darkness, his sword ready to strike! The shattering blow from he rumbled through the ground. The caller in darkness struck with its incorporeal touch! He stunbles backward, gasping for breath. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! 
+
+Fluvand lunged toward the caller in darkness, his sword ready to strike! That blow seemed like it could break some bones. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+
+The caller in darkness leans low, ready to strike with its might. The caller in darkness struck with its incorporeal touch! The awful caller in darkness failed to land its hit. 
+
+The caller in darkness leans low, ready to strike with its might. Fluvand lunged toward the caller in darkness, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+He sneaked around to caller in darkness's blind spot. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. 
+
+Fluvand sneaked around to caller in darkness's blind spot. The caller in darkness leans low, ready to strike with its might. 
+
+Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+
+He pulls a vermilion cinnabar potion from his pack and drinks it. He is reinvigorated. The caller in darkness leans low, ready to strike with its might. 
+
+The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The caller in darkness struck with its incorporeal touch! Fluvand blocks the strike with his sword. 
+
+The caller in darkness leans low, ready to strike with its might. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was staggered by the immense force. 
+
+He pulls a resolution blue potion from his pack and drinks it. He is reinvigorated. The caller in darkness struck with its incorporeal touch! He blocks the strike with his sword. 
+
+Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the caller in darkness, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He pulls a light yellow potion from his pack and drinks it. He is reinvigorated. The caller in darkness leans low, ready to strike with its might. 
+
+Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! 
+
+The caller in darkness leans low, ready to strike with its might. The caller in darkness struck with its incorporeal touch! He jumps out of the way. 
+
+The caller in darkness struck with its incorporeal touch! The adventurer jumps out of the way. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+
+Fluvand was victorious! The caller in darkness menaced for no longer! 
+
+## <a name="chapter15"></a> Chapter 15: Champley and the Dagon
+
+Fluvand followed a dirt path into the village of Champley. The stonecarver rushed by quickly, ignoring him with a troubadour. Nearby, a chancellor gazed at him from an open window. Fluvand continued down the path. A mosaic layer rushed by quickly, ignoring him.
+
+Eventually, Fluvand arrived at the town square, where he found a shipchandler. The man, eying his unusual weapons, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a bellfounder scuttled out of his way. The man eyed him thoughtfullyHe finally responded.
+
+"Our village of Gon will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. There's a small door. You'll find Anke, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. A procurator stood by a market stall, negotiating with the ditcher. Two confectioners sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the crucidaemon, or perhaps even the hollow serpent, but that's nothing compared to the dagon we've got."
+
+The armorer sighed and continued. "Dagon is the demon lord of deformity, the sea, and sea monsters. He rules an Abyssal realm that consists of an immense ocean dotted above with strange and horrible islands and marked below with countless deep sea trenches and sunken cities. Dagon is 35 feet long, with the lower body of an eel, a horrific visage that evokes images of deep sea predators, and four long tentacles in place of arms."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "Dagon almost always uses Power Attack in combat, taking a –9 penalty on all attack rolls but gaining a +18 bonus on damage rolls. He is never encountered without a large number of aquatic demons or monsters at his side that he uses as pawns in battles, often simply commanding them to attack foes while he hangs back in the shadows and observes the fight with his cold eyes. Immense sharks, hezrous, carnivorous whales, krakens, and shoggoths are the demon lord's favored minions."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+Anke returned to the book of monsters on the desk and pointed at the terrifying illustration. "Dagon began life not as a demon lord but as a powerful qlippoth—the reasons for his transformation into a demon lord are not understood by mortal scholars, but there is certainly no love lost between Dagon and the qlippoth race."
+
+"But my weapons may be too weak. Are there any other ways to defeat the dagon?" Fluvand asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a awful dagon in the distance! Our hero fixed his gaze on the lousy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a boston university red potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+
+The adventurer sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He pulls a folly potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+The dagon struck with its bite! The fearful dagon failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+The inflated Fluvand pulls a burlywood potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The sickie dagon failed to land its hit. 
+
+The dagon struck with its bite! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The dagon struck with its bite! Fluvand the stoutheartedour hero jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand the guttyour hero rumbled through the ground. 
+
+He pulls a linen potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the mythologicalour hero. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The fire-eating Fluvand sneaked around to dagon's blind spot. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand the gutsyour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The adventurer stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The abominable dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a electric yellow potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the fire-eatingour hero. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The hideous dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The shocking dagon failed to land its hit. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! He blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a dark cyan potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand the bigger than lifeour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! Fluvand landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the classicour hero's hit landed, dagon is mostly unphasedThe monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The lousy dagon failed to land its hit. 
+
+The dagon struck with its bite! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+
+Fluvand the grittyour hero pulls a cardinal potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The noble Fluvand jumps out of the way. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The unkind dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The dagon struck with its bite! The fierce blow from the monster narrowly misses the courageous Fluvand. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the impavidour hero. Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! Fluvand jumps out of the way. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
+
+The adventurer pulls a laser lemon potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The shocking dagon failed to land its hit. 
+
+The dagon struck with its bite! The repulsive dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The mythological Fluvand stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand rumbled through the ground. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand leaned on his sword to catch a moment's respite. Fluvand the stoutheartedour hero was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He pulls a rose ebony potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The daring Fluvand pulls a violet web potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+
+The dagon struck with its bite! The shameful dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The grandiose Fluvand winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+He pulls a purple x11 potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
+
+He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The hideous dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
+
+Fluvand the stand tallour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer jumps out of the way. 
+
+Fluvand the exaggeratedour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The terrible dagon failed to land its hit. The dauntless Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! The terrible dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Fluvand the undauntedour hero was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The courageous Fluvand jumps out of the way. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dagon struck with its bite! The lion-hearted Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand the guttyour hero pulls a royal blue traditional potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the mythologicalour hero's hit landed, dagon is mostly unphasedThe dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The dagon struck with its bite! The epic Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a black leather jacket potion from his pack and drinks it. He is reinvigorated. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the grittyour hero. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The gutty Fluvand blocks the strike with his sword. 
+
+The dagon struck with its bite! The adventurer jumps out of the way. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The intrepid Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The cruel dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! Fluvand the fire-eatingour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+
+He pulls a light pastel purple potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
+
+He pulls a violet web potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The dauntless Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from the gritty Fluvand rumbled through the ground. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the intrepidour hero pulls a copper rose potion from his pack and drinks it. He is reinvigorated. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses the unafraid Fluvand. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand the grandioseour hero jumps out of the way. 
+
+The noble Fluvand pulls a sea blue potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The awful dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The beastly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The dagon struck with its bite! The fairy dagon failed to land its hit. 
+
+He pulls a blue gray potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The gallant Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The intrepid Fluvand pulls a daffodil potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand the gallantour hero stumbles to his knee, gasping for breath. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
+
+The adventurer sneaked around to dagon's blind spot. The dagon struck with its bite! The unholy dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a bottle green potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a indigo potion from his pack and drinks it. He is reinvigorated. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+
+Fluvand pulls a medium slate blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The attack from the impavid Fluvand surely left a impression. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
+
+The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! Fluvand reeled back in pain. the intrepid Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The stouthearted Fluvand sneaked around to dagon's blind spot. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The attack from Fluvand the stand tallour hero surely left a impression. The dagon struck with its bite! The mythological Fluvand winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. The monster was stunned by the attack. The valorous Fluvand sneaked around to dagon's blind spot. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The beastly dagon failed to land its hit. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The grisly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
+
+He pulls a medium champagne potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+He pulls a spring bud potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The adventurer pulls a pale green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He pulls a cornsilk potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! Fluvand the grandioseour hero blocks the strike with his sword. Fluvand the epicour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+He pulls a guppie green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The adventurer pulls a red violet potion from his pack and drinks it. He is reinvigorated. 
+
+The dagon struck with its bite! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He jumps out of the way. 
+
+The impavid Fluvand pulls a unmellow yellow potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The unholy dagon failed to land its hit. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the dagon, his sword ready to strike! Although the adventurer's hit landed, dagon is mostly unphased
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The dagon struck with its bite! Fluvand the boldour hero winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
+
+The dagon struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand the stoutheartedour hero rumbled through the ground. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The attack from the adventurer surely left a impression. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The ghastly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dagon struck with its bite! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! 
+
+The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The dagon struck with its bite! The hideous dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+
+He pulls a deep fuchsia potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The terrifying dagon failed to land its hit. 
+
+The dagon struck with its bite! The bigger than life Fluvand winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He blocks the strike with his sword. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The grisly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The smelly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+He sneaked around to dagon's blind spot. The dagon struck with its bite! He blocks the strike with his sword. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The bold Fluvand jumps out of the way. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+
+The dagon struck with its bite! The disagreeable dagon failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The eerie dagon failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The monster was stunned by the attack. The adventurer sneaked around to dagon's blind spot. 
+
+The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+He pulls a sandy brown potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He blocks the strike with his sword. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The mean dagon failed to land its hit. 
+
+The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the stand tallour hero. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+He pulls a aqua potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+He sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
+
+The dagon struck with its bite! The lousy dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! The lurid dagon failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+Fluvand the daringour hero sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand the inflatedour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+
+Fluvand pulls a red devil potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand stunbles backward, gasping for breath. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
+
+Fluvand the classicour hero pulls a old lace potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The loathsome dagon failed to land its hit. 
+
+He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! Fluvand landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
+
+The dagon struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
+
+The dagon struck with its bite! The elevated Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+
+The dagon struck with its bite! The scary dagon failed to land its hit. he stumbles to his knee, gasping for breath. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand jumps out of the way. 
+
+The lion-hearted Fluvand pulls a black olive potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer jumps out of the way. 
+
+The impavid Fluvand sneaked around to dagon's blind spot. The dagon struck with its bite! The abominable dagon failed to land its hit. 
+
+He pulls a timberwolf potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+
+Fluvand the grandour hero pulls a fluorescent orange potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the boldour hero's hit landed, dagon is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the boldour hero's hit landed, dagon is mostly unphased
+
+The dagon struck with its bite! Fluvand jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The dagon struck with its bite! He winces from the pain but continues fighting. 
+
+He pulls a dark raspberry potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The valiant Fluvand landed a massive hit on dagon! 
+
+The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+
+The adventurer pulls a medium red violet potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The eerie dagon failed to land its hit. 
+
+The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand pulls a davy s grey potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He blocks the strike with his sword. 
+
+The dagon struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He jumps out of the way. 
+
+The dagon struck with its bite! The terrible dagon failed to land its hit. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The cruel dagon failed to land its hit. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a shadow potion from his pack and drinks it. He is reinvigorated. 
+
+The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses the fire-eating Fluvand. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The monster was stunned by the attack. He pulls a medium lavender magenta potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
+
+The dagon struck with its bite! Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The attack from Fluvand surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+
+The adventurer was victorious! The dagon menaced for no longer! 
+
+## <a name="chapter16"></a> Chapter 16: Kend Hullestoneton and the Gearghost
+
+Fluvand followed a dirt path into the village of Kend Hullestoneton. Two potters sat by the side of the road. Two solicitors talked excitedly with what appeared to be a baker. Fluvand continued down the path. While the clockmaker bit into an apple, a bodger sat by the side of the road.
+
+Eventually, Fluvand arrived at the town square, where he found a cutler. The man, eying his dangerous demeanor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the ropemaker slept in an alleyway, a ferryman hawked fine imported goods from Mard. The man sat in silence for a while, then finally responded.
+
+"Our village of Blostch will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Vides is the best in town. His shop is just a bit further down the street. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. While the clockmaker scuttled out of his way, a plasterer bit into an apple. The clothier talked excitedly with what appeared to be a pewterer with a chaplain. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Vides looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Vides grabbed a dusty book from the shelf and flipped through it. Pictures of siyokoys and tripurasuras flew by. Eventually he settled on a page and started to explain.
+
+Vides returned to the book of monsters on the desk and pointed at the terrifying illustration. "Formed from the unquiet soul of a thief wrenched from life by a wicked trap, a gearghost delights in rigging up the same threats and tortures to which it succumbed. Eager to witness the deaths of others, the gearghost prowls the place of its death, constantly maintaining and resetting any traps in that area as it waits for victims to fall into its clutches. A gearghost also has the ability to create and set new traps, and as such its lair is usually choked with perilous new snares, spikes, and pits. A gearghost only keeps treasure as a lure for hapless adventurers, often using such treasure as the trigger for one of its devious creations."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a mean gearghost in the distance! Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the gearghost, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
+
+The gearghost struck with its slams! The adventurer jumps out of the way. Fluvand the elevatedour hero leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The gearghost leans low, ready to strike with its might. 
+
+Fluvand the mythologicalour hero pulls a trolley grey potion from his pack and drinks it. He is reinvigorated. The gearghost struck with its slams! Fluvand reeled back in pain. 
+
+He sneaked around to gearghost's blind spot. The gearghost leans low, ready to strike with its might. 
+
+He pulls a pale silver potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the gearghost, his sword ready to strike! Although Fluvand the valorousour hero's hit landed, gearghost is mostly unphased
+
+He sneaked around to gearghost's blind spot. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
+
+Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to gearghost's blind spot. 
+
+Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to gearghost's blind spot. 
+
+Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. The adventurer sneaked around to gearghost's blind spot. 
+
+Fluvand lunged toward the gearghost, his sword ready to strike! The attack from he surely left a impression. The gearghost struck with its slams! Fluvand reeled back in pain. Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The gearghost struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
+
+The gearghost struck with its slams! Fluvand jumps out of the way. Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The gearghost leans low, ready to strike with its might. The gearghost struck with its slams! He jumps out of the way. 
+
+The adventurer pulls a sky blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Vides was talking about."
+
+## <a name="chapter17"></a> Chapter 17: Worton and the Clockwork Golem
+
+Fluvand followed a dirt path into the village of Worton. Nearby, a ship's captain slowly carried supplies. Two pewterers gazed at him from an open window. Fluvand continued down the path. A cartwright eyed him suspiciously.
+
+Eventually, Fluvand arrived at the town square, where he found a cowherd. Fluvand approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the carter bit into an apple, a pattenmaker scuttled out of his way. He still looked suspiciousHe finally responded.
+
+"Our village of Lanort will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. Look for the large hanging sign that reads "Dard Fine Supplies". You'll find Dard, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. The apothecary hawked fine imported goods from Ball with a architect. The herald threw punches with a taverner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Dard looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Dard lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The clockwork golem."
+
+Dard returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster clockwork golem is terrifying for sure, but I honestly don't know much about that beast."
+
+"I could handle that. Tell me again, what makes the clockwork golem so bad?" Fluvand responded.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a gruesome clockwork golem in the distance! Our hero fixed his gaze on the ungodly sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand the classicour hero pulls a cyan process potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+He sneaked around to clockwork golem's blind spot. The clockwork golem struck with its slams! Fluvand the guttyour hero stunbles backward, gasping for breath. 
+
+He sneaked around to clockwork golem's blind spot. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the stoutheartedour hero sneaked around to clockwork golem's blind spot. 
+
+The adventurer pulls a dark candy apple red potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The adventurer sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The clockwork golem struck with its slams! He jumps out of the way. Fluvand stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! The awful clockwork golem failed to land its hit. 
+
+The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The adventurer pulls a old lace potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The clockwork golem struck with its slams! The terrible clockwork golem failed to land its hit. The grandiose Fluvand leaned on his sword to catch a moment's respite. The grand Fluvand was worn out by the combat. The clockwork golem struck with its slams! The horrid clockwork golem failed to land its hit. 
+
+He sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
+
+He pulls a golden brown potion from his pack and drinks it. He is reinvigorated. The clockwork golem leans low, ready to strike with its might. 
+
+The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from he surely left a impression. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. The noble Fluvand pulls a pale cerulean potion from his pack and drinks it. He is reinvigorated. 
+
+The clockwork golem struck with its slams! The adventurer stunbles backward, gasping for breath. the adventurer stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
+
+He pulls a stizza potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The clockwork golem struck with its slams! The gruesome clockwork golem failed to land its hit. He leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The clockwork golem struck with its slams! Fluvand winces from the pain but continues fighting. 
+
+The clockwork golem struck with its slams! Fluvand jumps out of the way. Fluvand stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
+
+The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! The disgusting clockwork golem failed to land its hit. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! He winces from the pain but continues fighting. Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem took a glancing blow. 
+
+The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
+
+Fluvand pulls a almond potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses the epic Fluvand. 
+
+The adventurer pulls a international klein blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+He pulls a seashell potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to clockwork golem's blind spot. 
+
+The clockwork golem struck with its slams! The adventurer stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The clockwork golem struck with its slams! The mythological Fluvand jumps out of the way. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to clockwork golem's blind spot. 
+
+The clockwork golem struck with its slams! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem was struck by the blow! 
+
+The clockwork golem struck with its slams! The scandalous clockwork golem failed to land its hit. Fluvand the gutsyour hero stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
+
+The clockwork golem struck with its slams! The horrendous clockwork golem failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. Fluvand the undauntedour hero was worn out by the combat. The clockwork golem leans low, ready to strike with its might. 
+
+He sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
+
+The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from he surely left a impression. The clockwork golem struck with its slams! The gutty Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+Fluvand sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
+
+Fluvand the doughtyour hero sneaked around to clockwork golem's blind spot. The clockwork golem struck with its slams! He jumps out of the way. 
+
+The clockwork golem struck with its slams! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! Fluvand jumps out of the way. 
+
+The clockwork golem struck with its slams! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
+
+He pulls a light goldenrod yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although he's hit landed, clockwork golem is mostly unphased
+
+He pulls a verdigris potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! He winces from the pain but continues fighting. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! Although Fluvand's hit landed, clockwork golem is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The clockwork golem struck with its slams! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
+
+The clockwork golem struck with its slams! Fluvand the elevatedour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The clockwork golem leans low, ready to strike with its might. 
+
+The bold Fluvand pulls a field drab potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The inflated Fluvand blocks the strike with his sword. 
+
+The clockwork golem struck with its slams! Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! He winces from the pain but continues fighting. 
+
+He pulls a peach yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! Fluvand the nobleour hero blocks the strike with his sword. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! The fearless Fluvand blocks the strike with his sword. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although the inflated Fluvand's hit landed, clockwork golem is mostly unphased
+
+The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although Fluvand the classicour hero's hit landed, clockwork golem is mostly unphased
+
+The clockwork golem struck with its slams! The fire-eating Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
+
+The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! The exaggerated Fluvand jumps out of the way. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem was struck by the blow! The clockwork golem struck with its slams! Fluvand reeled back in pain. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from the noble Fluvand surely left a impression. 
+
+He sneaked around to clockwork golem's blind spot. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The clockwork golem struck with its slams! He jumps out of the way. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+Fluvand the courageousour hero pulls a navy blue potion from his pack and drinks it. He is reinvigorated. The clockwork golem leans low, ready to strike with its might. 
+
+Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! Fluvand blocks the strike with his sword. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+
+The adventurer was victorious! The clockwork golem menaced for no longer! 
+
+## <a name="chapter18"></a> Chapter 18: Bannaddington upe and the Ice Yai
+
+Fluvand followed a dirt path into the village of Bannaddington upe. A cardmaker slowly carried supplies. Nearby, a mirrorer scuttled out of his way. Fluvand continued down the path. The costermonger scuttled out of his way with a troubadour.
+
+Eventually, Fluvand arrived at the town square, where he found a mariner. The man, eying his foreboding cloak, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the plumber rushed by quickly, ignoring him, a beguine eyed him suspiciously. He still looked suspiciousHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Evanestremfrid is past the warehouse. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Tibbon gone as much as anybody."
+
+Fluvand hurried towards the armory. Nearby, a shepherd rushed by quickly, ignoring him. Nearby, a mathematician talked excitedly with what appeared to be a fuller. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Evanestremfrid lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice yai."
+
+Evanestremfrid returned to the book of monsters on the desk and pointed at the terrifying illustration. "The ice yai is a sinister creature that combines the brutality of a frost giant with the grace and style of a skilled martial artist. Although its magical powers are formidable, it prefers to fight in melee using its slam attacks, leading its minions in merciless combat. It uses its mobility to cast combat spells or launch shards of ice from its third eye."
+
+Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"An ice yai is a natural leader among frost giants, tempering their savagery with its own wisdom. A tribe led by an ice yai may still raid settlements of neighboring humanoids, but the tribe soon learns the value of establishing regular tributes and willing sacrifices—the ice yai teach that methods that rely upon the threat of violence are often even more effective than actual violence. Despite this strangely enlightened philosophy, an ice yai never passes up an opportunity to reinforce its capacity for slaughter, and will often demand that its subjects take part in show battles, both for the entertainment of the tribe and to nurture the ice yai's insatiable ego and sense of dominion over its subjects." Evanestremfrid explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the ice yai?" Fluvand asked.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a disgusting ice yai in the distance! Our hero fixed his gaze on the unholy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. He pulls a mint green potion from his pack and drinks it. He is reinvigorated. 
+
+The inflated Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai took a glancing blow. The monster was stunned by the attack. The epic Fluvand pulls a pale brown potion from his pack and drinks it. He is reinvigorated. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! He jumps out of the way. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand the mythologicalour hero blocks the strike with his sword. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The ice yai struck with its slams! He jumps out of the way. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! Although he's hit landed, ice yai is mostly unphasedThe monster was stunned by the attack. He pulls a rosso corsa potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! The monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
+
+The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice yai, his sword ready to strike! The attack from he surely left a impression. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was staggered by the immense force. The ice yai struck with its slams! The abhorrent ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He pulls a pale chestnut potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The terrible ice yai failed to land its hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! He landed a massive hit on ice yai! 
+
+The ice yai struck with its slams! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The ice yai struck with its slams! The bigger than life Fluvand blocks the strike with his sword. 
+
+He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The ice yai struck with its slams! He jumps out of the way. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Fluvand the gallantour hero pulls a yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The shattering blow from he rumbled through the ground. The ice yai struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
+
+Fluvand the stand tallour hero pulls a jungle green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The terrifying ice yai failed to land its hit. 
+
+The epic Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand the bigger than lifeour hero jumps out of the way. 
+
+The adventurer pulls a peach orange potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! He landed a massive hit on ice yai! The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to ice yai's blind spot. 
+
+The ice yai struck with its slams! The disagreeable ice yai failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Fluvand the boldour hero pulls a icterine potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The gutty Fluvand stunbles backward, gasping for breath. 
+
+The ice yai struck with its slams! Fluvand the grandioseour hero blocks the strike with his sword. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The ice yai struck with its slams! Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The ice yai struck with its slams! Fluvand jumps out of the way. 
+
+The ice yai struck with its slams! The scary ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The adventurer sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The obnoxious ice yai failed to land its hit. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The ice yai struck with its slams! He blocks the strike with his sword. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+The ice yai struck with its slams! The menacing ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand jumps out of the way. 
+
+The ice yai struck with its slams! He stunbles backward, gasping for breath. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
+
+The ice yai struck with its slams! He jumps out of the way. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
+
+The ice yai struck with its slams! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The ice yai struck with its slams! The ghastly ice yai failed to land its hit. The exhilarating combat made the hours seem like seconds. The ice yai leans low, ready to strike with its might. 
+
+The elevated Fluvand sneaked around to ice yai's blind spot. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+He pulls a blue potion from his pack and drinks it. He is reinvigorated. The ice yai leans low, ready to strike with its might. 
+
+The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The smelly ice yai failed to land its hit. 
+
+Fluvand sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The ice yai struck with its slams! Fluvand jumps out of the way. The unafraid Fluvand leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ice yai struck with its slams! The beastly ice yai failed to land its hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! The monster was stunned by the attack. Fluvand sneaked around to ice yai's blind spot. 
+
+He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+
+The adventurer pulls a daffodil potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! Although the noble Fluvand's hit landed, ice yai is mostly unphasedThe monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
+
+He pulls a plum web potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+He pulls a forest green web potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+The fearless Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! He jumps out of the way. 
+
+Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The ice yai struck with its slams! The impavid Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
+
+The epic Fluvand pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Evanestremfrid was talking about."
+
+## <a name="chapter19"></a> Chapter 19: Cralestley & Itherburn and the Formian Myrmarch
+
+Fluvand followed a dirt path into the village of Cralestley & Itherburn. While the footpad talked excitedly with what appeared to be a salter, a restaurateur slowly carried supplies. A dean eyed him suspiciously. Fluvand continued down the path. The spy threw punches with a goldsmith.
+
+Eventually, Fluvand arrived at the town square, where he found a pavyler. The man, eying his determined look, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+The butler sat by the side of the road with a halberdier. The man quietly reminised about the past, but eventually responded.
+
+"Our village of Osgillown will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Elepos is into the market and towards the barn. Eventually you need to walk down the street to the monastery and right. You'll see a tavern. It's just a bit further down the street. It's just to the right. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Tibbon gone as much as anybody."
+
+Fluvand hurried towards the armory. While the tillerman talked excitedly with what appeared to be a constable, a fisherman bit into an apple. Two palmers sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Elepos looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Elepos grabbed a dusty book from the shelf and flipped through it. Pictures of adherers and calignis flew by. Eventually he settled on a page and started to explain.
+
+Elepos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Myrmarchs are an elite caste of the formian race. They serve as direct agents for the queen, acting as advisors and generals, or administrating tasks where complexity or propriety renders taskmasters unsuitable. It is myrmarchs who answer the call when a particularly skilled diplomat or emissary is required to carry the queen's words outside of the territory of the hive to the dangerously disorganized races."
+
+Fluvand slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"While myrmarchs make up the aristocracy of formian society, this does not make them pampered intellectuals and bureaucrats. On the contrary, they are even more deadly than the warriors they often command, and do not hesitate to use their considerable might to aid and protect their kin. Myrmarchs facing combat apply their natural poison to their javelins, making them even more lethal." Elepos explained.
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"Like other formians, myrmarchs record their life's history upon their carapaces. Between their greater opportunities and longer lifespans (roughly as long as those of humans), myrmarchs can cover nearly every inch of their shells with great deeds accomplished, foes overcome, and service to the hive. Some myrmarchs actually run out of space for new records: some die shortly thereafter, knowing that they have served their queen to the utmost, while others add new artificial plates to their carapaces to continue their epics." Elepos explained.
+
+"I could handle that. Tell me again, what makes the formian myrmarch so bad?" Fluvand responded.
+
+"The most accomplished, trusted, and battle-tested of their race, myrmarchs form the queen's elite bodyguard. In a small hive, these bodyguards likely have the same statistics presented above. In the oldest and largest hives, however, most possess class levels." Elepos explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the formian myrmarch?" Fluvand asked.
+
+Elepos returned to the book of monsters on the desk and pointed at the terrifying illustration. "A myrmarch has an enlarged thorax and abdomen, which give it the same general size and weight as a large warhorse, though its upper body is not much larger than that of a formian warrior's. Myrmarchs stand about 8 feet high and weigh about 1,200 pounds."
+
+"But my weapons may be too weak. Are there any other ways to defeat the formian myrmarch?" Fluvand asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a ghastly formian myrmarch in the distance! Fluvand the courageousour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The shattering blow from Fluvand the lion-heartedour hero rumbled through the ground. The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+He pulls a electric green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. Fluvand the impavidour hero stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
+
+The formian myrmarch leans low, ready to strike with its might. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from he surely left a impression. 
+
+The formian myrmarch struck with its sting! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The formian myrmarch struck with its sting! He jumps out of the way. 
+
+The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. Fluvand the nobleour hero stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! Although he's hit landed, formian myrmarch is mostly unphased
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+The formian myrmarch struck with its sting! Fluvand the doughtyour hero jumps out of the way. Fluvand the bigger than lifeour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from Fluvand the stoutheartedour hero surely left a impression. The monster was stunned by the attack. He pulls a dark powder blue potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a persian green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from Fluvand the unafraidour hero surely left a impression. 
+
+Fluvand the courageousour hero pulls a kenyan copper potion from his pack and drinks it. He is reinvigorated. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium taupe potion from his pack and drinks it. He is reinvigorated. 
+
+The formian myrmarch leans low, ready to strike with its might. The formian myrmarch struck with its sting! He blocks the strike with his sword. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! The menacing formian myrmarch failed to land its hit. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch took a glancing blow. 
+
+The valiant Fluvand sneaked around to formian myrmarch's blind spot. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand the courageousour hero pulls a sea green potion from his pack and drinks it. He is reinvigorated. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! Fluvand the courageousour hero jumps out of the way. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+The formian myrmarch struck with its sting! He jumps out of the way. Fluvand lunged toward the formian myrmarch, his sword ready to strike! He landed a massive hit on formian myrmarch! 
+
+The formian myrmarch struck with its sting! He winces from the pain but continues fighting. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+He pulls a green html css green potion from his pack and drinks it. He is reinvigorated. The formian myrmarch struck with its sting! The terrifying formian myrmarch failed to land its hit. 
+
+The formian myrmarch struck with its sting! The gallant Fluvand blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. 
+
+The formian myrmarch struck with its sting! The bigger than life Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch took a glancing blow. The monster was stunned by the attack. He pulls a honeydew potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! He landed a massive hit on formian myrmarch! The formian myrmarch struck with its sting! The dreadful formian myrmarch failed to land its hit. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+The formian myrmarch struck with its sting! Fluvand reeled back in pain. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch was staggered by the immense force. 
+
+The mythological Fluvand pulls a china pink potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! Although he's hit landed, formian myrmarch is mostly unphased
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! He blocks the strike with his sword. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
+
+Fluvand lunged toward the formian myrmarch, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to formian myrmarch's blind spot. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Elepos was talking about."
+
+## <a name="chapter20"></a> Chapter 20: Brisle and the Locathah
+
+Fluvand followed a dirt path into the village of Brisle. Nearby, a mummer finished an apple and tossed the core aside. The horseleech talked excitedly with what appeared to be a vintner with a chainmaker. Fluvand continued down the path. A woolman gazed at him from an open window.
+
+Eventually, Fluvand arrived at the town square, where he found a lady. Fluvand approached him, hoping for some advice.
+
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+
+The scholar loaded a market stall with wares with a sergeant. The man sat in silence for a whileHe finally responded.
+
+"Our village of Can will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is into the market and towards the stables. Eventually you need to walk into the market and towards the stables. Eventually you need to walk past the monastery. It's just to the left. You'll find Raynaeus, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. Two housewifes bit into an apple. Nearby, a woodcutter slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Raynaeus looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Raynaeus grabbed a dusty book from the shelf and flipped through it. Pictures of ecorches and warsworns flew by. Eventually he settled on a page and started to explain.
+
+"Simple aquatic creatures shunned by landwalkers and undersea folk alike, locathahs live in tight-knit communities scattered throughout the world's seas, lakes. and waterways. Locathahs possess scaly ochre skin tinged with green and yellow. Ridged, rust-colored skin covers their chests and stomachs, and a mottled wash of green, brown, and orange colors their fins like aging kelp. Locathahs exude a strong fishy odor when above water that, in addition to their already unnerving appearance, repulses most land-dwellers. Despite this animosity, locathahs go to great lengths to befriend surface folk, offering safe passage through the waters, pointing out dangerous reefs, and hinting at sunken treasures in return for durable ceramics and metal tools and weapons, as well as tubers, which they view as a delicacy." Raynaeus explained.
+
+Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"These creatures dislike combat and flee when disarmed or outnumbered. Locathahs hold community in the highest regard, never leaving a friend behind and often going to great lengths to retrieve a fallen companion. Among their own kind and races friendly toward them, locathahs are social creatures who live a very human-like, albeit simple, lifestyle. Locathahs work in stone, coral, and bone to produce the crude implements they use. Some take coral work to obsessive levels, with certain clans taking generations to grow their preferred medium in its desired form before carving it. They feed on crustaceans, undersea plants, and shellfish, and rarely on large fish that are caught during ritualized hunts." Raynaeus explained.
+
+"I could handle that. Tell me again, what makes the locathah so bad?" Fluvand responded.
+
+The armorer sighed and continued. "Locathah matriarchs serve their undersea tribes not only as chieftains, but also as the primary egg layers of the community. Each adult member of the tribe is responsible for raising a single young locathah as his or her own. Locathahs tame moray eels, keeping them near their lairs as humans keep dogs. Some locathah soldiers and hunting groups use giant moray eels as mounts, chasing down their quarry and attacking with narrow-tipped spears. More powerful aquatic races use locathahs as slaves, abducting breeding matriarchs to produce a constant wave of new workers."
+
+"I could handle that. Tell me again, what makes the locathah so bad?" Fluvand responded.
+
+The armorer sighed and continued. "Locathah stand roughly as tall as humans, yet their fins jut out, giving them an imposing stature. Lean and strong, locathahs weigh roughly 160 pounds."
+
+"But my weapons may be too weak. Are there any other ways to defeat the locathah?" Fluvand asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a awful locathah in the distance! The inflated Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the locathah, his sword ready to strike! A sharp crack was heard as the strike left its mark. The locathah struck with its longspear! Fluvand jumps out of the way. Fluvand lunged toward the locathah, his sword ready to strike! The slippery locathah evaded Fluvand's hit. 
+
+The locathah struck with its longspear! Fluvand reeled back in pain. Fluvand leaned on his sword to catch a moment's respite. Fluvand the nobleour hero was worn out by the combat. The locathah leans low, ready to strike with its might. 
+
+The adventurer pulls a copper rose potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the locathah, his sword ready to strike! The slippery locathah evaded Fluvand's hit. 
+
+The adventurer was victorious! The locathah menaced for no longer! 
+
+## <a name="chapter21"></a> Chapter 21: Manochesforton and the Animate Dream
+
+Fluvand followed a dirt path into the village of Manochesforton. While the smelter threw punches, a bailiff threw punches. While the cheesemaker finished an apple and tossed the core aside, a cobbler sat by the side of the road. Fluvand continued down the path. Nearby, a banker gazed at him from an open window.
+
+Eventually, Fluvand arrived at the town square, where he found a currier. Fluvand approached him, hoping for some advice.
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+Two mosaic layers loaded a market stall with wares. He still looked suspiciousHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Thyrice is into the market and towards the stables. Eventually you need to walk just a bit further down the street. It's just to the right. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. Nearby, a gardner hawked fine imported goods from Cocheter Hillow. A jew sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Thyrice looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the arsinoitherium, or perhaps even the dire corby, but that's nothing compared to the animate dream we've got."
+
+Thyrice returned to the book of monsters on the desk and pointed at the terrifying illustration. "From time to time, when a powerfully imaginative sleeper wakes from a particularly vivid or unusual dream, a fragment of that dream lingers on the Ethereal Plane. To survive, this animate dream needs the power of living will, imagination, and emotion to sustain it. An animate dream seeks out mortal minds, appearing as a shadowy and often frightful dream figure. Its true appearance is vague and nebulous, but it reacts to the fears and emotions of those around it, taking on a nightmarish appearance that differs for each viewer."
+
+Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Thyrice returned to the book of monsters on the desk and pointed at the terrifying illustration. "An animate dream can find satisfaction and sustenance by passing one of its ghostly limbs through a mortal's body—the act infusing the mortal with negative energy that sates the animate dream's unnatural hunger. But by forcing a creature into a state of sleep, terror, or both, the animate dream can gain a much more satisfying meal, feeding on the emotions released in such states. It uses its spell-like abilities to this end, for each creature it harms with its nightmares, drives temporarily insane with confusion or fear, or outright slays with phantasmal killer provides the monster with more nourishment. An animate dream forced to go for a long period of time without feeding does not starve to death, but does grow increasingly feral and violent in nature."
+
+"But my weapons may be too weak. Are there any other ways to defeat the animate dream?" Fluvand asked.
+
+"Animate dreams sometimes associate with other creatures from the Ethereal Plane or that have associations with dreams and nightmares, such as night hags, phase spiders, and xills. Sometimes these alliances are mutually beneficial, but in many cases the animate dreams are treated as slaves. Night hags in particular like enslaving animate dreams, and sometimes use their essence as a component in creating heartstones." Thyrice explained.
+
+"I could handle that. Tell me again, what makes the animate dream so bad?" Fluvand responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a lousy animate dream in the distance! Our hero fixed his gaze on the heinous sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! He stunbles backward, gasping for breath. Fluvand lunged toward the animate dream, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand the boldour hero. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! He blocks the strike with his sword. 
+
+The adventurer sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a french lime potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! He jumps out of the way. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The adventurer pulls a light crimson potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! The frightful animate dream failed to land its hit. 
+
+The animate dream struck with its incorporeal  touch! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The animate dream struck with its incorporeal  touch! He jumps out of the way. 
+
+He sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a dark jungle green potion from his pack and drinks it. He is reinvigorated. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The attack from he surely left a impression. 
+
+Fluvand the inflatedour hero sneaked around to animate dream's blind spot. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand the inflatedour hero. 
+
+The adventurer sneaked around to animate dream's blind spot. The animate dream struck with its incorporeal  touch! The adventurer jumps out of the way. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! Although the gutty Fluvand's hit landed, animate dream is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream took a glancing blow. 
+
+The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The epic Fluvand winces from the pain but continues fighting. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses the adventurer. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream took a glancing blow. 
+
+The animate dream struck with its incorporeal  touch! The abhorrent animate dream failed to land its hit. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. The monster was stunned by the attack. He pulls a azure potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! Fluvand reeled back in pain. 
+
+Fluvand the daringour hero pulls a fawn potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+The animate dream struck with its incorporeal  touch! The awful animate dream failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The animate dream leans low, ready to strike with its might. 
+
+The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
+
+He pulls a indigo potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! Fluvand reeled back in pain. Fluvand lunged toward the animate dream, his sword ready to strike! Although he's hit landed, animate dream is mostly unphased
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to animate dream's blind spot. 
+
+He sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
+
+Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. He pulls a lavender purple potion from his pack and drinks it. He is reinvigorated. 
+
+The animate dream struck with its incorporeal  touch! The repulsive animate dream failed to land its hit. The exhilarating combat made the hours seem like seconds. The animate dream leans low, ready to strike with its might. 
+
+The animate dream struck with its incorporeal  touch! He jumps out of the way. Fluvand lunged toward the animate dream, his sword ready to strike! The attack from Fluvand surely left a impression. 
+
+He pulls a robin egg blue potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! Fluvand jumps out of the way. 
+
+The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The unholy animate dream failed to land its hit. 
+
+He was victorious! The animate dream menaced for no longer! 
+
+## <a name="chapter22"></a> Chapter 22: Bay and the Chuspiki
+
+Fluvand followed a dirt path into the village of Bay. A gunsmith gazed at him from an open window. While the thimbler scuttled out of his way, a armorer bit into an apple. Fluvand continued down the path. Two wood sellers eyed him suspiciously.
+
+Eventually, Fluvand arrived at the town square, where he found a rugmaker. Fluvand approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Two pikemans talked excitedly with what appeared to be a clockmaker. The man sat in silence for a whileHe finally responded.
+
+"Our village of Mangdon will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Demosoniaumela is down the street to the stables and right. You'll see a cattle barn. It's down the street to the tavern and right. You'll see a barn. It's down the street to the tavern and left. You'll see a tavern. It's into the market and towards the inn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Demosoniaumela Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Fluvand hurried towards the armory. Nearby, a drycooper slowly carried supplies. While the molecatcher loaded a market stall with wares, a siege engineer gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Demosoniaumela looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the spirit naga, or perhaps even the crone queen, but that's nothing compared to the chuspiki we've got."
+
+The armorer sighed and continued. "Chuspikis are intelligent, mouselike creatures covered in a coat of downy tan fur which makes them appear much larger than they actually are. A chuspiki's tail is substantially longer than the rest of its body, fanning out into a sail-like structure. The base of its tail is strong and flexible, allowing the chuspiki to whip around the fan at the tip with surprising speed. It can use this motion to create concussive blasts of air, or to scratch opponents with barbs on the underside of its tail bones."
+
+"I could handle that. Tell me again, what makes the chuspiki so bad?" Fluvand responded.
+
+The armorer sighed and continued. "Like the wind itself, chuspikis are always moving. Chuspikis soar through the air, riding their fans like gliders and summoning minor gusts to steer their flight. They rest in short bursts, napping for just an hour at a time."
+
+"But my weapons may be too weak. Are there any other ways to defeat the chuspiki?" Fluvand asked.
+
+The armorer sighed and continued. "Whenever they can, chuspikis seek out new experiences. They are social creatures that prefer to travel with others of their kind, or with members of other species. Chuspikis feel an especially strong connection with other creatures who share their bond with the skies, such as air elementals and sylphs. Chuspikis enjoy exploring unique locations, and when they find a particularly fascinating site, they announce their find on the winds to encourage others to share in their discovery. A mysterious disembodied voice promising glorious adventure may very well be a chuspiki; however, the playful creatures are just as likely to play pranks on hapless passersby as they are to provide legitimate guidance."
+
+"But my weapons may be too weak. Are there any other ways to defeat the chuspiki?" Fluvand asked.
+
+The armorer sighed and continued. "A typical chuspiki is 1 foot long, with its tail extending out an additional 5 feet, and weighs 1 pound. Its bones are hollow, like a bird's."
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"A chuspiki will sometimes ally with a spellcaster as a familiar. A chaotic spellcaster can gain a chuspiki as a familiar at 7th level by taking the Improved Familiar feat." Demosoniaumela explained.
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a horrid chuspiki in the distance! Our hero fixed his gaze on the sickie sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The chuspiki struck with its tail fan! He blocks the strike with his sword. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+The chuspiki struck with its tail fan! He stunbles backward, gasping for breath. the courageous Fluvand stumbles to his knee, gasping for breath. The chuspiki struck with its tail fan! Fluvand reeled back in pain. 
+
+He pulls a iceberg potion from his pack and drinks it. He is reinvigorated. The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses Fluvand. 
+
+The chuspiki struck with its tail fan! The repellent chuspiki failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The chuspiki leans low, ready to strike with its might. 
+
+Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the bigger than lifeour hero pulls a dark lava potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand the inflatedour hero pulls a cal poly green potion from his pack and drinks it. He is reinvigorated. The chuspiki leans low, ready to strike with its might. 
+
+The chuspiki leans low, ready to strike with its might. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+He sneaked around to chuspiki's blind spot. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+The chuspiki struck with its tail fan! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The chuspiki leans low, ready to strike with its might. 
+
+The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+The chuspiki leans low, ready to strike with its might. Fluvand lunged toward the chuspiki, his sword ready to strike! The attack from the elevated Fluvand surely left a impression. 
+
+Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a royal blue traditional potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. The exaggerated Fluvand sneaked around to chuspiki's blind spot. 
+
+He pulls a dark goldenrod potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+He pulls a shocking pink potion from his pack and drinks it. He is reinvigorated. The chuspiki leans low, ready to strike with its might. 
+
+The chuspiki leans low, ready to strike with its might. The chuspiki struck with its tail fan! Fluvand blocks the strike with his sword. 
+
+The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses Fluvand the gallantour hero. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The chuspiki leans low, ready to strike with its might. 
+
+Fluvand lunged toward the chuspiki, his sword ready to strike! The shattering blow from the elevated Fluvand rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the chuspiki, his sword ready to strike! Although Fluvand the grandioseour hero's hit landed, chuspiki is mostly unphased
+
+The chuspiki struck with its tail fan! Fluvand reeled back in pain. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
+
+He sneaked around to chuspiki's blind spot. The chuspiki leans low, ready to strike with its might. 
+
+The adventurer was victorious! The chuspiki menaced for no longer! 
+
+## <a name="chapter23"></a> Chapter 23: Rayswickpon-Treet Finswarry Havon up and the Living Wall
+
+Fluvand followed a dirt path into the village of Rayswickpon-Treet Finswarry Havon up. Two shoemakers talked excitedly with what appeared to be a tillerman. A farrier stood by a market stall, negotiating with the spectaclesmaker. Fluvand continued down the path. A rivener slowly carried supplies.
+
+Eventually, Fluvand arrived at the town square, where he found a cooper. Fluvand approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a bagger rushed by quickly, ignoring him. He still looked suspicious, then finally responded.
+
+"Our village of Sholl Treephey will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is down the street to the monastery and left. You'll see a inn. It's down the street to the tavern and left. You'll see a barn. It's down the street to the cattle barn and right. You'll see a tavern. It's past the barn. It's just to the right. You'll find Fastus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Tibbon gone as much as anybody."
+
+Fluvand hurried towards the armory. Two gravediggers slowly carried supplies. Two princes slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Fastus looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the ghaele, or perhaps even the nightwalker, but that's nothing compared to the living wall we've got."
+
+"A living wall is a construct built out of the bodies of many creatures and mortared together with liquefied flesh. Like a gelatinous cube, it fills an entire 10-foot square, allowing it to completely block a hallway. Several living walls placed next to one another can obstruct an entire room. Its normal method of attack is to creep into range to make slam attacks, then push opponents against other walls and crush them to death. Living walls follow basic orders and are normally used to block access to certain parts of their creator's lair—to get through a living wall, it must be killed and hacked apart to create a space other creatures can pass through. Living walls can be ordered to stack themselves on top of each other to reach higher ceilings, but this requires a ramp to allow one to climb onto the other." Fastus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the living wall?" Fluvand asked.
+
+"A living wall rises 8 to 10 feet high and weighs 4,000 pounds. The appearance of each one varies wildly depending on the creatures used to make up its constituent parts." Fastus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the living wall?" Fluvand asked.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a shameful living wall in the distance! The doughty Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a camouflage green potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand the intrepidour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! The lurid living wall failed to land its hit. The exhilarating combat made the hours seem like seconds. The living wall struck with its slams! He jumps out of the way. 
+
+He sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! Fluvand blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! The gritty Fluvand blocks the strike with his sword. Fluvand lunged toward the living wall, his sword ready to strike! The living wall took a glancing blow. 
+
+The living wall struck with its slams! The shocking living wall failed to land its hit. Fluvand lunged toward the living wall, his sword ready to strike! Although Fluvand's hit landed, living wall is mostly unphased
+
+Fluvand lunged toward the living wall, his sword ready to strike! He landed a massive hit on living wall! The monster was stunned by the attack. Fluvand lunged toward the living wall, his sword ready to strike! The living wall was struck by the blow! 
+
+Fluvand lunged toward the living wall, his sword ready to strike! That blow seemed like it could break some bones. The living wall struck with its slams! The fierce blow from the monster narrowly misses the gritty Fluvand. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall struck with its slams! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The living wall leans low, ready to strike with its might. 
+
+The lion-hearted Fluvand pulls a mode beige potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall struck with its slams! The smelly living wall failed to land its hit. He leaned on his sword to catch a moment's respite. Fluvand the nobleour hero was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+The adventurer pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall struck with its slams! The disagreeable living wall failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+Fluvand sneaked around to living wall's blind spot. The living wall struck with its slams! The terrible living wall failed to land its hit. 
+
+Fluvand pulls a gray x11 gray potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall struck with its slams! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The living wall leans low, ready to strike with its might. 
+
+He pulls a moonstone blue potion from his pack and drinks it. He is reinvigorated. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! The stand tall Fluvand blocks the strike with his sword. Fluvand the dauntlessour hero leaned on his sword to catch a moment's respite. Fluvand the epicour hero was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to living wall's blind spot. 
+
+He pulls a prune potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! Fluvand blocks the strike with his sword. 
+
+The living wall struck with its slams! The fierce blow from the monster narrowly misses the grand Fluvand. Fluvand lunged toward the living wall, his sword ready to strike! Although Fluvand the stand tallour hero's hit landed, living wall is mostly unphased
+
+The living wall struck with its slams! The repellent living wall failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to living wall's blind spot. 
+
+He sneaked around to living wall's blind spot. The living wall struck with its slams! The adventurer jumps out of the way. 
+
+The adventurer pulls a dark sea green potion from his pack and drinks it. He is reinvigorated. The living wall leans low, ready to strike with its might. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to living wall's blind spot. 
+
+He pulls a bright green potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Fluvand the high-flownour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+
+Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the daringour hero pulls a rubine red potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand the grandour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+
+He pulls a english lavender potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! He jumps out of the way. 
+
+Fluvand pulls a raspberry potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The living wall took a glancing blow. 
+
+The living wall struck with its slams! The repellent living wall failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The living wall leans low, ready to strike with its might. 
+
+The living wall struck with its slams! The adventurer blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The valorous Fluvand was worn out by the combat. The living wall struck with its slams! The adventurer jumps out of the way. 
+
+The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! He landed a massive hit on living wall! 
+
+He sneaked around to living wall's blind spot. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+
+Fluvand the lion-heartedour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+
+He was victorious! The living wall menaced for no longer! 
+
+## <a name="chapter24"></a> Chapter 24: Road and the Fastachee
+
+Fluvand followed a dirt path into the village of Road. While the shipchandler threw punches, a beerbrewer scuttled out of his way. Two tentsmans eyed him suspiciously. Fluvand continued down the path. While the curate stood by a market stall, negotiating with the jailer, a plowman scuttled out of his way.
+
+Eventually, Fluvand arrived at the town square, where he found a pewterer. Fluvand approached him, hoping for some advice.
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+Two horners finished an apple and tossed the core aside. The man sat in silence for a whileHe finally responded.
+
+"Our village of Dol Gal will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Hildebrianulf is the best in town. His shop is into the market and towards the inn. Eventually you need to walk past the cattle barn. Look for the large hanging sign that reads "Hildebrianulf Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. Two almoners slowly carried supplies. A fool for money slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Hildebrianulf looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the giant muckdweller, or perhaps even the cursed king, but that's nothing compared to the fastachee we've got."
+
+Hildebrianulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "Fastachees are mysterious, wise, and generous fey who foster the growth of nearby plants. Many communities who interact with them revere them as bringers of food and medicine, as well as protectors of crops. These fey have a particularly strong connection to corn; they regularly project their senses through corn plants to monitor the health of the field and search the local area for threats. They prefer to avoid direct confrontation if possible, using their ability to originate their spells from corn plants to harass those they wish to chase away."
+
+"I could handle that. Tell me again, what makes the fastachee so bad?" Fluvand responded.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a disagreeable fastachee in the distance! Our hero fixed his gaze on the terrifying sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee struck with its vines! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+
+Fluvand the grittyour hero sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand reeled back in pain. 
+
+The high-flown Fluvand sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
+
+Fluvand the classicour hero pulls a green ncs potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand reeled back in pain. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. Fluvand the valiantour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The unkind fastachee failed to land its hit. 
+
+The fastachee struck with its vines! The gallant Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The fastachee leans low, ready to strike with its might. 
+
+The fastachee leans low, ready to strike with its might. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee struck with its vines! Fluvand jumps out of the way. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+
+The fastachee struck with its vines! He blocks the strike with his sword. Fluvand the fire-eatingour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The mean fastachee failed to land its hit. 
+
+The valorous Fluvand pulls a green pigment potion from his pack and drinks it. He is reinvigorated. The fastachee leans low, ready to strike with its might. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! The gutsy Fluvand blocks the strike with his sword. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
+
+He pulls a medium spring bud potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! The adventurer blocks the strike with his sword. 
+
+The fastachee struck with its vines! Fluvand jumps out of the way. Fluvand lunged toward the fastachee, his sword ready to strike! Although Fluvand the intrepidour hero's hit landed, fastachee is mostly unphased
+
+The fastachee struck with its vines! Fluvand the doughtyour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The fastachee struck with its vines! He blocks the strike with his sword. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! Fluvand stunbles backward, gasping for breath. 
+
+The fastachee struck with its vines! Fluvand reeled back in pain. He leaned on his sword to catch a moment's respite. Fluvand the grandioseour hero was worn out by the combat. The fastachee struck with its vines! The adventurer jumps out of the way. 
+
+He pulls a dark goldenrod potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! He blocks the strike with his sword. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The adventurer pulls a violet potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium candy apple red potion from his pack and drinks it. He is reinvigorated. 
+
+The fastachee struck with its vines! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand sneaked around to fastachee's blind spot. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+He sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand jumps out of the way. 
+
+He sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand stunbles backward, gasping for breath. 
+
+The fastachee struck with its vines! The disagreeable fastachee failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The fastachee leans low, ready to strike with its might. 
+
+He pulls a myrtle potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand the courageousour hero jumps out of the way. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! Fluvand the elevatedour hero winces from the pain but continues fighting. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand sneaked around to fastachee's blind spot. The fastachee struck with its vines! He winces from the pain but continues fighting. 
+
+The fastachee struck with its vines! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+
+The fastachee struck with its vines! The bold Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! The fastachee struck with its vines! The mythological Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He jumps out of the way. 
+
+The fastachee struck with its vines! The scary fastachee failed to land its hit. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The grim fastachee failed to land its hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The smelly fastachee failed to land its hit. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses the grand Fluvand. Fluvand the gutsyour hero stumbles to his knee, gasping for breath. The fastachee leans low, ready to strike with its might. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to fastachee's blind spot. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He winces from the pain but continues fighting. 
+
+The fastachee struck with its vines! The awful fastachee failed to land its hit. The gutsy Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The terrible fastachee failed to land its hit. 
+
+Fluvand the grittyour hero sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
+
+The adventurer sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to fastachee's blind spot. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was staggered by the immense force. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! Fluvand the exaggeratedour hero jumps out of the way. Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! 
+
+The fastachee leans low, ready to strike with its might. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand the undauntedour hero sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee took a glancing blow. 
+
+He pulls a air superiority blue potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand the daringour hero blocks the strike with his sword. 
+
+Fluvand the valiantour hero pulls a yellow ryb potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! Although the adventurer's hit landed, fastachee is mostly unphased
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses the dauntless Fluvand. The valorous Fluvand leaned on his sword to catch a moment's respite. Fluvand the daringour hero was worn out by the combat. The fastachee struck with its vines! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! The smelly fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+He sneaked around to fastachee's blind spot. The fastachee struck with its vines! The dreadful fastachee failed to land its hit. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! The frightful fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+He pulls a dark green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses Fluvand the grandioseour hero. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee leans low, ready to strike with its might. 
+
+The fastachee struck with its vines! The revolting fastachee failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee leans low, ready to strike with its might. 
+
+The adventurer pulls a stil de grain yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
+
+The adventurer sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
+
+The fastachee struck with its vines! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He jumps out of the way. 
+
+The fastachee struck with its vines! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The elevated Fluvand jumps out of the way. 
+
+The adventurer pulls a malachite potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the fearlessour hero sneaked around to fastachee's blind spot. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! Although the adventurer's hit landed, fastachee is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! The dreadful fastachee failed to land its hit. 
+
+The fastachee struck with its vines! He stunbles backward, gasping for breath. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fastachee struck with its vines! The unafraid Fluvand winces from the pain but continues fighting. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+Fluvand lunged toward the fastachee, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He sneaked around to fastachee's blind spot. 
+
+The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He winces from the pain but continues fighting. 
+
+The fastachee struck with its vines! The terrifying fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+
+The fire-eating Fluvand was victorious! The fastachee menaced for no longer! 
+
+## <a name="chapter25"></a> Chapter 25: Onde Stree and the Ice Troll
+
+Fluvand followed a dirt path into the village of Onde Stree. While the clockmaker talked excitedly with what appeared to be a palmer, a dwarf ran from person to person, asking if they had seen Bades. Nearby, a furrier hawked fine imported goods from Hare. Fluvand continued down the path. A fool loaded a market stall with wares.
+
+Eventually, Fluvand arrived at the town square, where he found a balancemaker. Fluvand approached him, hoping for some advice.
+
+"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+
+A nakerer finished an apple and tossed the core aside. The man quietly reminised about the pastHe finally responded.
+
+"Our village of Parrow Tunnostoft will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is into the market and towards the inn. Eventually you need to walk down the street to the barn and right. You'll see a stables. It's into the market and towards the barn. Eventually you need to walk past the inn. It's just to the left. You'll find Bizi, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Fluvand hurried towards the armory. The carver threw punches with a jailer. Two fishmongers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Bizi looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+Bizi lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice troll."
+
+"Ice trolls are somewhat smaller than normal trolls, but they possess greater intelligence and cunning and are just as voraciously hungry. They display the typical hunched posture of trolls, combined with long arms tipped with sharp claws and the distinctive troll underbite. Like normal trolls, ice trolls possess amazing regenerative powers that enable them to recover from almost any wound. Unlike most trolls, ice trolls often use weapons in battle, but in the heat of combat, they often cast aside weapons in favor of their rending claws. An ice troll stands about 10 feet tall and weighs up to 900 pounds." Bizi explained.
+
+Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+
+"Because of their greater intellects, ice trolls sometimes work as mercenaries, and often serve as soldiers in monstrous armies. They frequently ally with frost giants, and may even be found among northern barbarian tribes, as long as they are well fed and well paid." Bizi explained.
+
+Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice trolls enjoy the taste of human flesh, and those not working with humans frequently set traps near civilized areas to catch their favorite prey. They will also raid isolated settlements for food, often bringing captured humans back to their icy lairs, where the unfortunate victims are caged and fattened up before finally being devoured by the voracious trolls."
+
+"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+
+Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "In combat, ice trolls are more cautious than normal trolls. They do not normally rush headlong into battle, instead focusing on weaker foes or those bearing fire. They do not hesitate to attack opponents armed with fire, but work together to defeat such enemies before they can bring their dangerous weapons to bear."
+
+"I could handle that. Tell me again, what makes the ice troll so bad?" Fluvand responded.
+
+Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice troll society is more patriarchal than normal troll society, and while males may form gangs to hunt or raid, most ice trolls live in small family groups comprised of a male, a female, and their offspring."
+
+"I could handle that. Tell me again, what makes the ice troll so bad?" Fluvand responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+
+Fluvand saw a unholy ice troll in the distance! Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+The adventurer was victorious! The ice troll menaced for no longer! 
+
+## <a name="chapter26"></a> Chapter 26: Fark and the Elephant
+
+Fluvand followed a dirt path into the village of Fark. Nearby, a waferer talked excitedly with what appeared to be a maid. The taverner scuttled out of his way with a lorimer. Fluvand continued down the path. Two basinbeaters ran from person to person, asking if they had seen Halef.
+
+Eventually, Fluvand arrived at the town square, where he found a fuller. The man, eying his strong forearms, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+
+While the rat catcher threw punches, a pickpocket talked excitedly with what appeared to be a sexton. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Balin is just a bit further down the street. Look for the large hanging sign that reads "Balin Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Fluvand hurried towards the armory. A mercer finished an apple and tossed the core aside. A parker gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Balin looked up from his work behind a counter at Fluvand.
+
+"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the minotaur, or perhaps even the stringy demodand, but that's nothing compared to the elephant we've got."
+
+The armorer sighed and continued. "These large land animals, majestically wandering the plains in tightly knit family herds, are symbols of wisdom and strength. Having few natural predators, elephants are sometimes hunted for their ivory tusks. These tusks often become jewelry, statuettes, and trinkets for the wealthy. "
+
+"I could handle that. Tell me again, what makes the elephant so bad?" Fluvand responded.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Fluvand saw a scandalous elephant in the distance! The adventurer readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+
+He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+
+He pulls a light cyan potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! He winces from the pain but continues fighting. Fluvand stumbles to his knee, gasping for breath. The elephant struck with its gore! The gruesome elephant failed to land its hit. 
+
+He sneaked around to elephant's blind spot. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The elephant struck with its gore! The grim elephant failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! The disgusting elephant failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant leans low, ready to strike with its might. 
+
+The impavid Fluvand pulls a indigo dye potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. The monster was stunned by the attack. Fluvand the dauntlessour hero pulls a magic mint potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! Fluvand winces from the pain but continues fighting. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The courageous Fluvand sneaked around to elephant's blind spot. The elephant struck with its gore! He stunbles backward, gasping for breath. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! He jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The elephant struck with its gore! The obnoxious elephant failed to land its hit. The exhilarating combat made the hours seem like seconds. The elephant struck with its gore! He winces from the pain but continues fighting. 
+
+The elephant struck with its gore! The adventurer blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant struck with its gore! The disgusting elephant failed to land its hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. He pulls a mustard potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand pulls a medium electric blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a light pastel purple potion from his pack and drinks it. He is reinvigorated. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to elephant's blind spot. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! The nasty elephant failed to land its hit. 
+
+Fluvand pulls a barn red potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+He sneaked around to elephant's blind spot. The elephant struck with its gore! Fluvand the mythologicalour hero stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The attack from the adventurer surely left a impression. The elephant struck with its gore! He stunbles backward, gasping for breath. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The elephant leans low, ready to strike with its might. Fluvand lunged toward the elephant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The elephant struck with its gore! Fluvand reeled back in pain. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant struck with its gore! Fluvand reeled back in pain. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand reeled back in pain. Fluvand lunged toward the elephant, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He pulls a sandstorm potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. 
+
+The elephant struck with its gore! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The elephant struck with its gore! He blocks the strike with his sword. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to elephant's blind spot. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand reeled back in pain. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! He blocks the strike with his sword. 
+
+He sneaked around to elephant's blind spot. The elephant struck with its gore! He winces from the pain but continues fighting. 
+
+The elephant struck with its gore! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
+
+He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+
+Fluvand the epicour hero pulls a hunter green potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer jumps out of the way. 
+
+Fluvand the boldour hero pulls a electric crimson potion from his pack and drinks it. He is reinvigorated. The elephant struck with its gore! The grand Fluvand winces from the pain but continues fighting. 
+
+Fluvand pulls a french lime potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! Fluvand the classicour hero stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
+
+The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer winces from the pain but continues fighting. 
+
+He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the elephant, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Fluvand the unafraidour hero sneaked around to elephant's blind spot. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand the inflatedour hero sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+
+Fluvand the guttyour hero pulls a khaki html css khaki potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+The elephant struck with its gore! The mythological Fluvand blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Fluvand the lion-heartedour hero was worn out by the combat. The elephant struck with its gore! Fluvand reeled back in pain. 
+
+The elephant struck with its gore! The daring Fluvand jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+He sneaked around to elephant's blind spot. The elephant struck with its gore! The scandalous elephant failed to land its hit. 
+
+The elephant struck with its gore! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The elephant struck with its gore! He blocks the strike with his sword. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! The adventurer jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The gutty Fluvand pulls a magenta potion from his pack and drinks it. He is reinvigorated. The elephant struck with its gore! He stunbles backward, gasping for breath. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+He sneaked around to elephant's blind spot. The elephant struck with its gore! The execrable elephant failed to land its hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! He jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+Fluvand lunged toward the elephant, his sword ready to strike! Fluvand the dauntlessour hero landed a massive hit on elephant! The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
+
+The bigger than life Fluvand pulls a carmine m p potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+
+The courageous Fluvand sneaked around to elephant's blind spot. The elephant struck with its gore! Fluvand the bigger than lifeour hero jumps out of the way. 
+
+Fluvand says
+
+"That didn't seem so hard, I don't know what Balin was talking about."
 
 

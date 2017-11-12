@@ -56,6 +56,8 @@ def toc():
 
     return result
 
-print(toc())
 
-print(book())
+book_text = book()
+
+print(toc())
+print(book_text)
