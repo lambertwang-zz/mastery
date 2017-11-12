@@ -1,6 +1,6 @@
 import util
 
-def run():
+def chapter():
     args = {
         'pc_name': util.name(),
         'wiz_name': util.name(),
@@ -20,7 +20,6 @@ def run():
         result += util.expand(util.armory_more(), **args)
 
     result += util.expand(util.armory_no_more(), **args)
-    
-    return len(result.split(' '))
+    return result
 
-print(sum([run() for i in range(10000)]) / 10000)
+print(chapter())
