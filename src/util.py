@@ -53,7 +53,7 @@ with open('../monsters.json', 'r') as monster_file:
 def expand(sentence, **kwargs):
     # set_trace()
     while True:
-        matches = list(re.finditer('<(.*?)>', sentence))
+        matches = list(re.finditer('<([!a-zA-Z0-9:_]*?)>', sentence))
         if not matches:
             return sentence 
         for match in reversed(matches):
@@ -76,10 +76,10 @@ def sentence(words):
     return words[0].upper() + words[1:]
 
 def book_title():
-    return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n'
+    return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n[This is the link text](#chapter5)\n\n\n\n'
 
 def chapter_title():
-    return '## Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>\n\n'
+    return '## <a name="chapter<!chapter_number>"></a> Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>\n\n'
 
 def town():
     return town_generator.generate()

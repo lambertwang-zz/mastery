@@ -1,7 +1,7 @@
 import util
 import combat
 
-TARGET_WORD_COUNT = 100
+TARGET_WORD_COUNT = 50000
 
 def chapter(args):
     args.update({
