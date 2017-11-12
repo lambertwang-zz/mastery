@@ -86,9 +86,9 @@ def get_monster(index, all_stats, flavor = None):
             return (monster, index)
 
     if type(all_stats[index].contents[0]) == bs4.element.NavigableString:
-        monster['name'] = namestr_contents[0].string.lower()
+        monster['name'] = namestr_contents[0].string.lower().strip()
     else:
-        monster['name'] = namestr_contents[0].lower()
+        monster['name'] = namestr_contents[0].lower().strip()
 
     try:
         monster['challenge'] = float(Fraction(namestr_contents[1].string.split()[1].lower()))
@@ -178,7 +178,7 @@ def get_monster(index, all_stats, flavor = None):
             try:
 
                 weapon = {}
-                weapon['name'] = re.search('([a-zA-Z]+[a-zA-Z ]*)', string).group(0)
+                weapon['name'] = re.search('([a-zA-Z]+[a-zA-Z ]*)', string).group(0).strip()
                 damage = re.search('(\(.+\))', string).group(0)
                 dice = re.search('(\dd\d+)', string)
                 flat = re.search('(?:[\+-])(\d+)', string)

@@ -2,6 +2,9 @@ import random
 import re
 import json
 
+from combat import *
+from pdb import set_trace
+
 def load_words(path):
     with open(path, 'r') as f:
         for line in f:
@@ -42,13 +45,15 @@ class MarkovGenerator:
 town_generator = MarkovGenerator(load_words('../data/towns.txt'), 2)
 name_generator = MarkovGenerator(load_words('../data/names_male.txt'), 3)
 occupation_list = list(load_words('../data/occupations.txt'))
+color_list = list(load_words('../data/colors.txt'))
 
 with open('../monsters.json', 'r') as monster_file:
     monsters_list = json.load(monster_file)
 
 def expand(sentence, **kwargs):
+    # set_trace()
     while True:
-        matches = list(re.finditer('<(.*?)>', sentence))
+        matches = list(re.finditer('<([!a-zA-Z0-9:_]*?)>', sentence))
         if not matches:
             return sentence 
         for match in reversed(matches):
@@ -73,8 +78,11 @@ def sentence(words):
 def book_title():
     return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n'
 
-def chapter_title():
-    return '## Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>\n\n'
+def chapter_title(title):
+    return '## <a name="chapter<!chapter_number>"></a> ' + title + '\n\n'
+
+def chapter_title_plain():
+    return 'Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>'
 
 def town():
     return town_generator.generate()
@@ -84,6 +92,111 @@ def name():
 
 def occupation():
     return random.choice(occupation_list)
+
+def color():
+    return random.choice(color_list)
+
+def positive_trait():
+    return random.choice([
+        'bold',
+        'courageous',
+        'daring',
+        'epic',
+        'fearless',
+        'gallant',
+        'grand',
+        'gutsy',
+        'noble',
+        'valiant',
+        'classic',
+        'elevated',
+        'bigger than life',
+        'dauntless',
+        'doughty',
+        'exaggerated',
+        'fire-eating',
+        'grandiose',
+        'gritty',
+        'gutty',
+        'high-flown',
+        'impavid',
+        'inflated',
+        'intrepid',
+        'lion-hearted',
+        'mythological',
+        'stand tall',
+        'stouthearted',
+        'unafraid',
+        'valorous',
+        'undaunted'
+    ])
+
+def negative_trait():
+    return random.choice([
+        'hideous',
+        'smelly',
+        'terrible',
+        'menacing',
+        'awful',
+        'ruinous',
+        'evil',
+        'abhorrent',
+        'abominable',
+        'appalling',
+        'awful',
+        'cruel',
+        'disgusting',
+        'dreadful',
+        'eerie',
+        'frightful',
+        'ghastly',
+        'grim',
+        'grisly',
+        'gruesome',
+        'heinous',
+        'hideous',
+        'horrendous',
+        'horrid',
+        'lousy',
+        'nasty',
+        'scandalous',
+        'scary',
+        'shameful',
+        'shocking',
+        'terrible',
+        'terrifying',
+        'beastly',
+        'detestable',
+        'disagreeable',
+        'execrable',
+        'fairy',
+        'fearful',
+        'loathsome',
+        'lurid',
+        'mean',
+        'obnoxious',
+        'offensive',
+        'repellent',
+        'repulsive',
+        'revolting',
+        'sickie',
+        'ungodly',
+        'unholy',
+        'unkind'
+    ])
+
+def pc_name():
+    return random.choice([
+        '<!pc_name>',
+        'the <positive_trait> <!pc_name>',
+        '<!pc_name> the <positive_trait>',
+        'our hero',
+        'the adventurer',
+        'he',
+        'he',
+        'he',
+        'he'
+    ])
 
 def activity():
     return random.choice([
