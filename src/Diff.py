@@ -26,3 +26,6 @@ def diffPoints(start, end):
         return 1
     return 0
 
+def search(start, end, events):
+    
+
