@@ -167,7 +167,7 @@ def get_monster(index, all_stats, flavor = None):
             pass
         trait = ''
         try:
-            trait = all_stats[index].b.string.lower()
+            trait = all_stats[index].contents[0].text.lower()
         except:
             index += 1
             continue
