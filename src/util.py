@@ -52,18 +52,29 @@ def expand(sentence, **kwargs):
         if not matches:
             return sentence 
         for match in reversed(matches):
-            key = match.group(1)
-            if key[0] == '!':
-                replacement = kwargs[key[1:]]
+            parts = match.group(1).split(':')
+            
+            if parts[0][0] == '!':
+                replacement = kwargs[parts[0][1:]]
             else:
-                replacement = globals()[key]()
+                replacement = globals()[parts[0]]()
+            
+            if len(parts) >= 2:
+                replacement = globals()[parts[1]](replacement)
+
             sentence = sentence[:match.start(0)] + replacement + sentence[match.end(0):]
+
+def title(words):
+    return ' '.join((word[0].upper() + word[1:]) for word in words.split(' '))
+
+def sentence(words):
+    return words[0].upper() + words[1:]
 
 def book_title():
     return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n'
 
 def chapter_title():
-    return '## Chapter <!chapter_number>: <!town_name> and the <!monster_name>\n\n'
+    return '## Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>\n\n'
 
 def town():
     return town_generator.generate()
@@ -131,9 +142,7 @@ def building():
 def direction():
     return random.choice([
         'left',
-        'right',
-        'slightly left',
-        'slightly right'
+        'right'
     ])
 
 def in_town_directions_end():
@@ -145,9 +154,9 @@ def in_town_directions_end():
 
 def in_town_directions():
     return random.choice([
-        'down the street to the <building> and turn <direction>. You\'ll see a <building>. Go <in_town_directions>',
-        'past the <building>. Continue <in_town_directions>',
-        'into the market and walk towards the <building>. Eventually you need to walk <in_town_directions>',
+        'down the street to the <building> and <direction>. You\'ll see a <building>. It\'s <in_town_directions>',
+        'past the <building>. <in_town_directions_end>',
+        'into the market and towards the <building>. Eventually you need to walk <in_town_directions>',
         'just a bit further down the street. <in_town_directions_end>'
     ])
 
@@ -186,7 +195,7 @@ def town_intro():
         '"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"\n\n' +
         random.choice([
             '"<!armor_name> is the best in town. His shop is <in_town_directions> ',
-            '"Go <in_town_directions> You\'ll find <!armor_name>, the best weapons expert we\'ve got. ',
+            '"The armory is <in_town_directions> You\'ll find <!armor_name>, the best weapons expert we\'ve got. ',
             '"<!armor_name> is <in_town_directions> Tell him I sent you. '
         ]) +
         random.choice([
@@ -204,7 +213,7 @@ def monster_name():
 
 def monster_description(name):
     matches = [monster for monster in monsters_list if monster['name'].strip() == name]
-    if matches:
+    if matches and matches[0]['description']:
         return matches[0]['description']
     else:
         return ['The monster ' + name + ' is terrifying for sure, but I honestly don\'t know much about that beast.']
@@ -217,7 +226,7 @@ def armory_intro():
         ]) +
         '"I\'m <!pc_name>, a brave adventurer seeking to destroy <!wiz_name>. What dangers lurk nearby?" he asked.\n\n' +
         random.choice([
-            '<!armor_name> grabbed a dusty book from the shelf and flipped through it. Pictures of <monster_name>s and <monster_name>s flew by.'
+            '<!armor_name> grabbed a dusty book from the shelf and flipped through it. Pictures of <monster_name>s and <monster_name>s flew by. '
             'Eventually he settled on a page and started to explain.\n\n',
             '<!armor_name> lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The <!monster_name>."\n\n',
             '"Brave you say? You may have fought the <monster_name>, or perhaps even the <monster_name>, but that\'s nothing compared to the <!monster_name> we\'ve got."\n\n'
