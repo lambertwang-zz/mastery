@@ -1,10 +1,14 @@
 import util
+import combat
+
+TARGET_WORD_COUNT = 100
 
 def chapter(args):
     args.update({
         'armor_name': util.name(),
         'town_name': util.town(),
-        'monster_name': util.monster_name()
+        'monster_name': util.monster_name(),
+        'pc_weapon': 'sword'
     })
 
     result = ''
@@ -20,6 +24,8 @@ def chapter(args):
         result += util.expand(util.armory_more(), **args)
 
     result += util.expand(util.armory_no_more(), **args)
+    result += util.expand(combat.combat_intro(args['monster_name']), **args)
+    result += util.expand(combat.combat(), **args)
     return result
 
 def book():
@@ -32,7 +38,8 @@ def book():
     word_count = len(result.split(' '))
 
     chapter_number = 1
-    while word_count < 50000:
+    global TARGET_WORD_COUNT
+    while word_count < TARGET_WORD_COUNT:
         args['chapter_number'] = str(chapter_number)
         chapter_text = chapter(args)
         word_count += len(chapter_text.split(' '))
