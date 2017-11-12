@@ -78,8 +78,11 @@ def sentence(words):
 def book_title():
     return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n'
 
-def chapter_title():
-    return '## <a name="chapter<!chapter_number>"></a> Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>\n\n'
+def chapter_title(title):
+    return '## <a name="chapter<!chapter_number>"></a> ' + title + '\n\n'
+
+def chapter_title_plain():
+    return 'Chapter <!chapter_number>: <!town_name> and the <!monster_name:title>'
 
 def town():
     return town_generator.generate()

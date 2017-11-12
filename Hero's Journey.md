@@ -1,3264 +1,3326 @@
-[Chapter 1](#chapter1)
+# Zamos's Journey to Defeat the Evil Wizard Audo _(and his many battles along the way)_
 
-[Chapter 2](#chapter2)
+[Chapter 1: Suthordelfort and the Dybbuk](#chapter1)
 
-[Chapter 3](#chapter3)
+[Chapter 2: Harlow Ter Hary and the Pachycephalosaurus](#chapter2)
 
-[Chapter 4](#chapter4)
+[Chapter 3: Minge and the Poison Frog](#chapter3)
 
-[Chapter 5](#chapter5)
+[Chapter 4: Bantral and the Vouivre](#chapter4)
 
-[Chapter 6](#chapter6)
+[Chapter 5: Soust Hills Park and the Wyrmwraith](#chapter5)
 
-[Chapter 7](#chapter7)
+[Chapter 6: Barner Road and the Nosferatu](#chapter6)
 
-[Chapter 8](#chapter8)
+[Chapter 7: Will and the Mastodon](#chapter7)
 
-[Chapter 9](#chapter9)
+[Chapter 8: Ham and the Horn Caterpillar](#chapter8)
 
-[Chapter 10](#chapter10)
+[Chapter 9: Burt and the Green Hag](#chapter9)
 
-[Chapter 11](#chapter11)
+[Chapter 10: Archmoo and the Thought Eater](#chapter10)
 
-[Chapter 12](#chapter12)
+[Chapter 11: Crow Wycoth Whelouthree and the Otyugh](#chapter11)
 
-[Chapter 13](#chapter13)
+[Chapter 12: Bucens and the Bearded Devil (barbazu)](#chapter12)
 
-[Chapter 14](#chapter14)
+[Chapter 13: Regill and the Orang-pendak](#chapter13)
 
-[Chapter 15](#chapter15)
+[Chapter 14: Norlow & Ladden and the Spider Swarm](#chapter14)
 
-[Chapter 16](#chapter16)
+[Chapter 15: Becouncoride Easte and the Janni](#chapter15)
 
-[Chapter 17](#chapter17)
+[Chapter 16: Che Parrouthfier and the Azruverda](#chapter16)
 
-[Chapter 18](#chapter18)
+[Chapter 17: Sough and the Dragonne](#chapter17)
 
-[Chapter 19](#chapter19)
+[Chapter 18: Lank and the Ocean Giant](#chapter18)
 
-[Chapter 20](#chapter20)
+[Chapter 19: Cam and the Moon Giant](#chapter19)
 
-[Chapter 21](#chapter21)
+[Chapter 20: Oxforogroad and the Agyra](#chapter20)
 
-[Chapter 22](#chapter22)
+[Chapter 21: Redsens Cirmoury and the Swamp Mummy](#chapter21)
 
-[Chapter 23](#chapter23)
+[Chapter 22: Maidgater Stond Bath and the Yithian](#chapter22)
 
-[Chapter 24](#chapter24)
+[Chapter 23: Bywoorperd and the Giant Leech](#chapter23)
 
-[Chapter 25](#chapter25)
+[Chapter 24: Pornpinst & Waster Paidge and the Fuath](#chapter24)
 
-[Chapter 26](#chapter26)
-
-[Chapter 27](#chapter27)
+[Chapter 25: Bake and the Clockwork Leviathan](#chapter25)
 
 
-# Fluvand's Journey to Defeat the Evil Wizard Tibbon _(and his many battles along the way)_
+## <a name="chapter1"></a> Chapter 1: Suthordelfort and the Dybbuk
 
-## <a name="chapter1"></a> Chapter 1: Foring Her and the Cacodaemon
+Zamos followed a dirt path into the village of Suthordelfort. Nearby, a cowherd gazed at him from an open window. While the curate gazed at him from an open window, a pikeman gazed at him from an open window. Zamos continued down the path. While the parish priest sat by the side of the road, a spearman rushed by quickly, ignoring him.
 
-Fluvand followed a dirt path into the village of Foring Her. A potboy scuttled out of his way. Nearby, a clothier eyed him suspiciously. Fluvand continued down the path. Nearby, a chamberlain talked excitedly with what appeared to be a beerbrewer.
+Eventually, Zamos arrived at the town square, where he found a hurdle maker. Zamos approached him, hoping for some advice.
 
-Eventually, Fluvand arrived at the town square, where he found a pissprophet. The man, eying his foreboding cloak, beckoned him forward.
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
+
+Two rakers eyed him suspiciously. The man quietly reminised about the past, but eventually responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. There's a small door. You'll find Aspuanippus, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Zamos hurried towards the armory. The hay merchant finished an apple and tossed the core aside with a maid. Two bargemans threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Aspuanippus looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Aspuanippus grabbed a dusty book from the shelf and flipped through it. Pictures of erlkings and sylphs flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "A dybbuk is a misplaced soul who has eluded judgment because of a some great transgression or a pitiful suicide. Like a ghost, it lingers on in the mortal world, either trying to fulfill an insane need to right some great failure that has marked its soul for eternity or merely to spread the torment it is condemned to face for eternity. Bodiless and left to wander, dybbuks grow increasingly bitter and resentful over the loss of their bodies and endlessly seek mortal or even inanimate forms to steal and use to sow suffering. Vile manipulators, they seek bodies that have the greatest potential to cause pain in those closest to their victims, taking pleasure in shifting a leader's agenda toward the destruction of her followers or torturing an innocent from within. Dybbuks also often animate unliving things to spread fear, reveling in the chaos resulting from manipulating corpses to confuse and terrify. Most also realize they have all of eternity to torment their chosen victims, and might lurk quietly near a living target for weeks or months, waiting for the right moment to act and begin their terrors anew."
+
+Zamos slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a ungodly dybbuk in the distance! Zamos the intrepidour hero readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! He landed a massive hit on dybbuk! The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dybbuk struck with its pain touch! The horrendous dybbuk failed to land its hit. Zamos leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The dybbuk struck with its pain touch! He stunbles backward, gasping for breath. 
+
+The dybbuk struck with its pain touch! He jumps out of the way. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses Zamos the undauntedour hero. Zamos leaned on his sword to catch a moment's respite. Zamos the dauntlessour hero was worn out by the combat. The dybbuk struck with its pain touch! He winces from the pain but continues fighting. 
+
+The dybbuk struck with its pain touch! The doughty Zamos blocks the strike with his sword. Zamos the stoutheartedour hero stumbles to his knee, gasping for breath. The dybbuk struck with its pain touch! He blocks the strike with his sword. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The adventurer pulls a rufous potion from his pack and drinks it. He is reinvigorated. The dybbuk struck with its pain touch! The lousy dybbuk failed to land its hit. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! The adventurer jumps out of the way. 
+
+He pulls a teal potion from his pack and drinks it. He is reinvigorated. The dybbuk leans low, ready to strike with its might. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dybbuk struck with its pain touch! The mythological Zamos blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dybbuk struck with its pain touch! The mean dybbuk failed to land its hit. 
+
+He pulls a olive potion from his pack and drinks it. He is reinvigorated. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! Zamos stunbles backward, gasping for breath. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The dybbuk struck with its pain touch! He jumps out of the way. Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The dybbuk struck with its pain touch! Zamos jumps out of the way. The exhilarating combat made the hours seem like seconds. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk leans low, ready to strike with its might. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+He sneaked around to dybbuk's blind spot. The dybbuk leans low, ready to strike with its might. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk was staggered by the immense force. The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+Zamos the fire-eatingour hero sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk took a glancing blow. 
+
+The dybbuk leans low, ready to strike with its might. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+Zamos the high-flownour hero sneaked around to dybbuk's blind spot. The dybbuk struck with its pain touch! The horrid dybbuk failed to land its hit. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The adventurer landed a massive hit on dybbuk! The monster was stunned by the attack. The high-flown Zamos sneaked around to dybbuk's blind spot. 
+
+The dybbuk leans low, ready to strike with its might. Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk was struck by the blow! 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The daring Zamos sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The gutty Zamos sneaked around to dybbuk's blind spot. The dybbuk struck with its pain touch! Zamos reeled back in pain. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses Zamos. Zamos the nobleour hero stumbles to his knee, gasping for breath. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk struck with its pain touch! Zamos reeled back in pain. Zamos the grittyour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The dybbuk leans low, ready to strike with its might. 
+
+He pulls a light cyan potion from his pack and drinks it. He is reinvigorated. The dybbuk struck with its pain touch! The gritty Zamos jumps out of the way. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk was struck by the blow! The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! Zamos reeled back in pain. Zamos stumbles to his knee, gasping for breath. The dybbuk struck with its pain touch! Zamos the high-flownour hero jumps out of the way. 
+
+The dybbuk struck with its pain touch! He jumps out of the way. he stumbles to his knee, gasping for breath. The dybbuk struck with its pain touch! He stunbles backward, gasping for breath. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. 
+
+The dybbuk struck with its pain touch! The adventurer blocks the strike with his sword. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk leans low, ready to strike with its might. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! He blocks the strike with his sword. Zamos the nobleour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The dybbuk struck with its pain touch! Zamos winces from the pain but continues fighting. 
+
+Zamos the gallantour hero sneaked around to dybbuk's blind spot. The dybbuk leans low, ready to strike with its might. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The dybbuk struck with its pain touch! Zamos reeled back in pain. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+Zamos pulls a granny smith apple potion from his pack and drinks it. He is reinvigorated. The dybbuk struck with its pain touch! Zamos jumps out of the way. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to dybbuk's blind spot. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! The intrepid Zamos jumps out of the way. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. The dybbuk struck with its pain touch! The adventurer winces from the pain but continues fighting. Zamos lunged toward the dybbuk, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to dybbuk's blind spot. The dybbuk leans low, ready to strike with its might. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. The adventurer sneaked around to dybbuk's blind spot. 
+
+Zamos sneaked around to dybbuk's blind spot. The dybbuk leans low, ready to strike with its might. 
+
+Zamos the grittyour hero pulls a fluorescent yellow potion from his pack and drinks it. He is reinvigorated. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses the lion-hearted Zamos. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! Zamos the elevatedour hero winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk struck with its pain touch! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk struck with its pain touch! The fearful dybbuk failed to land its hit. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+He sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses the mythological Zamos. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! Zamos stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The dybbuk leans low, ready to strike with its might. 
+
+The dybbuk struck with its pain touch! Zamos reeled back in pain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dybbuk struck with its pain touch! He stunbles backward, gasping for breath. 
+
+The dybbuk struck with its pain touch! The execrable dybbuk failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dybbuk struck with its pain touch! Zamos the boldour hero blocks the strike with his sword. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. The gritty Zamos leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The dybbuk struck with its pain touch! He stunbles backward, gasping for breath. 
+
+The dybbuk leans low, ready to strike with its might. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! He winces from the pain but continues fighting. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. He pulls a blue pigment potion from his pack and drinks it. He is reinvigorated. 
+
+The dybbuk struck with its pain touch! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. 
+
+The dybbuk struck with its pain touch! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The dybbuk struck with its pain touch! Zamos reeled back in pain. 
+
+The dybbuk struck with its pain touch! The offensive dybbuk failed to land its hit. Zamos the gallantour hero stumbles to his knee, gasping for breath. The dybbuk leans low, ready to strike with its might. 
+
+He pulls a bazaar potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk was struck by the blow! 
+
+He pulls a british racing green potion from his pack and drinks it. He is reinvigorated. The dybbuk struck with its pain touch! He blocks the strike with his sword. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He sneaked around to dybbuk's blind spot. 
+
+The dybbuk struck with its pain touch! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The dybbuk leans low, ready to strike with its might. 
+
+He sneaked around to dybbuk's blind spot. The dybbuk leans low, ready to strike with its might. 
+
+The elevated Zamos pulls a old rose potion from his pack and drinks it. He is reinvigorated. The dybbuk leans low, ready to strike with its might. 
+
+He sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! The attack from Zamos surely left a impression. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! Zamos the inflatedour hero jumps out of the way. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+The dybbuk struck with its pain touch! The offensive dybbuk failed to land its hit. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The monster was stunned by the attack. He pulls a pale goldenrod potion from his pack and drinks it. He is reinvigorated. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! The lion-hearted Zamos blocks the strike with his sword. 
+
+The undaunted Zamos sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. The dybbuk struck with its pain touch! He blocks the strike with his sword. Zamos lunged toward the dybbuk, his sword ready to strike! The dybbuk took a glancing blow. 
+
+The dybbuk struck with its pain touch! The beastly dybbuk failed to land its hit. Zamos lunged toward the dybbuk, his sword ready to strike! The slippery dybbuk evaded Zamos's hit. 
+
+He sneaked around to dybbuk's blind spot. Zamos lunged toward the dybbuk, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+He pulls a pakistan green potion from his pack and drinks it. He is reinvigorated. The dybbuk leans low, ready to strike with its might. 
+
+He pulls a bright ube potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the dybbuk, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The adventurer sneaked around to dybbuk's blind spot. The dybbuk struck with its pain touch! He blocks the strike with his sword. 
+
+The dybbuk leans low, ready to strike with its might. The dybbuk struck with its pain touch! He blocks the strike with his sword. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Aspuanippus was talking about."
+
+## <a name="chapter2"></a> Chapter 2: Harlow Ter Hary and the Pachycephalosaurus
+
+Zamos followed a dirt path into the village of Harlow Ter Hary. While the swordsmith loaded a market stall with wares, a stillroom maid stood by a market stall, negotiating with the pikeman. Nearby, a pursuivant ran from person to person, asking if they had seen Alkmain. Zamos continued down the path. The shingler bit into an apple with a lorimer.
+
+Eventually, Zamos arrived at the town square, where he found a potboy. The man, eying his dangerous demeanor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-A halberdier slept in an alleyway. He still looked suspiciousHe finally responded.
+While the sailor stood by a market stall, negotiating with the rat catcher, a tanner scuttled out of his way. The man eyed him thoughtfully, then finally responded.
 
-"Our village of Betster Parsbrien Couces will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is past the inn. There's a small door. You'll find Frith, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Fluvand hurried towards the armory. A pavyler eyed him suspiciously. A monk gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Frith looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Frith lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The cacodaemon."
-
-Frith returned to the book of monsters on the desk and pointed at the terrifying illustration. "Any evil outsider can, as a standard action, ingest a soul gem. Doing so frees the soul within, but condemns it to one of the lower planes (though the soul can be returned to life as normal). The outsider gains fast healing 2 for a number of rounds equal to its Hit Dice."
-
-"But my weapons may be too weak. Are there any other ways to defeat the cacodaemon?" Fluvand asked.
-
-Frith returned to the book of monsters on the desk and pointed at the terrifying illustration. "The least of daemonkind, cacodaemons spawn from eddies of angry, violent, and demented souls amid the mists of Abaddon. Dim-witted but utterly evil, they endlessly seek to cause pain and indulge their hunger for mortal souls. Many more powerful fiends keep cacodaemons as pets, if only to be able to harvest the tiny creatures' soul gems. A 7th-level spellcaster can gain a cacodaemon as a familiar if she has the Improved Familiar feat."
-
-"But my weapons may be too weak. Are there any other ways to defeat the cacodaemon?" Fluvand asked.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a horrid cacodaemon in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-He sneaked around to cacodaemon's blind spot. The cacodaemon struck with its bite! Fluvand the grandioseour hero stunbles backward, gasping for breath. 
-
-The cacodaemon leans low, ready to strike with its might. Fluvand lunged toward the cacodaemon, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
-
-The cacodaemon leans low, ready to strike with its might. The cacodaemon struck with its bite! He stunbles backward, gasping for breath. 
-
-The cacodaemon leans low, ready to strike with its might. Fluvand lunged toward the cacodaemon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The cacodaemon struck with its bite! The obnoxious cacodaemon failed to land its hit. the elevated Fluvand stumbles to his knee, gasping for breath. The cacodaemon leans low, ready to strike with its might. 
-
-The cacodaemon struck with its bite! The scary cacodaemon failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The cacodaemon struck with its bite! Fluvand stunbles backward, gasping for breath. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Frith was talking about."
-
-## <a name="chapter2"></a> Chapter 2: Hile and the Dire Ape (gigantopithecus)
-
-Fluvand followed a dirt path into the village of Hile. The astronomer ran from person to person, asking if they had seen Dama with a purse maker. Nearby, a stillroom maid talked excitedly with what appeared to be a bodger. Fluvand continued down the path. The currier eyed him suspiciously with a gemcutter.
-
-Eventually, Fluvand arrived at the town square, where he found a woodturner. Fluvand approached him, hoping for some advice.
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-While the taverner hawked fine imported goods from She-Hill, a tentsman gazed at him from an open window. He still looked suspicious, then finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Paschard is the best in town. His shop is just a bit further down the street. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Tibbon gone as much as anybody."
+"The armory is past the tavern. There's a small door. You'll find Gidius, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. Two potboys eyed him suspiciously. Two rugmakers loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. Two clothiers rushed by quickly, ignoring him. Two fruitiers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Paschard looked up from his work behind a counter at Fluvand.
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the jiang-shi, or perhaps even the warsworn, but that's nothing compared to the dire ape (gigantopithecus) we've got."
+Gidius lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The pachycephalosaurus."
 
-"Known to many scholars as the gigantopithecus, the dire ape is a much more dangerous and bestial creature than the relatively peaceful gorilla. An adult male dire ape stands 9 feet tall and weighs 1,200 pounds. The dire ape attacks anything that intrudes on its territory, including other dire apes not of its troop, and does not break off the attack until the trespasser is dead or runs off." Paschard explained.
+Gidius returned to the book of monsters on the desk and pointed at the terrifying illustration. "A pachycephalosaurus is a normally peaceful dinosaur that grows irate and violent during mating season or when its herd is intruded upon by potential predators. The dinosaur's skull has a distinctive dome-shaped crown surrounded by numerous bony horns—this, combined with the dinosaur's powerful, compact neck, allows it to make battering-ram-like charges capable of inflicting great damage."
 
-Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"But my weapons may be too weak. Are there any other ways to defeat the pachycephalosaurus?" Zamos asked.
 
-The armorer sighed and continued. "A dire ape makes no displays of toughness or warnings before it attacks—it simply leaps into action with little or no provocation, tearing at its opponents with claws and teeth. If a dire ape is stymied by a heavily armored foe, it attempts to grapple its foe, pin it to the ground, and rend it."
+Gidius returned to the book of monsters on the desk and pointed at the terrifying illustration. "Pachycephalosauruses grow to a length of 15 feet and weigh 1,400 pounds. "
 
-"But my weapons may be too weak. Are there any other ways to defeat the dire ape (gigantopithecus)?" Fluvand asked.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a execrable dire ape (gigantopithecus) in the distance! Fluvand the intrepidour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The dire ape (gigantopithecus) was struck by the blow! 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand jumps out of the way. 
-
-The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. The valorous Fluvand leaned on his sword to catch a moment's respite. The mythological Fluvand was worn out by the combat. The dire ape (gigantopithecus) struck with its bite! He jumps out of the way. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! Although he's hit landed, dire ape (gigantopithecus) is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses the inflated Fluvand. 
-
-The dire ape (gigantopithecus) struck with its bite! The repellent dire ape (gigantopithecus) failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! Although he's hit landed, dire ape (gigantopithecus) is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) struck with its bite! The appalling dire ape (gigantopithecus) failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-Fluvand the high-flownour hero pulls a orange color wheel potion from his pack and drinks it. He is reinvigorated. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand reeled back in pain. 
-
-He sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) struck with its bite! He winces from the pain but continues fighting. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! Fluvand the gutsyour hero blocks the strike with his sword. 
-
-The dire ape (gigantopithecus) struck with its bite! He blocks the strike with his sword. Fluvand the lion-heartedour hero stumbles to his knee, gasping for breath. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
-
-He sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The dire ape (gigantopithecus) was struck by the blow! The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to dire ape (gigantopithecus)'s blind spot. 
-
-The dire ape (gigantopithecus) struck with its bite! The lurid dire ape (gigantopithecus) failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-Fluvand the dauntlessour hero sneaked around to dire ape (gigantopithecus)'s blind spot. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The bigger than life Fluvand pulls a fawn potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! He jumps out of the way. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. The dire ape (gigantopithecus) struck with its bite! The disagreeable dire ape (gigantopithecus) failed to land its hit. 
-
-The doughty Fluvand pulls a coffee potion from his pack and drinks it. He is reinvigorated. The dire ape (gigantopithecus) leans low, ready to strike with its might. 
-
-Fluvand the stoutheartedour hero sneaked around to dire ape (gigantopithecus)'s blind spot. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-He sneaked around to dire ape (gigantopithecus)'s blind spot. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-The dire ape (gigantopithecus) leans low, ready to strike with its might. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
-
-He pulls a deep magenta potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The attack from he surely left a impression. The dire ape (gigantopithecus) struck with its bite! The fire-eating Fluvand blocks the strike with his sword. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! A sharp crack was heard as the strike left its mark. The dire ape (gigantopithecus) struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The attack from Fluvand the daringour hero surely left a impression. 
-
-Fluvand lunged toward the dire ape (gigantopithecus), his sword ready to strike! The slippery dire ape (gigantopithecus) evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dire ape (gigantopithecus)'s blind spot. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Paschard was talking about."
-
-## <a name="chapter3"></a> Chapter 3: Cam Hightsby and the Slithering Tracker
-
-Fluvand followed a dirt path into the village of Cam Hightsby. While the rat catcher hawked fine imported goods from Sunlaccas Pand, a mercer scuttled out of his way. Nearby, a friar ran from person to person, asking if they had seen Meric. Fluvand continued down the path. A crossbowman hawked fine imported goods from Dudbrione.
-
-Eventually, Fluvand arrived at the town square, where he found a scabbard maker. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
-
-While the famulus loaded a market stall with wares, a purse maker eyed him suspiciously. He still looked suspicious, but eventually responded.
-
-"Our village of Scushfier will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Formos is down the street to the warehouse and left. You'll see a monastery. It's into the market and towards the barn. Eventually you need to walk past the tavern. It's just to the left. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Fluvand hurried towards the armory. Two bowmans eyed him suspiciously. While the chandler threw punches, a exchequer sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the taotieh, or perhaps even the stone golem, but that's nothing compared to the slithering tracker we've got."
-
-Formos returned to the book of monsters on the desk and pointed at the terrifying illustration. "An alien inhabitant of the dark underworld, the slithering tracker is a glistening creature of transparent ooze, typically about 3 inches thick and at least 3 feet in diameter. When still, it looks like a wet patch of stone or a patch of condensation on a wall. Comparatively slow moving, the slithering tracker relies on its transparency and knack for ambushing to surprise prey."
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Once a slithering tracker has paralyzed a living creature, it flows over an exposed patch of flesh, grabbing on and draining blood from the victim. A slithering tracker can drain a human-sized creature of its blood with shocking swiftness, leaving only a desiccated carcass behind. A slithering tracker can go some time between meals, but never turns down easy prey. The larger a slithering tracker grows, the more voracious its appetite becomes, until, after a particularly large feeding, the creature splits into two smaller slithering trackers that eventually go their separate ways in search of feeding territory."
-
-"I could handle that. Tell me again, what makes the slithering tracker so bad?" Fluvand responded.
-
-The armorer sighed and continued. "Slithering trackers are not harmed by bright light, but still prefer to avoid areas of intense illumination or natural sunlight, and so only venture aboveground at night. They prefer the cool, damp environment of their native caves and tunnels."
-
-Fluvand slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Although intelligent and cunning, slithering trackers are entirely alien creatures. They do not possess any language of their own, although they can usually understand the dominant language of the region they dwell in—usually Undercommon. Some underworld inhabitants do manage to forge alliances with slithering trackers, or at least exist with them in symbiosis by providing the creatures with easy and regular prey, but as one can never truly know a slithering tracker's desires or motivations, such alliances are dangerous to rely upon." Formos explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the slithering tracker?" Fluvand asked.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a unkind slithering tracker in the distance! Fluvand the fire-eatingour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! Although Fluvand's hit landed, slithering tracker is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The lion-hearted Fluvand sneaked around to slithering tracker's blind spot. The slithering tracker struck with its slams! The unafraid Fluvand blocks the strike with his sword. 
-
-The slithering tracker struck with its slams! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The slithering tracker leans low, ready to strike with its might. 
-
-The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! Fluvand the guttyour hero blocks the strike with his sword. 
-
-Fluvand the guttyour hero pulls a pale taupe potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! He blocks the strike with his sword. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The slithering tracker struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! The elevated Fluvand jumps out of the way. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The doughty Fluvand pulls a bright green potion from his pack and drinks it. He is reinvigorated. The slithering tracker struck with its slams! Fluvand blocks the strike with his sword. 
-
-The slithering tracker struck with its slams! The daring Fluvand blocks the strike with his sword. the lion-hearted Fluvand stumbles to his knee, gasping for breath. The slithering tracker struck with its slams! The grisly slithering tracker failed to land its hit. 
-
-He sneaked around to slithering tracker's blind spot. The slithering tracker leans low, ready to strike with its might. 
-
-He sneaked around to slithering tracker's blind spot. The slithering tracker leans low, ready to strike with its might. 
-
-He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-He pulls a dark pink potion from his pack and drinks it. He is reinvigorated. The slithering tracker leans low, ready to strike with its might. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! That blow seemed like it could break some bones. The slithering tracker struck with its slams! The adventurer blocks the strike with his sword. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The slithering tracker struck with its slams! Fluvand jumps out of the way. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The slithering tracker leans low, ready to strike with its might. 
-
-He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. He pulls a la salle green potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! Although Fluvand the nobleour hero's hit landed, slithering tracker is mostly unphasedThe monster was stunned by the attack. The high-flown Fluvand sneaked around to slithering tracker's blind spot. 
-
-He sneaked around to slithering tracker's blind spot. Fluvand lunged toward the slithering tracker, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand pulls a medium slate blue potion from his pack and drinks it. He is reinvigorated. The slithering tracker struck with its slams! He jumps out of the way. 
-
-The noble Fluvand pulls a bazaar potion from his pack and drinks it. He is reinvigorated. The slithering tracker leans low, ready to strike with its might. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the fearlessour hero sneaked around to slithering tracker's blind spot. 
-
-The slithering tracker leans low, ready to strike with its might. The slithering tracker struck with its slams! Fluvand winces from the pain but continues fighting. 
-
-The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-Fluvand lunged toward the slithering tracker, his sword ready to strike! The shattering blow from he rumbled through the ground. The slithering tracker struck with its slams! Fluvand the elevatedour hero stunbles backward, gasping for breath. Fluvand lunged toward the slithering tracker, his sword ready to strike! The attack from he surely left a impression. 
-
-The slithering tracker leans low, ready to strike with its might. Fluvand lunged toward the slithering tracker, his sword ready to strike! The slippery slithering tracker evaded Fluvand's hit. 
-
-The slithering tracker struck with its slams! He jumps out of the way. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The slithering tracker struck with its slams! The adventurer jumps out of the way. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Formos was talking about."
-
-## <a name="chapter4"></a> Chapter 4: Havonsbridge Park and the Tojanida
-
-Fluvand followed a dirt path into the village of Havonsbridge Park. The pavior loaded a market stall with wares with a alchemist. While the clockmaker rushed by quickly, ignoring him, a ragpicker slowly carried supplies. Fluvand continued down the path. Nearby, a chainmaker eyed him suspiciously.
-
-Eventually, Fluvand arrived at the town square, where he found a weaver. Fluvand approached him, hoping for some advice.
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-The blockcutter bit into an apple with a pavior. The man quietly reminised about the pastHe finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Villmon is the best in town. His shop is down the street to the barn and left. You'll see a stables. It's down the street to the inn and right. You'll see a monastery. It's down the street to the cattle barn and right. You'll see a cattle barn. It's past the barn. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Fluvand hurried towards the armory. Two bearleaders loaded a market stall with wares. Two tallowchandlers gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Villmon lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The tojanida."
-
-The armorer sighed and continued. "Tojanidas are bizarre natives from the Plane of Water that resemble mixes between monstrous crabs and enormous snapping turtles. Originally elemental beings of water, tojanidas were bound into their strange forms long ago for unclear reasons, and no longer know how they might eventually return to their pure and formless state. Determined to preserve their pride, the grotesque tojanidas ply the waters of the planes seeking hedonistic pleasures—especially culinary ones—and the adoration of other races. Loquacious when addressed with the proper respect, they make excellent heralds and emissaries for more powerful beings, and often enjoy posing as such even when operating on their own. When riled, however, tojanidas make fearsome opponents, violent and eager juggernauts with snapping jaws and clacking pincers."
-
-Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Adult tojanidas are roughly 6 feet long and weigh several hundred pounds. When threatened, a tojanida can retract its limbs most of the way into its shell, which is an irremovable part of its body. The ring of eyes completely encircling the tojanida's shell along its rim makes the creature extremely difficult to catch by surprise. While tojanidas adore eating, as they find flavor and texture to be two of the most fascinating senses, they don't actually need to consume food, instead drawing sustenance directly from the currents of arcane energy all around them via the magic of their shells." Villmon explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the tojanida?" Fluvand asked.
-
-The armorer sighed and continued. "Blessed (some might say cursed) with extremely long racial memories, tojanidas wander the oceans and lakes of innumerable worlds, attempting to find unusual physical pleasures or conversation capable of distracting them from the insufferable ennui and apathy born of remembering their ancestors' experiences. Though the tojanidas themselves may not appreciate the burden of memory, adventurers and scholars often seek the use of a tojanida's recalled lore."
-
-"But my weapons may be too weak. Are there any other ways to defeat the tojanida?" Fluvand asked.
+"But my weapons may be too weak. Are there any other ways to defeat the pachycephalosaurus?" Zamos asked.
 
 "That's all I can tell you."
 
-Fluvand saw a evil tojanida in the distance! Our hero fixed his gaze on the fairy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a detestable pachycephalosaurus in the distance! He readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-He sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
+The pachycephalosaurus struck with its slam! The adventurer jumps out of the way. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! Although he's hit landed, pachycephalosaurus is mostly unphased
 
-The tojanida struck with its bite! The fierce blow from the monster narrowly misses Fluvand. The adventurer leaned on his sword to catch a moment's respite. The gritty Fluvand was worn out by the combat. The tojanida struck with its bite! Fluvand reeled back in pain. 
+The pachycephalosaurus leans low, ready to strike with its might. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-The tojanida leans low, ready to strike with its might. The tojanida struck with its bite! The fierce blow from the monster narrowly misses he. 
+The pachycephalosaurus leans low, ready to strike with its might. The pachycephalosaurus struck with its slam! The terrible pachycephalosaurus failed to land its hit. 
 
-The classic Fluvand sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-The tojanida leans low, ready to strike with its might. The tojanida struck with its bite! He jumps out of the way. 
+The adventurer sneaked around to pachycephalosaurus's blind spot. The pachycephalosaurus leans low, ready to strike with its might. 
 
-The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! The valorous Fluvand landed a massive hit on tojanida! 
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-He pulls a taupe potion from his pack and drinks it. He is reinvigorated. The tojanida leans low, ready to strike with its might. 
+The pachycephalosaurus struck with its slam! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The pachycephalosaurus struck with its slam! The fierce blow from the monster narrowly misses Zamos. 
 
-The adventurer sneaked around to tojanida's blind spot. The tojanida leans low, ready to strike with its might. 
+Zamos pulls a teal green potion from his pack and drinks it. He is reinvigorated. The pachycephalosaurus struck with its slam! He blocks the strike with his sword. 
 
-The tojanida struck with its bite! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The tojanida leans low, ready to strike with its might. 
+The pachycephalosaurus leans low, ready to strike with its might. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He sneaked around to pachycephalosaurus's blind spot. 
 
-The tojanida leans low, ready to strike with its might. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
+The bold Zamos pulls a utah crimson potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-Fluvand lunged toward the tojanida, his sword ready to strike! The tojanida was struck by the blow! The tojanida struck with its bite! The gritty Fluvand jumps out of the way. Fluvand lunged toward the tojanida, his sword ready to strike! The tojanida took a glancing blow. 
+The pachycephalosaurus struck with its slam! He jumps out of the way. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-He pulls a cinereous potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
+The pachycephalosaurus struck with its slam! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pachycephalosaurus struck with its slam! He stunbles backward, gasping for breath. 
 
-The dauntless Fluvand sneaked around to tojanida's blind spot. Fluvand lunged toward the tojanida, his sword ready to strike! He landed a massive hit on tojanida! 
+The pachycephalosaurus leans low, ready to strike with its might. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-Fluvand lunged toward the tojanida, his sword ready to strike! The attack from Fluvand the daringour hero surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the tojanida, his sword ready to strike! The slippery tojanida evaded Fluvand's hit. 
+The adventurer sneaked around to pachycephalosaurus's blind spot. The pachycephalosaurus leans low, ready to strike with its might. 
 
-Fluvand the grittyour hero pulls a vivid burgundy potion from his pack and drinks it. He is reinvigorated. The tojanida leans low, ready to strike with its might. 
+He sneaked around to pachycephalosaurus's blind spot. The pachycephalosaurus leans low, ready to strike with its might. 
 
-The adventurer was victorious! The tojanida menaced for no longer! 
+The pachycephalosaurus struck with its slam! The adventurer jumps out of the way. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. 
 
-## <a name="chapter5"></a> Chapter 5: Ath and the Bearded Devil (barbazu)
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The attack from the dauntless Zamos surely left a impression. The monster was stunned by the attack. Zamos pulls a chocolate traditional potion from his pack and drinks it. He is reinvigorated. 
 
-Fluvand followed a dirt path into the village of Ath. Nearby, a ship's captain slept in an alleyway. While the rivener ran from person to person, asking if they had seen Adrandoaldus, a pilot talked excitedly with what appeared to be a lighter man. Fluvand continued down the path. While the grinder ran from person to person, asking if they had seen Abelar, a rivener slept in an alleyway.
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The slippery pachycephalosaurus evaded Zamos's hit. The monster was stunned by the attack. He pulls a pale plum potion from his pack and drinks it. He is reinvigorated. 
 
-Eventually, Fluvand arrived at the town square, where he found a halberdier. Fluvand approached him, hoping for some advice.
+The pachycephalosaurus struck with its slam! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The pachycephalosaurus leans low, ready to strike with its might. 
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The attack from Zamos surely left a impression. The pachycephalosaurus struck with its slam! The disgusting pachycephalosaurus failed to land its hit. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
 
-Nearby, a costermonger eyed him suspiciously. The man sat in silence for a while, but eventually responded.
+The pachycephalosaurus leans low, ready to strike with its might. Zamos lunged toward the pachycephalosaurus, his sword ready to strike! The pachycephalosaurus was struck by the blow! 
 
-"Our village of Brow Censt will gladly help you on your quest. What do you need?"
+The classic Zamos sneaked around to pachycephalosaurus's blind spot. The pachycephalosaurus struck with its slam! He blocks the strike with his sword. 
+
+He was victorious! The pachycephalosaurus menaced for no longer! 
+
+## <a name="chapter3"></a> Chapter 3: Minge and the Poison Frog
+
+Zamos followed a dirt path into the village of Minge. While the dog trainer slowly carried supplies, a bailiff threw punches. While the roofer finished an apple and tossed the core aside, a furniture maker slept in an alleyway. Zamos continued down the path. While the sheepshearer loaded a market stall with wares, a carman gazed at him from an open window.
+
+Eventually, Zamos arrived at the town square, where he found a executioner. Zamos approached him, hoping for some advice.
+
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
+
+A minnesinger ran from person to person, asking if they had seen Ance. The man eyed him thoughtfully, but eventually responded.
+
+"Our village of Sters will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Eginrad is the best in town. His shop is down the street to the monastery and left. You'll see a church. It's into the market and towards the tavern. Eventually you need to walk past the monastery. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Nigs is the best in town. His shop is just a bit further down the street. It's just to the right. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. A dentist rushed by quickly, ignoring him. Nearby, a saltboiler sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. While the begger threw punches, a hayward sat by the side of the road. Two porters eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Eginrad looked up from his work behind a counter at Fluvand.
+Nigs looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the giant stag beetle, or perhaps even the incubus, but that's nothing compared to the bearded devil (barbazu) we've got."
+Nigs lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The poison frog."
 
-"Elite warriors in Hell's legions, bearded devils—or barbazus—fight savagely in the name of their infernal lords and command mindless hordes of the damned into battle. They collect and train with their infernally forged glaives among the vaults of Hell's third layer, Erebus, but inevitably return to the first layer, Avernus, to serve at the side of the dread lord Barbatos." Eginrad explained.
+Nigs returned to the book of monsters on the desk and pointed at the terrifying illustration. "Poisonous frogs are a bright green color, with additional bright yellow, red, or blue markings. They are just over a foot long and weigh 10 pounds. The poison of poisonous frogs is often gathered by primitive tribes and used to coat darts and arrows for hunting."
 
-Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"But my weapons may be too weak. Are there any other ways to defeat the poison frog?" Zamos asked.
 
-The armorer sighed and continued. "Barbazus are fond of making charge attacks with their glaives, and try to maintain a 10-foot gap between themselves and their foes so they can use their signature polearms to great effect. Against a foe that has greater reach (or one able to otherwise avoid the devil's favored tactic), they drop their glaives and resort to their claws and hideous beards."
+Nigs returned to the book of monsters on the desk and pointed at the terrifying illustration. "You can make a larger poison frog either by applying the giant simple template or by giving a normal giant frog a poison frog's venomous bite."
 
-Fluvand slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Eginrad returned to the book of monsters on the desk and pointed at the terrifying illustration. "At attention, bearded devils stand over 6 feet tall (though their squatting battle stances often make them appear shorter) and weigh upward of 200 pounds."
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+Zamos saw a eerie poison frog in the distance! Our hero fixed his gaze on the shocking sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+Zamos lunged toward the poison frog, his sword ready to strike! The slippery poison frog evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the poison frog, his sword ready to strike! The slippery poison frog evaded Zamos's hit. 
 
-Fluvand saw a eerie bearded devil (barbazu) in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+The poison frog leans low, ready to strike with its might. poison frog lunged toward Zamos! He blocks the strike with his sword. 
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The shattering blow from he rumbled through the ground. The bearded devil (barbazu) struck with its glaive! He jumps out of the way. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! That blow seemed like it could break some bones. 
+The adventurer pulls a phlox potion from his pack and drinks it. He is reinvigorated. poison frog lunged toward Zamos! Zamos reeled back in pain. 
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The monster was stunned by the attack. The dauntless Fluvand pulls a jungle green potion from his pack and drinks it. He is reinvigorated. 
+Zamos lunged toward the poison frog, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos the dauntlessour hero sneaked around to poison frog's blind spot. 
 
-The bearded devil (barbazu) struck with its glaive! He winces from the pain but continues fighting. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
+Zamos lunged toward the poison frog, his sword ready to strike! The attack from the stouthearted Zamos surely left a impression. poison frog lunged toward Zamos! Zamos the doughtyour hero winces from the pain but continues fighting. Zamos lunged toward the poison frog, his sword ready to strike! The slippery poison frog evaded Zamos's hit. 
 
-The bearded devil (barbazu) struck with its glaive! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
+poison frog lunged toward Zamos! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The poison frog leans low, ready to strike with its might. 
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The bearded devil (barbazu) struck with its glaive! The adventurer jumps out of the way. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. 
+The epic Zamos was victorious! The poison frog menaced for no longer! 
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! That blow seemed like it could break some bones. The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! Although Fluvand's hit landed, bearded devil (barbazu) is mostly unphased
+## <a name="chapter4"></a> Chapter 4: Bantral and the Vouivre
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Fluvand's hit. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! He landed a massive hit on bearded devil (barbazu)! 
+Zamos followed a dirt path into the village of Bantral. While the surgeon finished an apple and tossed the core aside, a clerk talked excitedly with what appeared to be a pilot. The merchant taylor gazed at him from an open window with a feltmaker. Zamos continued down the path. Nearby, a gardner bit into an apple.
 
-Fluvand lunged toward the bearded devil (barbazu), his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand pulls a amaranth potion from his pack and drinks it. He is reinvigorated. 
+Eventually, Zamos arrived at the town square, where he found a hurdle maker. The man, eying his impressive armor, beckoned him forward.
 
-He sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) leans low, ready to strike with its might. 
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-The bearded devil (barbazu) struck with its glaive! Fluvand reeled back in pain. Fluvand the guttyour hero stumbles to his knee, gasping for breath. The bearded devil (barbazu) leans low, ready to strike with its might. 
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a brazier talked excitedly with what appeared to be a oilmaker. The man quietly reminised about the past, but eventually responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Gefroi is into the market and towards the monastery. Eventually you need to walk into the market and towards the stables. Eventually you need to walk down the street to the church and left. You'll see a church. It's just a bit further down the street. It's just to the left. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Zamos hurried towards the armory. Nearby, a mercer loaded a market stall with wares. While the pilot talked excitedly with what appeared to be a player, a chapman slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Gefroi looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Gefroi lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The vouivre."
+
+Gefroi returned to the book of monsters on the desk and pointed at the terrifying illustration. "A vouivre is a deceptive and monstrous predator that looks like a humanoid woman from the waist up and the front end of a green-scaled dragon from the waist down. It shuns the company of its own kind, preferring evil fey (particularly water-dwelling ones such as nixies) for intelligent conversation and mundane snakes for companionship. A vouivre is 12 feet long from head to head, weighs 500 pounds, and can live 200 years."
+
+"I could handle that. Tell me again, what makes the vouivre so bad?" Zamos responded.
+
+"Vouivres make their homes in small caves near calm waters. They like to decorate their lairs with shiny coins, jewelry, and bright silks. One might place some of its treasure in the water outside to lure in curious humanoids, and bathe in these waters as a further enticement, hiding its reptilian half until prey is within striking distance. Because a vouivre can breathe water or air (from either head), it often grabs a creature, then retreats underwater to wait for the opponent to drown. It prefers humanoid flesh, but will feed on any available warm-blooded prey. Vouivres have an affinity for music, and their magic is often accompanied by singing or subtle musical vibrations from their scales." Gefroi explained.
+
+"I could handle that. Tell me again, what makes the vouivre so bad?" Zamos responded.
+
+Gefroi returned to the book of monsters on the desk and pointed at the terrifying illustration. "When a vouivre dies, its dragon head disgorges a 2-foot-diameter glassy egg. After around 6 weeks, the egg hatches into one or two vouivres, which take 7 years to reach maturity. These offspring resemble humanoids the mother has eaten, so it prefers to feast on attractive and strong victims. The young also adapt to the appearance of nearby reptilian creatures."
+
+"But my weapons may be too weak. Are there any other ways to defeat the vouivre?" Zamos asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a ungodly vouivre in the distance! He readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+He pulls a dark spring green potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! The adventurer winces from the pain but continues fighting. 
+
+The vouivre struck with its bite! Zamos the undauntedour hero jumps out of the way. the impavid Zamos stumbles to his knee, gasping for breath. The vouivre struck with its bite! He blocks the strike with his sword. 
+
+The vouivre struck with its bite! Zamos reeled back in pain. the grandiose Zamos stumbles to his knee, gasping for breath. The vouivre leans low, ready to strike with its might. 
+
+The vouivre struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The vouivre struck with its bite! He winces from the pain but continues fighting. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+He sneaked around to vouivre's blind spot. Zamos lunged toward the vouivre, his sword ready to strike! The vouivre was struck by the blow! 
+
+The vouivre struck with its bite! The adventurer jumps out of the way. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+The noble Zamos pulls a indigo web potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+The vouivre struck with its bite! He blocks the strike with his sword. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+The adventurer pulls a old mauve potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! The valiant Zamos winces from the pain but continues fighting. 
+
+He sneaked around to vouivre's blind spot. The vouivre leans low, ready to strike with its might. 
+
+He sneaked around to vouivre's blind spot. The vouivre struck with its bite! He jumps out of the way. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to vouivre's blind spot. 
+
+The vouivre struck with its bite! The fierce blow from the monster narrowly misses the courageous Zamos. Zamos stumbles to his knee, gasping for breath. The vouivre leans low, ready to strike with its might. 
+
+The vouivre struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The vouivre struck with its bite! The unholy vouivre failed to land its hit. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. The vouivre struck with its bite! The ungodly vouivre failed to land its hit. Zamos lunged toward the vouivre, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+He pulls a lavender blue potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+Zamos the exaggeratedour hero pulls a jade potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! The undaunted Zamos stunbles backward, gasping for breath. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! Zamos landed a massive hit on vouivre! The vouivre struck with its bite! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the vouivre, his sword ready to strike! The vouivre was struck by the blow! 
+
+Zamos lunged toward the vouivre, his sword ready to strike! A sharp crack was heard as the strike left its mark. The vouivre struck with its bite! He blocks the strike with his sword. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. The vouivre struck with its bite! The ruinous vouivre failed to land its hit. Zamos lunged toward the vouivre, his sword ready to strike! The vouivre was staggered by the immense force. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The attack from he surely left a impression. The vouivre struck with its bite! The valorous Zamos blocks the strike with his sword. Zamos lunged toward the vouivre, his sword ready to strike! The vouivre was struck by the blow! 
+
+He sneaked around to vouivre's blind spot. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos pulls a black potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! He stunbles backward, gasping for breath. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+He pulls a international klein blue potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! Zamos blocks the strike with his sword. 
+
+Zamos sneaked around to vouivre's blind spot. The vouivre struck with its bite! The fierce blow from the monster narrowly misses Zamos. 
+
+He sneaked around to vouivre's blind spot. The vouivre struck with its bite! Zamos reeled back in pain. 
+
+Zamos the fearlessour hero pulls a razzle dazzle rose potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+He pulls a naples yellow potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! Zamos stunbles backward, gasping for breath. 
+
+Zamos pulls a bronze potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! Zamos the grandioseour hero winces from the pain but continues fighting. 
+
+The vouivre struck with its bite! The valorous Zamos blocks the strike with his sword. The valiant Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The vouivre leans low, ready to strike with its might. 
+
+Zamos sneaked around to vouivre's blind spot. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos pulls a dartmouth green potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! The fierce blow from the monster narrowly misses Zamos the impavidour hero. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! Zamos stunbles backward, gasping for breath. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! Although the impavid Zamos's hit landed, vouivre is mostly unphasedThe vouivre struck with its bite! Zamos blocks the strike with his sword. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+He pulls a coral pink potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! He blocks the strike with his sword. 
+
+The vouivre struck with its bite! Zamos reeled back in pain. The inflated Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The vouivre leans low, ready to strike with its might. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! The attack from Zamos the gutsyour hero surely left a impression. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The intrepid Zamos sneaked around to vouivre's blind spot. 
+
+He sneaked around to vouivre's blind spot. The vouivre struck with its bite! The smelly vouivre failed to land its hit. 
+
+The adventurer pulls a sand dune potion from his pack and drinks it. He is reinvigorated. The vouivre struck with its bite! Zamos the nobleour hero blocks the strike with his sword. 
+
+The vouivre struck with its bite! The adventurer jumps out of the way. Zamos the grandour hero stumbles to his knee, gasping for breath. The vouivre leans low, ready to strike with its might. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The vouivre took a glancing blow. The monster was stunned by the attack. He pulls a bright maroon potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to vouivre's blind spot. Zamos lunged toward the vouivre, his sword ready to strike! The vouivre took a glancing blow. 
+
+The vouivre struck with its bite! The classic Zamos jumps out of the way. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! Zamos jumps out of the way. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The vouivre was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the vouivre, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the vouivre, his sword ready to strike! The slippery vouivre evaded Zamos's hit. 
+
+Zamos the fearlessour hero pulls a burnt umber potion from his pack and drinks it. He is reinvigorated. The vouivre leans low, ready to strike with its might. 
+
+The vouivre leans low, ready to strike with its might. Zamos lunged toward the vouivre, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+The vouivre struck with its bite! Zamos blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The vouivre leans low, ready to strike with its might. 
+
+The vouivre leans low, ready to strike with its might. The vouivre struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+He was victorious! The vouivre menaced for no longer! 
+
+## <a name="chapter5"></a> Chapter 5: Soust Hills Park and the Wyrmwraith
+
+Zamos followed a dirt path into the village of Soust Hills Park. Two sherrifs rushed by quickly, ignoring him. While the stonecutter slept in an alleyway, a dwarf slept in an alleyway. Zamos continued down the path. The embroiderer slept in an alleyway with a skinner.
+
+Eventually, Zamos arrived at the town square, where he found a lorimer. Zamos approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+The ostler stood by a market stall, negotiating with the blockcutter with a barber. He still looked suspicious, but eventually responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Soke is the best in town. His shop is just a bit further down the street. It's just to the right. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Audo gone as much as anybody."
+
+Zamos hurried towards the armory. While the prince hawked fine imported goods from Sourn, a tailor slowly carried supplies. The alewife finished an apple and tossed the core aside with a turner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the vemerak, or perhaps even the celedon, but that's nothing compared to the wyrmwraith we've got."
+
+The armorer sighed and continued. "Wyrmwraiths arise from the souls of powerful dragons who refuse to accept death or have an irrational fear of moving on to an afterlife. No longer concerned with amassing wealth and power, wyrmwraiths instead brood with an unrelenting hatred of all living things. They hate other dragons above all else, seeing the existence of those living creatures as a mockery of their own."
+
+"But my weapons may be too weak. Are there any other ways to defeat the wyrmwraith?" Zamos asked.
+
+The armorer sighed and continued. "Wyrmwraiths typically haunt their former lairs or some other location where they can hide from the sunlight. They are drawn toward ancient ruins, forgotten catacombs, and other places associated with death. Litter, detritus and bones lie heaped in areas controlled by a wyrmwraith instead of the coins and gems. In the rare instances when a wyrmwraith is away from its den, the malice of its presence still lingers palpably in the cold air. Still displaying the draconic instinct to protect their homes from would-be thieves, wyrmwraiths will often create and leave behind undead guardians."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+"Wyrmwraiths slay those who venture near their lairs, surrounding themselves with their newly created dread wraiths and any other undead they can create or control, carving out small fiefdoms populated by undead servitors. They send their minions to collect anything and anyone with knowledge or power they believe can aid them in their dark endeavors. Captured individuals who please the wyrmwraith can expect to be reborn as powerful undead while those that fail wallow in eternal torment as dread wraiths." Soke explained.
+
+"I could handle that. Tell me again, what makes the wyrmwraith so bad?" Zamos responded.
+
+"On rare occasions throughout history, powerful necromancers or dark cults have managed to entice or coerce a wyrmwraith into an alliance. These collaborations are fleeting, as wyrmwraiths still retain a twisted shadow of their draconic pride, seeing all other creatures as beneath them. Unless compelled to work with others, a wyrmwraith turns on its allies once they are no longer useful to it." Soke explained.
+
+Zamos slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Finding a way to gain a wyrmwraith's attention is difficult because it is no longer interested in wealth or other mundane material possessions. Instead, wyrmwraiths seek knowledge or items to reverse or improve their undead condition. Their own loathing of what they have become is the only thing as strong as their hatred of the living. Yet, despite their predicament, they still fear ultimate death." Soke explained.
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "A wyrmwraith blights the land with its very presence, a slowly spreading stain tainting anything it touches. Undead activity inevitably increases in any area a wyrmwraith inhabits. Unless a wyrmwraith is destroyed, its territory often becomes a lifeless wasteland for miles."
+
+"But my weapons may be too weak. Are there any other ways to defeat the wyrmwraith?" Zamos asked.
+
+The armorer sighed and continued. "Wyrmwraiths are very dangerous opponents in combat. They prefer to soften up enemies with their breath weapon and spells before closing in for melee. Wyrmwraiths target clerics, paladins, and other spellcasters wielding divine magic, both because they know divine magic possesses the greatest threat to them and because they see it as a chance to strike back against the gods for their accursed state. Wyrmwraiths care little about how many of their undead minions are destroyed in combat. They are merely pawns to the wyrmwraiths, who have the means at their disposal to create more."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+Soke returned to the book of monsters on the desk and pointed at the terrifying illustration. "Wyrmwraiths appear as skeletal, ghostly versions of their former selves, their features warped by malice. No matter the size they once possessed, wyrmwraiths measure roughly 50 ft. from snout to tail. Unencumbered by flesh, they move with a silent, effortless, and deadly grace. Even wyrmwraiths' minds become changed in undeath. Already long-lived creatures when they were dragons, some wyrmwraiths have spent an even longer time as undead. Brooding and nurturing brutal hatred for the living for so long drives these wyrmwraiths insane, causing them to become reckless—or self-destructive—and to venture out into the night to rain down destruction on a nearby settlement or even an entire kingdom, knowing that they will eventually be hunted down and destroyed."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+"That's all I can tell you."
+
+Zamos saw a detestable wyrmwraith in the distance! The bold Zamos readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was staggered by the immense force. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses Zamos the mythologicalour hero. Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to wyrmwraith's blind spot. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. He pulls a international klein blue potion from his pack and drinks it. He is reinvigorated. 
+
+The bigger than life Zamos pulls a light apricot potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
+
+The adventurer pulls a tea rose rose potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+
+The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. Zamos lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith took a glancing blow. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the wyrmwraith, his sword ready to strike! Although Zamos the unafraidour hero's hit landed, wyrmwraith is mostly unphased
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. He pulls a ua blue potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a sand potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! The adventurer winces from the pain but continues fighting. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the daring Zamos. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
+
+He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. 
+
+He pulls a usc cardinal potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+
+The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The stouthearted Zamos was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
+
+Zamos the dauntlessour hero sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+
+He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the valorous Zamos. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The wyrmwraith struck with its incorporeal bite! The ghastly wyrmwraith failed to land its hit. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. The monster was stunned by the attack. He pulls a pastel gray potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer pulls a grullo potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+
+The wyrmwraith struck with its incorporeal bite! The offensive wyrmwraith failed to land its hit. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos pulls a dark blue potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith struck with its incorporeal bite! He jumps out of the way. Zamos stumbles to his knee, gasping for breath. The wyrmwraith leans low, ready to strike with its might. 
+
+The wyrmwraith struck with its incorporeal bite! Zamos reeled back in pain. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+He pulls a violet blue potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! Zamos reeled back in pain. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a skobeloff potion from his pack and drinks it. He is reinvigorated. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! He landed a massive hit on wyrmwraith! 
+
+He sneaked around to wyrmwraith's blind spot. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos the mythologicalour hero pulls a fallow potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+He pulls a yellow potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. 
+
+He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! Zamos jumps out of the way. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! Zamos the classicour hero blocks the strike with his sword. 
+
+The wyrmwraith struck with its incorporeal bite! Zamos the dauntlessour hero blocks the strike with his sword. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! Zamos jumps out of the way. 
+
+The adventurer sneaked around to wyrmwraith's blind spot. Zamos lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith took a glancing blow. 
+
+The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The wyrmwraith leans low, ready to strike with its might. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to wyrmwraith's blind spot. 
+
+The stand tall Zamos pulls a medium taupe potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses Zamos the boldour hero. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the doughty Zamos. Zamos leaned on his sword to catch a moment's respite. The gutty Zamos was worn out by the combat. The wyrmwraith struck with its incorporeal bite! The adventurer blocks the strike with his sword. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. Zamos lunged toward the wyrmwraith, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He sneaked around to wyrmwraith's blind spot. 
+
+The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The shattering blow from he rumbled through the ground. The wyrmwraith struck with its incorporeal bite! The adventurer stunbles backward, gasping for breath. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The adventurer pulls a copper penny potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! The classic Zamos blocks the strike with his sword. 
+
+The wyrmwraith struck with its incorporeal bite! The awful wyrmwraith failed to land its hit. he stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! Zamos stunbles backward, gasping for breath. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos sneaked around to wyrmwraith's blind spot. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was struck by the blow! 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. 
+
+The wyrmwraith struck with its incorporeal bite! The scary wyrmwraith failed to land its hit. Zamos lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphasedThe monster was stunned by the attack. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith struck with its incorporeal bite! The horrid wyrmwraith failed to land its hit. He leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The wyrmwraith struck with its incorporeal bite! The unholy wyrmwraith failed to land its hit. 
+
+The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the adventurer. the adventurer stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! The sickie wyrmwraith failed to land its hit. 
+
+The wyrmwraith struck with its incorporeal bite! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The wyrmwraith struck with its incorporeal bite! The exaggerated Zamos blocks the strike with his sword. 
+
+The wyrmwraith struck with its incorporeal bite! He jumps out of the way. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+Zamos lunged toward the wyrmwraith, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. The monster was stunned by the attack. Zamos pulls a bubble gum potion from his pack and drinks it. He is reinvigorated. 
+
+The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the gutsy Zamos. 
+
+The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
+
+The wyrmwraith leans low, ready to strike with its might. Zamos lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Zamos's hit. 
+
+He pulls a dark imperial blue potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+
+The mythological Zamos was victorious! The wyrmwraith menaced for no longer! 
+
+## <a name="chapter6"></a> Chapter 6: Barner Road and the Nosferatu
+
+Zamos followed a dirt path into the village of Barner Road. The hayward gazed at him from an open window with a embroiderer. While the bellmaker gazed at him from an open window, a housewife eyed him suspiciously. Zamos continued down the path. Two weepers hawked fine imported goods from Gol.
+
+Eventually, Zamos arrived at the town square, where he found a forester. Zamos approached him, hoping for some advice.
+
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
+
+While the halberdier slowly carried supplies, a sapper rushed by quickly, ignoring him. The man eyed him thoughtfullyHe finally responded.
+
+"Our village of Chead will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Raherthalerte is into the market and towards the barn. Eventually you need to walk into the market and towards the church. Eventually you need to walk into the market and towards the stables. Eventually you need to walk just a bit further down the street. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Zamos hurried towards the armory. While the glover slowly carried supplies, a clerk bit into an apple. While the tutor sat by the side of the road, a beer seller talked excitedly with what appeared to be a ostler. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the spinosaurus, or perhaps even the leaf leshy, but that's nothing compared to the nosferatu we've got."
+
+The armorer sighed and continued. "Nosferatu are savage undead who may be the progenitors of the common, more refined vampires. The curse of the nosferatu lacks the elegance and romance of its modern form, harkening to a forgotten age of verminous hunger and eerie powers. Granted immortal life but not immortal youth, nosferatu are withered, embittered creatures unable to create others of their kind, as they somehow lost that ability long ago."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "Their ancient sensibilities still reflect the cruelty of epochs past, and their age-spanning plots are untethered by the modern affliction of morality. Nosferatu resent common vampires (which they call "moroi," an ancient term from a lost language) for their beauty, whereas those vampires scorn the nosferatu as bestial relics of an earlier age, best hidden away in remote ruins so as not to sully the charismatic reputation of "true" vampires."
+
+"But my weapons may be too weak. Are there any other ways to defeat the nosferatu?" Zamos asked.
+
+Raherthalerte returned to the book of monsters on the desk and pointed at the terrifying illustration. "Because nosferatu can't create spawn, any nosferatu in existence are very old—created long ago in a time before they lost the ability to infect others with their undead curse. Most nosferatu live in isolated places with few visitors, and a nosferatu could be a thousand years old and yet have fewer than a dozen character levels because it lacks sufficient foes to challenge it or the initiative to train itself."
+
+"I could handle that. Tell me again, what makes the nosferatu so bad?" Zamos responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a disagreeable nosferatu in the distance! He readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+The nosferatu leans low, ready to strike with its might. Zamos lunged toward the nosferatu, his sword ready to strike! Zamos the unafraidour hero landed a massive hit on nosferatu! 
+
+The dauntless Zamos sneaked around to nosferatu's blind spot. The nosferatu leans low, ready to strike with its might. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to nosferatu's blind spot. 
+
+The adventurer sneaked around to nosferatu's blind spot. The nosferatu leans low, ready to strike with its might. 
+
+The nosferatu struck with its claws! He blocks the strike with his sword. Zamos lunged toward the nosferatu, his sword ready to strike! The nosferatu was staggered by the immense force. 
+
+Zamos the dauntlessour hero sneaked around to nosferatu's blind spot. The nosferatu leans low, ready to strike with its might. 
+
+He sneaked around to nosferatu's blind spot. The nosferatu leans low, ready to strike with its might. 
+
+The nosferatu leans low, ready to strike with its might. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses the adventurer. 
+
+The nosferatu struck with its claws! He jumps out of the way. Zamos the fearlessour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The nosferatu leans low, ready to strike with its might. 
+
+The adventurer pulls a blue sapphire potion from his pack and drinks it. He is reinvigorated. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses he. 
+
+The nosferatu leans low, ready to strike with its might. Zamos lunged toward the nosferatu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The nosferatu leans low, ready to strike with its might. The nosferatu struck with its claws! The disgusting nosferatu failed to land its hit. 
+
+The nosferatu leans low, ready to strike with its might. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+He pulls a united nations blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the nosferatu, his sword ready to strike! Although the adventurer's hit landed, nosferatu is mostly unphased
+
+He sneaked around to nosferatu's blind spot. The nosferatu struck with its claws! He jumps out of the way. 
+
+The nosferatu struck with its claws! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. The exaggerated Zamos was worn out by the combat. The nosferatu struck with its claws! The adventurer winces from the pain but continues fighting. 
+
+The nosferatu struck with its claws! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The nosferatu struck with its claws! Zamos stunbles backward, gasping for breath. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to nosferatu's blind spot. 
+
+The nosferatu struck with its claws! The fierce blow from the monster narrowly misses he. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+The nosferatu struck with its claws! The disagreeable nosferatu failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the nosferatu, his sword ready to strike! Zamos the impavidour hero landed a massive hit on nosferatu! 
+
+The nosferatu leans low, ready to strike with its might. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a pansy purple potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer sneaked around to nosferatu's blind spot. The nosferatu struck with its claws! Zamos reeled back in pain. 
+
+The nosferatu struck with its claws! The shameful nosferatu failed to land its hit. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+The nosferatu leans low, ready to strike with its might. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses Zamos the impavidour hero. 
+
+The nosferatu leans low, ready to strike with its might. The nosferatu struck with its claws! Zamos blocks the strike with his sword. 
+
+Zamos pulls a cinnabar potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the nosferatu, his sword ready to strike! Although he's hit landed, nosferatu is mostly unphased
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. The nosferatu struck with its claws! The shocking nosferatu failed to land its hit. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+The nosferatu leans low, ready to strike with its might. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses he. 
+
+The nosferatu struck with its claws! The smelly nosferatu failed to land its hit. Zamos lunged toward the nosferatu, his sword ready to strike! Although Zamos's hit landed, nosferatu is mostly unphased
+
+He sneaked around to nosferatu's blind spot. The nosferatu struck with its claws! Zamos blocks the strike with his sword. 
+
+The nosferatu struck with its claws! The heinous nosferatu failed to land its hit. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+The adventurer pulls a congo pink potion from his pack and drinks it. He is reinvigorated. The nosferatu struck with its claws! The fierce blow from the monster narrowly misses Zamos the dauntlessour hero. 
+
+The nosferatu struck with its claws! The adventurer stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The nosferatu leans low, ready to strike with its might. 
+
+He sneaked around to nosferatu's blind spot. The nosferatu leans low, ready to strike with its might. 
+
+The nosferatu struck with its claws! The scandalous nosferatu failed to land its hit. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The nosferatu took a glancing blow. The monster was stunned by the attack. Zamos lunged toward the nosferatu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the nosferatu, his sword ready to strike! The nosferatu was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the nosferatu, his sword ready to strike! The slippery nosferatu evaded Zamos's hit. 
+
+He pulls a tuscan red potion from his pack and drinks it. He is reinvigorated. The nosferatu leans low, ready to strike with its might. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Raherthalerte was talking about."
+
+## <a name="chapter7"></a> Chapter 7: Will and the Mastodon
+
+Zamos followed a dirt path into the village of Will. The crofter ran from person to person, asking if they had seen Dudouyn with a pioneer. A writer stood by a market stall, negotiating with the bearleader. Zamos continued down the path. While the poet eyed him suspiciously, a almoner stood by a market stall, negotiating with the falconer.
+
+Eventually, Zamos arrived at the town square, where he found a mathematician. The man, eying his dangerous demeanor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
+
+Two tinsmiths loaded a market stall with wares. The man sat in silence for a while, but eventually responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. It's just to the right. You'll find Criscus, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Zamos hurried towards the armory. A fuller ran from person to person, asking if they had seen Abis. While the sergeant-at-arms ran from person to person, asking if they had seen Diagur, a cardinal ran from person to person, asking if they had seen Cunimus. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Criscus looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the pixie, or perhaps even the vargouille, but that's nothing compared to the mastodon we've got."
+
+Criscus returned to the book of monsters on the desk and pointed at the terrifying illustration. "The great mastodons are primeval cousins of elephants. Their large tusks dwarf those of regular elephants, jutting outward and then curving back toward one another at the tips. Shaggy woolly mammoths are a mastodon variant adapted to cold environments, but have the same statistics."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a lousy mastodon in the distance! Zamos readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The mastodon was struck by the blow! The monster was stunned by the attack. He pulls a peach yellow potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the mastodon, his sword ready to strike! He landed a massive hit on mastodon! 
+
+The fire-eating Zamos sneaked around to mastodon's blind spot. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! Zamos blocks the strike with his sword. Zamos the impavidour hero stumbles to his knee, gasping for breath. The mastodon leans low, ready to strike with its might. 
+
+The mastodon leans low, ready to strike with its might. The mastodon struck with its gore! He stunbles backward, gasping for breath. 
+
+The mastodon struck with its gore! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the mastodon, his sword ready to strike! The mastodon was staggered by the immense force. 
+
+He sneaked around to mastodon's blind spot. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! The ghastly mastodon failed to land its hit. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! He winces from the pain but continues fighting. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+He pulls a persian blue potion from his pack and drinks it. He is reinvigorated. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! Zamos the lion-heartedour hero jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The mastodon struck with its gore! The fierce blow from the monster narrowly misses the adventurer. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! The execrable mastodon failed to land its hit. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+He sneaked around to mastodon's blind spot. Zamos lunged toward the mastodon, his sword ready to strike! Although he's hit landed, mastodon is mostly unphased
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! Zamos reeled back in pain. Zamos lunged toward the mastodon, his sword ready to strike! The mastodon was struck by the blow! 
+
+The mastodon struck with its gore! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. The stouthearted Zamos was worn out by the combat. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! Zamos jumps out of the way. he stumbles to his knee, gasping for breath. The mastodon struck with its gore! He winces from the pain but continues fighting. 
+
+The mastodon struck with its gore! He winces from the pain but continues fighting. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The mastodon struck with its gore! He stunbles backward, gasping for breath. 
+
+The mastodon struck with its gore! Zamos the bigger than lifeour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The mastodon struck with its gore! He blocks the strike with his sword. 
+
+The mastodon struck with its gore! Zamos the classicour hero stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! He jumps out of the way. Zamos lunged toward the mastodon, his sword ready to strike! The attack from he surely left a impression. 
+
+The mastodon struck with its gore! Zamos stunbles backward, gasping for breath. Zamos the impavidour hero stumbles to his knee, gasping for breath. The mastodon struck with its gore! The adventurer blocks the strike with his sword. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+The adventurer pulls a smalt dark powder blue potion from his pack and drinks it. He is reinvigorated. The mastodon leans low, ready to strike with its might. 
+
+Zamos sneaked around to mastodon's blind spot. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! The sickie mastodon failed to land its hit. he stumbles to his knee, gasping for breath. The mastodon struck with its gore! He blocks the strike with his sword. 
+
+The mastodon struck with its gore! The adventurer stunbles backward, gasping for breath. Zamos lunged toward the mastodon, his sword ready to strike! The attack from Zamos surely left a impression. 
+
+The mastodon leans low, ready to strike with its might. The mastodon struck with its gore! The adventurer jumps out of the way. 
+
+The gritty Zamos pulls a midnight blue potion from his pack and drinks it. He is reinvigorated. The mastodon leans low, ready to strike with its might. 
+
+The mastodon struck with its gore! Zamos reeled back in pain. Zamos lunged toward the mastodon, his sword ready to strike! Although he's hit landed, mastodon is mostly unphased
+
+He pulls a ucla gold potion from his pack and drinks it. He is reinvigorated. The mastodon leans low, ready to strike with its might. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! The doughty Zamos stunbles backward, gasping for breath. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! He blocks the strike with his sword. Zamos lunged toward the mastodon, his sword ready to strike! The mastodon was staggered by the immense force. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos the grandour hero pulls a khaki html css khaki potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a la salle green potion from his pack and drinks it. He is reinvigorated. The mastodon leans low, ready to strike with its might. 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! The shocking mastodon failed to land its hit. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+The mastodon struck with its gore! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The mastodon struck with its gore! He stunbles backward, gasping for breath. 
+
+The mastodon struck with its gore! The fierce blow from the monster narrowly misses the bold Zamos. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+He sneaked around to mastodon's blind spot. The mastodon struck with its gore! The awful mastodon failed to land its hit. 
+
+The mastodon leans low, ready to strike with its might. Zamos lunged toward the mastodon, his sword ready to strike! Zamos the grittyour hero landed a massive hit on mastodon! 
+
+Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. The mastodon struck with its gore! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the mastodon, his sword ready to strike! The slippery mastodon evaded Zamos's hit. 
+
+The adventurer pulls a pale lavender potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the mastodon, his sword ready to strike! Although Zamos's hit landed, mastodon is mostly unphased
+
+Zamos the intrepidour hero was victorious! The mastodon menaced for no longer! 
+
+## <a name="chapter8"></a> Chapter 8: Ham and the Horn Caterpillar
+
+Zamos followed a dirt path into the village of Ham. A mosaic layer threw punches. While the smith threw punches, a plattner ran from person to person, asking if they had seen Totaga. Zamos continued down the path. Two grooms scuttled out of his way.
+
+Eventually, Zamos arrived at the town square, where he found a spinster. Zamos approached him, hoping for some advice.
+
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
+
+The old-clothes dealer hawked fine imported goods from Streen Bring with a franklin. The man sat in silence for a while, then finally responded.
+
+"Our village of Tyneren will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is past the tavern. Look for the large hanging sign that reads "Amisko Fine Supplies". You'll find Amisko, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Zamos hurried towards the armory. While the abbess eyed him suspiciously, a printer finished an apple and tossed the core aside. Two silversmiths loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Amisko looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the cyclops, or perhaps even the hydra, but that's nothing compared to the horn caterpillar we've got."
+
+"Unlike normal caterpillars, voracious giant horn caterpillars don't pupate into butterflies. Instead, they remain in their worm-like forms for their entire life cycle, growing between each molt until they eventually reach the size of large dogs." Amisko explained.
+
+Zamos slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Horn caterpillars feed on the hooves and horns of dead ungulates, which they usually scavenge from corpses. Their sharp mandibles allow them to effortlessly shear through tendon and bone." Amisko explained.
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+"That's all I can tell you."
+
+Zamos saw a abominable horn caterpillar in the distance! Our hero fixed his gaze on the terrible sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Zamos's hit. The horn caterpillar struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Zamos's hit. 
+
+Zamos lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Zamos's hit. The monster was stunned by the attack. He pulls a camel potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos pulls a han blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Zamos's hit. 
+
+Zamos the bigger than lifeour hero sneaked around to horn caterpillar's blind spot. The horn caterpillar leans low, ready to strike with its might. 
+
+Zamos lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Zamos's hit. The monster was stunned by the attack. He pulls a red munsell potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the horn caterpillar, his sword ready to strike! The horn caterpillar was staggered by the immense force. The monster was stunned by the attack. He pulls a aurometalsaurus potion from his pack and drinks it. He is reinvigorated. 
+
+The horn caterpillar leans low, ready to strike with its might. The horn caterpillar struck with its bite! The fierce blow from the monster narrowly misses Zamos the stand tallour hero. 
+
+The horn caterpillar leans low, ready to strike with its might. The horn caterpillar struck with its bite! Zamos jumps out of the way. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Amisko was talking about."
+
+## <a name="chapter9"></a> Chapter 9: Burt and the Green Hag
+
+Zamos followed a dirt path into the village of Burt. The nun scuttled out of his way with a bailiff. The navigator slept in an alleyway with a stonecutter. Zamos continued down the path. Two jailers slept in an alleyway.
+
+Eventually, Zamos arrived at the town square, where he found a theologian. Zamos approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a apothecary eyed him suspiciously. The man sat in silence for a while, then finally responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Huoulorril is just a bit further down the street. Look for the large hanging sign that reads "Huoulorril Fine Supplies". Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 3 small coins. "I want that Audo gone as much as anybody."
+
+Zamos hurried towards the armory. A broderer talked excitedly with what appeared to be a goldsmith. While the maid slowly carried supplies, a harness maker bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Huoulorril lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The green hag."
+
+"Terrifying crones known to haunt foul swamps and tangled forests, green hags harbor an intense hatred for all beauty and purity. Making use of their varied deceptive abilities, these crones delight in murdering innocents, unhinging noble minds, and debasing the pure of heart. They are particularly fond of using disguise self to assume the forms of alluring young maidens and then seducing young men away from their lovers or families. In this form, they can infect such noble and upstanding citizens with all manner of debauchery and scandal. Some green hags prefer to reveal their true natures to their lovers at a moment precisely engineered to drive the man mad with horror and shame. Others drag out their dalliances and do what they can to utterly ruin the lives of the men they seduce before showing the broken shell that remains the truth. In the end, the luckiest of these unfortunate lovers end up being eaten by their green hag companions—for the unlucky, their final doom can be much worse, for the cruel imagination of the green hag is vast. " Huoulorril explained.
+
+"I could handle that. Tell me again, what makes the green hag so bad?" Zamos responded.
+
+"A typical green hag stands between 5 and 6 feet tall and weighs just under 160 pounds." Huoulorril explained.
+
+"I could handle that. Tell me again, what makes the green hag so bad?" Zamos responded.
+
+"That's all I can tell you."
+
+Zamos saw a repellent green hag in the distance! Our hero fixed his gaze on the revolting sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+The green hag struck with its claws! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The green hag struck with its claws! The intrepid Zamos jumps out of the way. 
+
+He pulls a warm black potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the green hag, his sword ready to strike! Zamos the mythologicalour hero landed a massive hit on green hag! 
+
+He sneaked around to green hag's blind spot. The green hag leans low, ready to strike with its might. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The green hag struck with its claws! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The green hag struck with its claws! Zamos reeled back in pain. 
+
+Zamos the stand tallour hero sneaked around to green hag's blind spot. The green hag struck with its claws! The fearful green hag failed to land its hit. 
+
+The green hag struck with its claws! He jumps out of the way. Zamos lunged toward the green hag, his sword ready to strike! The green hag took a glancing blow. 
+
+The green hag leans low, ready to strike with its might. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+Zamos sneaked around to green hag's blind spot. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The adventurer pulls a dark taupe potion from his pack and drinks it. He is reinvigorated. The green hag leans low, ready to strike with its might. 
+
+The green hag struck with its claws! The terrible green hag failed to land its hit. he stumbles to his knee, gasping for breath. The green hag struck with its claws! Zamos the gutsyour hero blocks the strike with his sword. 
+
+The adventurer pulls a mode beige potion from his pack and drinks it. He is reinvigorated. The green hag leans low, ready to strike with its might. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the green hag, his sword ready to strike! The attack from he surely left a impression. 
+
+He sneaked around to green hag's blind spot. The green hag leans low, ready to strike with its might. 
+
+The green hag struck with its claws! Zamos the high-flownour hero jumps out of the way. he stumbles to his knee, gasping for breath. The green hag leans low, ready to strike with its might. 
+
+He pulls a indigo web potion from his pack and drinks it. He is reinvigorated. The green hag struck with its claws! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The green hag was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The green hag struck with its claws! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The green hag leans low, ready to strike with its might. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The monster was stunned by the attack. He pulls a beaver potion from his pack and drinks it. He is reinvigorated. 
+
+The green hag struck with its claws! Zamos reeled back in pain. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The adventurer pulls a sandy taupe potion from his pack and drinks it. He is reinvigorated. The green hag struck with its claws! The adventurer blocks the strike with his sword. 
+
+He sneaked around to green hag's blind spot. The green hag leans low, ready to strike with its might. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The green hag struck with its claws! Zamos blocks the strike with his sword. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The green hag struck with its claws! The fierce blow from the monster narrowly misses the valiant Zamos. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The adventurer pulls a caf au lait potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The green hag leans low, ready to strike with its might. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The green hag leans low, ready to strike with its might. The green hag struck with its claws! The fierce blow from the monster narrowly misses the adventurer. 
+
+The green hag struck with its claws! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The green hag struck with its claws! Zamos reeled back in pain. 
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The green hag struck with its claws! The fierce blow from the monster narrowly misses he. Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. 
+
+The green hag struck with its claws! The fierce blow from the monster narrowly misses he. Zamos lunged toward the green hag, his sword ready to strike! Although he's hit landed, green hag is mostly unphased
+
+Zamos lunged toward the green hag, his sword ready to strike! The slippery green hag evaded Zamos's hit. The green hag struck with its claws! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the green hag, his sword ready to strike! He landed a massive hit on green hag! 
+
+Zamos lunged toward the green hag, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He pulls a cherry blossom pink potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to green hag's blind spot. The green hag struck with its claws! Zamos the nobleour hero blocks the strike with his sword. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Huoulorril was talking about."
+
+## <a name="chapter10"></a> Chapter 10: Archmoo and the Thought Eater
+
+Zamos followed a dirt path into the village of Archmoo. The costermonger talked excitedly with what appeared to be a bricklayer with a harberdasher. A waterman scuttled out of his way. Zamos continued down the path. While the hobbler stood by a market stall, negotiating with the glass seller, a sawyer talked excitedly with what appeared to be a ostler.
+
+Eventually, Zamos arrived at the town square, where he found a bleacher. Zamos approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+The gardner stood by a market stall, negotiating with the clark with a drycooper. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Ximus is the best in town. His shop is into the market and towards the tavern. Eventually you need to walk into the market and towards the barn. Eventually you need to walk into the market and towards the cattle barn. Eventually you need to walk into the market and towards the church. Eventually you need to walk into the market and towards the tavern. Eventually you need to walk just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Audo gone as much as anybody."
+
+Zamos hurried towards the armory. Two baggers finished an apple and tossed the core aside. Nearby, a drayman stood by a market stall, negotiating with the merchant. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Ximus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The thought eater."
+
+"These tiny predators of thought live almost their entire lives on the Ethereal Plane. They are so tied to that place that without its energy, a thought eater's psychic power begins to deplete, until finally the very fabric of its own personal reality breaks down and it fades out of existence. But while the Ethereal Plane is necessary for thought eaters' continued existence, its vastness and relative lack of prey force thought eaters to sometimes hunt on the Material Plane. Such trips are often gluttonous affairs, as the thought eaters must not only gain sustenance, but also gain enough nourishment to stave off their rapid psychic and physical decay in that hostile environment." Ximus explained.
+
+Zamos slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Ximus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Normally, thought eaters are fairly single-minded, but the inherent danger in their forays to the Material Plane makes them eager for easy meals. Someone who takes the time to provide consistent easy meals for a thought eater can expect the creature to follow her on the Ethereal Plane, watching for its next feeding time. Given that every minute on the Material Plane is strenuous for a thought eater, such a person is unlikely to receive much conversation from the creature trailing her, but if something threatens the safety of its food source, the thought eater may be moved to protect its companion. In this case, the thought eater uses its daze monster ability to help the person escape and may even be motivated to cast resist energy on her. If this bizarre and alien friendship continues for long enough, the thought eater may even choose to assist in identifying magic items—when properly compensated, of course."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+"That's all I can tell you."
+
+Zamos saw a awful thought eater in the distance! Our hero fixed his gaze on the beastly sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos lunged toward the thought eater, his sword ready to strike! The slippery thought eater evaded Zamos's hit. The monster was stunned by the attack. He pulls a united nations blue potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the thought eater, his sword ready to strike! The slippery thought eater evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to thought eater's blind spot. 
+
+The thought eater struck with its bite! Zamos blocks the strike with his sword. Zamos lunged toward the thought eater, his sword ready to strike! Although the adventurer's hit landed, thought eater is mostly unphased
+
+The thought eater leans low, ready to strike with its might. Zamos lunged toward the thought eater, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The adventurer sneaked around to thought eater's blind spot. The thought eater leans low, ready to strike with its might. 
+
+The thought eater leans low, ready to strike with its might. The thought eater struck with its bite! He jumps out of the way. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Ximus was talking about."
+
+## <a name="chapter11"></a> Chapter 11: Crow Wycoth Whelouthree and the Otyugh
+
+Zamos followed a dirt path into the village of Crow Wycoth Whelouthree. The sherrif threw punches with a costermonger. A minnesinger ran from person to person, asking if they had seen Jehaulalius. Zamos continued down the path. Nearby, a hurdle maker slept in an alleyway.
+
+Eventually, Zamos arrived at the town square, where he found a buffoon. Zamos approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Two cooks threw punches. The man quietly reminised about the past, then finally responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Ardo is past the monastery. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Zamos hurried towards the armory. The bather finished an apple and tossed the core aside with a netmaker. Nearby, a lutenist ran from person to person, asking if they had seen Deukos. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the orca, or perhaps even the neothelid, but that's nothing compared to the otyugh we've got."
+
+"Otyughs are particularly vile and horrid creatures that lurk in places most sane creatures avoid. Their lairs are middens, cesspools, offal pits, toxic swamps, and sewers—the greater a lair's filth, the greater the draw to the refuse-eating otyugh. They glory in the role of scavenger, wandering through vast underground caverns in search of the choicest cuts of garbage and waste. Upon finding such refuse, they gorge upon it, gathering what cannot be consumed in one debauch to bring back to their foul-smelling lairs. Otyughs spend most of their time in these filthy dens, which they keep constantly filled with carrion, dung, and worse sorts of stinking effluvia." Ardo explained.
+
+Zamos slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Ardo returned to the book of monsters on the desk and pointed at the terrifying illustration. "Intelligent creatures dwelling in subterranean areas near an otyugh often form a partnership of convenience with the disgusting beast. These creatures gladly provide their refuse and piles of raw meat to the otyugh, transforming the creature into an effective form of trash disposal. In return, the otyugh leaves its benefactors alone, and does not attack them, possibly even acting as a guardian."
+
+"But my weapons may be too weak. Are there any other ways to defeat the otyugh?" Zamos asked.
+
+Ardo returned to the book of monsters on the desk and pointed at the terrifying illustration. "The most horrifying thing to most races about the notorious otyugh is not the nature of its diet or its choice of lairs, but rather that a creature with an otyugh's tastes can be anything other than a mindless scavenger. In fact, otyughs are surprisingly intelligent, and often quite eager to form alliances with those who offer them a steady supply of delicious diversions in the form of offal and waste. Most otyughs understand the fact that other creatures find them unpleasant and hideous, but few really care."
+
+"But my weapons may be too weak. Are there any other ways to defeat the otyugh?" Zamos asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a fairy otyugh in the distance! Our hero fixed his gaze on the terrible sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos the elevatedour hero pulls a bright lavender potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+The otyugh leans low, ready to strike with its might. The otyugh struck with its bite! The lousy otyugh failed to land its hit. 
+
+The adventurer sneaked around to otyugh's blind spot. The otyugh leans low, ready to strike with its might. 
+
+He pulls a orange ryb potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+The otyugh struck with its bite! The fierce blow from the monster narrowly misses Zamos. he stumbles to his knee, gasping for breath. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! Zamos blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The otyugh struck with its bite! The ghastly otyugh failed to land its hit. 
+
+The courageous Zamos pulls a lilac potion from his pack and drinks it. He is reinvigorated. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The otyugh struck with its bite! The frightful otyugh failed to land its hit. 
+
+Zamos the impavidour hero sneaked around to otyugh's blind spot. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! Zamos reeled back in pain. Zamos lunged toward the otyugh, his sword ready to strike! The otyugh was staggered by the immense force. 
+
+Zamos sneaked around to otyugh's blind spot. The otyugh leans low, ready to strike with its might. 
+
+The otyugh leans low, ready to strike with its might. The otyugh struck with its bite! Zamos the dauntlessour hero blocks the strike with his sword. 
+
+The otyugh leans low, ready to strike with its might. The otyugh struck with its bite! The ruinous otyugh failed to land its hit. 
+
+The otyugh struck with its bite! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+The impavid Zamos sneaked around to otyugh's blind spot. The otyugh leans low, ready to strike with its might. 
+
+Zamos lunged toward the otyugh, his sword ready to strike! That blow seemed like it could break some bones. The otyugh struck with its bite! He jumps out of the way. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+The otyugh struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+The otyugh struck with its bite! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The otyugh struck with its bite! The nasty otyugh failed to land its hit. 
+
+The otyugh struck with its bite! The fierce blow from the monster narrowly misses he. Zamos leaned on his sword to catch a moment's respite. The mythological Zamos was worn out by the combat. The otyugh leans low, ready to strike with its might. 
+
+The otyugh struck with its bite! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The otyugh leans low, ready to strike with its might. 
+
+Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the otyugh, his sword ready to strike! The slippery otyugh evaded Zamos's hit. 
+
+Zamos lunged toward the otyugh, his sword ready to strike! The shattering blow from Zamos the nobleour hero rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the otyugh, his sword ready to strike! The attack from Zamos the grandioseour hero surely left a impression. 
+
+The otyugh struck with its bite! The inflated Zamos stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The otyugh struck with its bite! Zamos blocks the strike with his sword. 
+
+The otyugh leans low, ready to strike with its might. The otyugh struck with its bite! The stand tall Zamos blocks the strike with his sword. 
+
+He was victorious! The otyugh menaced for no longer! 
+
+## <a name="chapter12"></a> Chapter 12: Bucens and the Bearded Devil (barbazu)
+
+Zamos followed a dirt path into the village of Bucens. Two musicians hawked fine imported goods from Nordenthon. Nearby, a famulus gazed at him from an open window. Zamos continued down the path. The molecatcher talked excitedly with what appeared to be a bather with a pursuivant.
+
+Eventually, Zamos arrived at the town square, where he found a locksmith. Zamos approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Nearby, a threadmaker eyed him suspiciously. The man sat in silence for a while, then finally responded.
+
+"Our village of Cark will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Maeli is the best in town. His shop is just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Audo gone as much as anybody."
+
+Zamos hurried towards the armory. While the drummer gazed at him from an open window, a wagoner scuttled out of his way. The smith eyed him suspiciously with a knifesmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Maeli looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Maeli grabbed a dusty book from the shelf and flipped through it. Pictures of raeliss and giant ticks flew by. Eventually he settled on a page and started to explain.
+
+"Elite warriors in Hell's legions, bearded devils—or barbazus—fight savagely in the name of their infernal lords and command mindless hordes of the damned into battle. They collect and train with their infernally forged glaives among the vaults of Hell's third layer, Erebus, but inevitably return to the first layer, Avernus, to serve at the side of the dread lord Barbatos." Maeli explained.
+
+"I could handle that. Tell me again, what makes the bearded devil (barbazu) so bad?" Zamos responded.
+
+"Barbazus are fond of making charge attacks with their glaives, and try to maintain a 10-foot gap between themselves and their foes so they can use their signature polearms to great effect. Against a foe that has greater reach (or one able to otherwise avoid the devil's favored tactic), they drop their glaives and resort to their claws and hideous beards." Maeli explained.
+
+Zamos slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"At attention, bearded devils stand over 6 feet tall (though their squatting battle stances often make them appear shorter) and weigh upward of 200 pounds." Maeli explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the bearded devil (barbazu)?" Zamos asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a abhorrent bearded devil (barbazu) in the distance! Our hero fixed his gaze on the unkind sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+Zamos sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+The bearded devil (barbazu) struck with its glaive! Zamos winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The bearded devil (barbazu) struck with its glaive! The impavid Zamos stunbles backward, gasping for breath. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to bearded devil (barbazu)'s blind spot. 
+
+The bearded devil (barbazu) struck with its glaive! Zamos reeled back in pain. Zamos stumbles to his knee, gasping for breath. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The monster was stunned by the attack. The valorous Zamos pulls a sandstorm potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+He sneaked around to bearded devil (barbazu)'s blind spot. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! Although he's hit landed, bearded devil (barbazu) is mostly unphased
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a cerulean potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The bearded devil (barbazu) struck with its glaive! Zamos reeled back in pain. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The bearded devil (barbazu) was staggered by the immense force. The bearded devil (barbazu) struck with its glaive! Zamos reeled back in pain. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The bearded devil (barbazu) struck with its glaive! He winces from the pain but continues fighting. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a hunter green potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a han blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. The bearded devil (barbazu) struck with its glaive! The frightful bearded devil (barbazu) failed to land its hit. 
+
+Zamos the doughtyour hero pulls a umber potion from his pack and drinks it. He is reinvigorated. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The bearded devil (barbazu) took a glancing blow. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. The bearded devil (barbazu) struck with its glaive! He jumps out of the way. 
+
+The bearded devil (barbazu) struck with its glaive! Zamos the impavidour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. Zamos stumbles to his knee, gasping for breath. The bearded devil (barbazu) struck with its glaive! The sickie bearded devil (barbazu) failed to land its hit. 
+
+The bearded devil (barbazu) struck with its glaive! Zamos blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses Zamos the high-flownour hero. The grandiose Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The bearded devil (barbazu) struck with its glaive! Zamos reeled back in pain. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses he. 
+
+The bearded devil (barbazu) struck with its glaive! He jumps out of the way. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. 
+
+The bearded devil (barbazu) struck with its glaive! He stunbles backward, gasping for breath. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+He pulls a dark taupe potion from his pack and drinks it. He is reinvigorated. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+The bearded devil (barbazu) leans low, ready to strike with its might. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) struck with its glaive! The repellent bearded devil (barbazu) failed to land its hit. The exhilarating combat made the hours seem like seconds. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The bearded devil (barbazu) struck with its glaive! The terrible bearded devil (barbazu) failed to land its hit. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The bearded devil (barbazu) was staggered by the immense force. The monster was stunned by the attack. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+He pulls a cerulean potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! The slippery bearded devil (barbazu) evaded Zamos's hit. 
+
+The bearded devil (barbazu) struck with its glaive! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The bearded devil (barbazu) struck with its glaive! The adventurer blocks the strike with his sword. 
+
+The bearded devil (barbazu) struck with its glaive! He blocks the strike with his sword. Zamos lunged toward the bearded devil (barbazu), his sword ready to strike! That blow seemed like it could break some bones. 
+
+The bearded devil (barbazu) struck with its glaive! Zamos jumps out of the way. he stumbles to his knee, gasping for breath. The bearded devil (barbazu) leans low, ready to strike with its might. 
+
+Zamos the stand tallour hero sneaked around to bearded devil (barbazu)'s blind spot. The bearded devil (barbazu) leans low, ready to strike with its might. 
 
 He was victorious! The bearded devil (barbazu) menaced for no longer! 
 
-## <a name="chapter6"></a> Chapter 6: Lorlon and the Ice Linnorm
+## <a name="chapter13"></a> Chapter 13: Regill and the Orang-pendak
 
-Fluvand followed a dirt path into the village of Lorlon. Nearby, a bishop bit into an apple. The canon loaded a market stall with wares with a currier. Fluvand continued down the path. A bodger talked excitedly with what appeared to be a costermonger.
+Zamos followed a dirt path into the village of Regill. A sailor ran from person to person, asking if they had seen Gillett. Nearby, a founder slept in an alleyway. Zamos continued down the path. Nearby, a silkwoman sat by the side of the road.
 
-Eventually, Fluvand arrived at the town square, where he found a wood seller. Fluvand approached him, hoping for some advice.
+Eventually, Zamos arrived at the town square, where he found a boatman. The man, eying his foreboding cloak, beckoned him forward.
 
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-While the chainmaker talked excitedly with what appeared to be a pattenmaker, a hurdle maker hawked fine imported goods from Sough. The man quietly reminised about the pastHe finally responded.
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-"Our village of Burgulhawley Road will gladly help you on your quest. What do you need?"
+Nearby, a fishmonger stood by a market stall, negotiating with the beadle. He still looked suspiciousHe finally responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Cleomeninos is past the monastery. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Tibbon gone as much as anybody."
+"Teleos is into the market and towards the monastery. Eventually you need to walk down the street to the barn and right. You'll see a stables. It's just a bit further down the street. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. Nearby, a rugmaker threw punches. While the pilot bit into an apple, a cook threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. A cowherd talked excitedly with what appeared to be a threadmaker. While the coppersmith, redsmith stood by a market stall, negotiating with the hatter, a shepherd loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+Teleos looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the crag linnorm, or perhaps even the charda, but that's nothing compared to the ice linnorm we've got."
+Teleos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The orang-pendak."
 
-Cleomeninos returned to the book of monsters on the desk and pointed at the terrifying illustration. "The ice linnorm dwells amid glacial crevasses and atop wind-blasted mountain peaks—tales speak of climbers unwittingly clambering over the flanks of a particularly immense ice linnorm coiled around a mountain, only to find death at its furious fangs and claws at the summit of their goal. During the fiercest winters, ice linnorms are said to slither down to the lowlands to eat entire villages."
+"Orang-pendaks are a rare offshoot of the sasquatch species that dwells in remote mountainous jungles. Elusive and shy, they are rarely seen by other races. Given their friendship with apes (gibbons and orangutans in particular) and their hunched posture and shaggy fur—ranging from tawny or reddish to dark brown or black—they are often mistaken for those beasts at a distance. Orang-pendaks train apes and monkeys to hunt and fight for them, but despite the friendship and similar appearance, the species are not closely related." Teleos explained.
 
-"I could handle that. Tell me again, what makes the ice linnorm so bad?" Fluvand responded.
+"But my weapons may be too weak. Are there any other ways to defeat the orang-pendak?" Zamos asked.
 
-"An ice linnorm is 90 feet long and weighs 18,000 pounds." Cleomeninos explained.
+Teleos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Within their remote holds, Orang-pendaks cluster together into seminomadic tribes, hunting and gathering in a region until food and game becomes scarce, then moving on to the next area. Many tribes follow a regional pattern to this migration, allowing parts of the jungle to repopulate and gathering only enough substance so as not to disrupt the land's ability to recoup the losses."
 
-"But my weapons may be too weak. Are there any other ways to defeat the ice linnorm?" Fluvand asked.
+Zamos slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Teleos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Orang-pendaks range from 3 to 5 feet tall as adults, weighing up to 150 pounds, and they are quite strong for their size. Orang-pendaks are largely herbivorous, but sometimes hunt with spears, clubs, and bolas."
+
+"But my weapons may be too weak. Are there any other ways to defeat the orang-pendak?" Zamos asked.
 
 "That's all I can tell you."
 
-Fluvand saw a terrifying ice linnorm in the distance! The adventurer readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a fairy orang-pendak in the distance! Our hero fixed his gaze on the awful sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-The ice linnorm struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The heinous ice linnorm failed to land its hit. 
+The orang-pendak struck with its spear! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The orang-pendak leans low, ready to strike with its might. 
 
-The ice linnorm struck with its bite! The menacing ice linnorm failed to land its hit. the doughty Fluvand stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
+Zamos lunged toward the orang-pendak, his sword ready to strike! The attack from Zamos surely left a impression. The monster was stunned by the attack. Zamos lunged toward the orang-pendak, his sword ready to strike! The slippery orang-pendak evaded Zamos's hit. 
 
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
+The orang-pendak leans low, ready to strike with its might. Zamos lunged toward the orang-pendak, his sword ready to strike! The slippery orang-pendak evaded Zamos's hit. 
 
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from Fluvand the stand tallour hero surely left a impression. 
+The orang-pendak leans low, ready to strike with its might. Zamos lunged toward the orang-pendak, his sword ready to strike! The slippery orang-pendak evaded Zamos's hit. 
 
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
+Zamos the courageousour hero was victorious! The orang-pendak menaced for no longer! 
 
-The ice linnorm struck with its bite! The ruinous ice linnorm failed to land its hit. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! Fluvand winces from the pain but continues fighting. 
+## <a name="chapter14"></a> Chapter 14: Norlow & Ladden and the Spider Swarm
 
-He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
+Zamos followed a dirt path into the village of Norlow & Ladden. Nearby, a exchequer slept in an alleyway. The forester gazed at him from an open window with a parish priest. Zamos continued down the path. Two sailmakers gazed at him from an open window.
 
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
+Eventually, Zamos arrived at the town square, where he found a cardmaker. Zamos approached him, hoping for some advice.
 
-The ice linnorm struck with its bite! Fluvand reeled back in pain. Fluvand the classicour hero stumbles to his knee, gasping for breath. The ice linnorm struck with its bite! He stunbles backward, gasping for breath. 
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
 
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the mythological Fluvand. 
+A procurator finished an apple and tossed the core aside. The man sat in silence for a while, then finally responded.
 
-He pulls a old rose potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
-
-He sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand the classicour hero pulls a guppie green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! Fluvand blocks the strike with his sword. 
-
-The ice linnorm struck with its bite! Fluvand winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The eerie ice linnorm failed to land its hit. 
-
-The adventurer pulls a fuzzy wuzzy potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! He jumps out of the way. 
-
-He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a chocolate traditional potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! He blocks the strike with his sword. 
-
-The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand the guttyour hero sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! Although Fluvand the elevatedour hero's hit landed, ice linnorm is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
-
-The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
-
-The ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand the gallantour hero leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
-
-The stouthearted Fluvand sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! He jumps out of the way. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The abominable ice linnorm failed to land its hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. The adventurer pulls a heliotrope potion from his pack and drinks it. He is reinvigorated. 
-
-The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ice linnorm struck with its bite! The dauntless Fluvand jumps out of the way. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He pulls a forest green traditional potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from Fluvand surely left a impression. The monster was stunned by the attack. He pulls a medium orchid potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-He pulls a rose taupe potion from his pack and drinks it. He is reinvigorated. The ice linnorm struck with its bite! The frightful ice linnorm failed to land its hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the lion-heartedour hero sneaked around to ice linnorm's blind spot. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. The gutty Fluvand pulls a cg blue potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The adventurer winces from the pain but continues fighting. 
-
-Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand the gallantour hero sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The ice linnorm struck with its bite! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
-
-He sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-The ice linnorm struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The ice linnorm leans low, ready to strike with its might. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand pulls a smoky black potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-He sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! He jumps out of the way. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was staggered by the immense force. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! Although he's hit landed, ice linnorm is mostly unphasedThe ice linnorm struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-He pulls a green munsell potion from his pack and drinks it. He is reinvigorated. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The valorous Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! The appalling ice linnorm failed to land its hit. 
-
-The ice linnorm struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm struck with its bite! Fluvand reeled back in pain. 
-
-The ice linnorm struck with its bite! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! He landed a massive hit on ice linnorm! The ice linnorm struck with its bite! He jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! The repellent ice linnorm failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
-
-He pulls a ou crimson red potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The ice linnorm struck with its bite! Fluvand jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! Fluvand the courageousour hero stunbles backward, gasping for breath. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! 
-
-The stand tall Fluvand sneaked around to ice linnorm's blind spot. The ice linnorm leans low, ready to strike with its might. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! The sickie ice linnorm failed to land its hit. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! The bold Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ice linnorm struck with its bite! The impavid Fluvand blocks the strike with his sword. 
-
-The ice linnorm struck with its bite! Fluvand the valorousour hero jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice linnorm's blind spot. 
-
-The ice linnorm struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. The high-flown Fluvand was worn out by the combat. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The ice linnorm was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ice linnorm struck with its bite! He jumps out of the way. Fluvand the guttyour hero stumbles to his knee, gasping for breath. The ice linnorm leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. The ice linnorm struck with its bite! He jumps out of the way. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from Fluvand rumbled through the ground. 
-
-The ice linnorm struck with its bite! The terrifying ice linnorm failed to land its hit. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The intrepid Fluvand jumps out of the way. 
-
-Fluvand pulls a pale blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice linnorm, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the ice linnorm, his sword ready to strike! Although the adventurer's hit landed, ice linnorm is mostly unphased
-
-The ice linnorm leans low, ready to strike with its might. The ice linnorm struck with its bite! The fierce blow from the monster narrowly misses the grandiose Fluvand. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to ice linnorm's blind spot. 
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! The undaunted Fluvand blocks the strike with his sword. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The ice linnorm leans low, ready to strike with its might. Fluvand lunged toward the ice linnorm, his sword ready to strike! The shattering blow from Fluvand the classicour hero rumbled through the ground. 
-
-He sneaked around to ice linnorm's blind spot. Fluvand lunged toward the ice linnorm, his sword ready to strike! Although Fluvand the high-flownour hero's hit landed, ice linnorm is mostly unphased
-
-Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. The ice linnorm struck with its bite! The gallant Fluvand winces from the pain but continues fighting. Fluvand lunged toward the ice linnorm, his sword ready to strike! The slippery ice linnorm evaded Fluvand's hit. 
-
-He was victorious! The ice linnorm menaced for no longer! 
-
-## <a name="chapter7"></a> Chapter 7: Ley Pood and the Adult Green Dragon
-
-Fluvand followed a dirt path into the village of Ley Pood. Two poets threw punches. Two tentsmans loaded a market stall with wares. Fluvand continued down the path. Nearby, a miner slept in an alleyway.
-
-Eventually, Fluvand arrived at the town square, where he found a sawyer. Fluvand approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-A locksmith loaded a market stall with wares. The man eyed him thoughtfully, but eventually responded.
-
-"Our village of Gool Hill will gladly help you on your quest. What do you need?"
+"Our village of Hil will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Straitzki is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Straitzki Fine Supplies". And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Tibbon gone as much as anybody."
+"Daricus is into the market and towards the stables. Eventually you need to walk past the stables. Look for the large hanging sign that reads "Daricus Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Fluvand hurried towards the armory. Nearby, a parker talked excitedly with what appeared to be a combmaker. Nearby, a curate stood by a market stall, negotiating with the goatherd. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. A mercenary finished an apple and tossed the core aside. The mapmaker slowly carried supplies with a fisherman. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+Daricus looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Straitzki grabbed a dusty book from the shelf and flipped through it. Pictures of boilborns and lunarmas flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the norn, or perhaps even the megaloceros, but that's nothing compared to the spider swarm we've got."
 
-Straitzki returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster adult green dragon is terrifying for sure, but I honestly don't know much about that beast."
+The armorer sighed and continued. "The sight of a carpet of swarming spiders is unsettling indeed—particularly when the swarm is made up of spiders each the size of a gold coin and possessing blade-like mandibles capable of lacerating flesh with sickening ease. A swarm of spiders is a colonial mass of arachnids that relies on overwhelming much larger prey with sheer numbers rather than catching smaller snacks. While spider swarms spin webs, these webs are incapable of catching larger prey and typically serve the swarm as a lair rather than a method of capturing dinner."
 
-Fluvand slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
 
-Fluvand saw a ghastly adult green dragon in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a disagreeable spider swarm in the distance! Our hero fixed his gaze on the frightful sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+He pulls a amaranth potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the spider swarm, his sword ready to strike! The spider swarm was staggered by the immense force. 
 
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+The spider swarm struck with its swarm! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The spider swarm struck with its swarm! The fierce blow from the monster narrowly misses he. 
 
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The adult green dragon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was struck by the blow! 
+Zamos lunged toward the spider swarm, his sword ready to strike! The slippery spider swarm evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to spider swarm's blind spot. 
 
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+He was victorious! The spider swarm menaced for no longer! 
 
-The adventurer sneaked around to adult green dragon's blind spot. The adult green dragon struck with its bite! Fluvand reeled back in pain. 
+## <a name="chapter15"></a> Chapter 15: Becouncoride Easte and the Janni
 
-The adult green dragon struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
+Zamos followed a dirt path into the village of Becouncoride Easte. Nearby, a landlord eyed him suspiciously. The silkmaid loaded a market stall with wares with a saltboiler. Zamos continued down the path. While the goldsmith stood by a market stall, negotiating with the tutor, a canon loaded a market stall with wares.
 
-The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! He blocks the strike with his sword. 
-
-The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses the valorous Fluvand. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. The adventurer pulls a medium violet red potion from his pack and drinks it. He is reinvigorated. 
-
-The adult green dragon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! He winces from the pain but continues fighting. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon took a glancing blow. The adult green dragon struck with its bite! He jumps out of the way. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from Fluvand the valiantour hero rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-He sneaked around to adult green dragon's blind spot. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
-
-The gutsy Fluvand sneaked around to adult green dragon's blind spot. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-He sneaked around to adult green dragon's blind spot. Fluvand lunged toward the adult green dragon, his sword ready to strike! Fluvand the exaggeratedour hero landed a massive hit on adult green dragon! 
-
-The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses the doughty Fluvand. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-The adult green dragon struck with its bite! The hideous adult green dragon failed to land its hit. Fluvand lunged toward the adult green dragon, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The attack from he surely left a impression. The adult green dragon struck with its bite! The bigger than life Fluvand winces from the pain but continues fighting. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adult green dragon was struck by the blow! 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The adult green dragon struck with its bite! Fluvand blocks the strike with his sword. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium spring green potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-The adventurer sneaked around to adult green dragon's blind spot. The adult green dragon leans low, ready to strike with its might. 
-
-He pulls a canary yellow potion from his pack and drinks it. He is reinvigorated. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valiantour hero. 
-
-The adult green dragon leans low, ready to strike with its might. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-He pulls a navy blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the adult green dragon, his sword ready to strike! The adventurer landed a massive hit on adult green dragon! 
-
-He pulls a orange peel potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the adult green dragon, his sword ready to strike! The slippery adult green dragon evaded Fluvand's hit. 
-
-The adult green dragon leans low, ready to strike with its might. The adult green dragon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valorousour hero. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Straitzki was talking about."
-
-## <a name="chapter8"></a> Chapter 8: Tufne and the Ice Troll
-
-Fluvand followed a dirt path into the village of Tufne. While the maid slept in an alleyway, a confectioner hawked fine imported goods from Bandstbort Road. While the merchant taylor rushed by quickly, ignoring him, a horner loaded a market stall with wares. Fluvand continued down the path. Two jailers slept in an alleyway.
-
-Eventually, Fluvand arrived at the town square, where he found a stonecutter. The man, eying his impressive armor, beckoned him forward.
+Eventually, Zamos arrived at the town square, where he found a spurrer. The man, eying his unusual weapons, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
 
-Nearby, a pursuivant talked excitedly with what appeared to be a camp follower. He still looked suspicious, then finally responded.
+Nearby, a landlord slept in an alleyway. The man eyed him thoughtfully, then finally responded.
 
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"Our village of Chead will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is into the market and towards the barn. Eventually you need to walk into the market and towards the church. Eventually you need to walk into the market and towards the stables. Eventually you need to walk past the monastery. It's just to the left. You'll find Bion, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+"The armory is just a bit further down the street. It's just to the right. You'll find Lapheus, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. The scout bit into an apple with a lacemaker. Nearby, a saltboiler hawked fine imported goods from Grebderborow. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. The glover threw punches with a nailer. Two wheelwrights eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+Lapheus looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Bion lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice troll."
+"Brave you say? You may have fought the cloud giant, or perhaps even the mummified gynosphinx, but that's nothing compared to the janni we've got."
 
-The armorer sighed and continued. "Ice trolls are somewhat smaller than normal trolls, but they possess greater intelligence and cunning and are just as voraciously hungry. They display the typical hunched posture of trolls, combined with long arms tipped with sharp claws and the distinctive troll underbite. Like normal trolls, ice trolls possess amazing regenerative powers that enable them to recover from almost any wound. Unlike most trolls, ice trolls often use weapons in battle, but in the heat of combat, they often cast aside weapons in favor of their rending claws. An ice troll stands about 10 feet tall and weighs up to 900 pounds."
+The armorer sighed and continued. "The jann (singular janni) are the weakest of the genies. Jann are formed out of all four elements and must therefore spend most of their time on the Material Plane. Some lore even casts the janni as the most "human" of the genie races, although most jann are quick to correct this insult, usually with the edge of a sword. A janni is human-sized, standing about 6 feet tall and weighing about 180 pounds."
 
-"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+"But my weapons may be too weak. Are there any other ways to defeat the janni?" Zamos asked.
 
-"Because of their greater intellects, ice trolls sometimes work as mercenaries, and often serve as soldiers in monstrous armies. They frequently ally with frost giants, and may even be found among northern barbarian tribes, as long as they are well fed and well paid." Bion explained.
+Lapheus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Jann are physically strong and courageous, and do not take kindly to insult or injury. Most are quite prone to seeing insult even when none is intended by the speaker. If overwhelmed in battle, they escape using flight and invisibility, returning later with reinforcements."
 
-Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-The armorer sighed and continued. "Ice trolls enjoy the taste of human flesh, and those not working with humans frequently set traps near civilized areas to catch their favorite prey. They will also raid isolated settlements for food, often bringing captured humans back to their icy lairs, where the unfortunate victims are caged and fattened up before finally being devoured by the voracious trolls."
+The armorer sighed and continued. "Jann enjoy their privacy, preferring the solitude of the deep desert and isolated oases. They are usually suspicious of humans, but are often willing to give them the benefit of the doubt. Jann have a strong cultural tradition of hospitality, and will never turn away someone in need of food, water, or shelter, though they might expect payment in the form of a favor at some later date. "
 
-"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-The armorer sighed and continued. "In combat, ice trolls are more cautious than normal trolls. They do not normally rush headlong into battle, instead focusing on weaker foes or those bearing fire. They do not hesitate to attack opponents armed with fire, but work together to defeat such enemies before they can bring their dangerous weapons to bear."
+The armorer sighed and continued. "Among the other genie races, jann generally have good relations with both djinn and shaitans. While not actively enemies, jann dislike the proud and aloof marids. Jann have a distinct aversion to the efreet, who often try to enslave them or conscript them into their armies."
 
-"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-Bion returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice troll society is more patriarchal than normal troll society, and while males may form gangs to hunt or raid, most ice trolls live in small family groups comprised of a male, a female, and their offspring."
+"A small percentage of jann are noble. Noble jann, often called sheikhs or amirs, have 9 Hit Dice, Strength 19, and Intelligence 18, and gain the following spell-like abilities: 3/day—augury, detect magic, and divination. A noble janni's caster level for its spell-like abilities is 12th. Noble jann are CR 7." Lapheus explained.
 
-Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the janni so bad?" Zamos responded.
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
 
-Fluvand saw a appalling ice troll in the distance! He readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a hideous janni in the distance! Our hero fixed his gaze on the detestable sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand the inflatedour hero sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. 
+The janni leans low, ready to strike with its might. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand the fire-eatingour hero pulls a redwood potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll took a glancing blow. 
+The janni struck with its scimitar! He winces from the pain but continues fighting. Zamos lunged toward the janni, his sword ready to strike! The janni took a glancing blow. 
 
-Fluvand sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! He blocks the strike with his sword. 
+Zamos the dauntlessour hero pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+He pulls a coral potion from his pack and drinks it. He is reinvigorated. The janni leans low, ready to strike with its might. 
 
-The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+He pulls a medium persian blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the janni, his sword ready to strike! Although Zamos's hit landed, janni is mostly unphased
 
-The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The janni leans low, ready to strike with its might. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The janni leans low, ready to strike with its might. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-The fearless Fluvand sneaked around to ice troll's blind spot. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. The monster was stunned by the attack. The grandiose Zamos sneaked around to janni's blind spot. 
 
-The ice troll struck with its battleaxe! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice troll leans low, ready to strike with its might. 
+He sneaked around to janni's blind spot. The janni struck with its scimitar! The repulsive janni failed to land its hit. 
 
-He pulls a heart gold potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll took a glancing blow. 
+Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. The monster was stunned by the attack. Zamos the stand tallour hero sneaked around to janni's blind spot. 
 
-Fluvand the unafraidour hero sneaked around to ice troll's blind spot. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos lunged toward the janni, his sword ready to strike! The janni took a glancing blow. The monster was stunned by the attack. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-The ice troll struck with its battleaxe! He stunbles backward, gasping for breath. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The janni struck with its scimitar! The menacing janni failed to land its hit. Zamos lunged toward the janni, his sword ready to strike! The attack from Zamos the stand tallour hero surely left a impression. 
 
-The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. The gutsy Fluvand sneaked around to ice troll's blind spot. 
+Zamos lunged toward the janni, his sword ready to strike! A sharp crack was heard as the strike left its mark. The janni struck with its scimitar! The fierce blow from the monster narrowly misses the high-flown Zamos. Zamos lunged toward the janni, his sword ready to strike! The janni took a glancing blow. 
 
-The ice troll leans low, ready to strike with its might. The ice troll struck with its battleaxe! The fierce blow from the monster narrowly misses he. 
+Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. The janni struck with its scimitar! The lion-hearted Zamos blocks the strike with his sword. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. The janni struck with its scimitar! He winces from the pain but continues fighting. Zamos lunged toward the janni, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The ice troll struck with its battleaxe! The ungodly ice troll failed to land its hit. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The janni struck with its scimitar! Zamos blocks the strike with his sword. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The attack from he surely left a impression. The ice troll struck with its battleaxe! The fairy ice troll failed to land its hit. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The janni struck with its scimitar! Zamos the epicour hero jumps out of the way. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-The ice troll struck with its battleaxe! The detestable ice troll failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The ice troll struck with its battleaxe! He winces from the pain but continues fighting. 
+The mythological Zamos sneaked around to janni's blind spot. Zamos lunged toward the janni, his sword ready to strike! The slippery janni evaded Zamos's hit. 
 
-Fluvand sneaked around to ice troll's blind spot. The ice troll struck with its battleaxe! The scandalous ice troll failed to land its hit. 
+Zamos lunged toward the janni, his sword ready to strike! That blow seemed like it could break some bones. The janni struck with its scimitar! He blocks the strike with his sword. Zamos lunged toward the janni, his sword ready to strike! Zamos landed a massive hit on janni! 
 
-The ice troll struck with its battleaxe! The adventurer blocks the strike with his sword. Fluvand lunged toward the ice troll, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+The daring Zamos sneaked around to janni's blind spot. The janni struck with its scimitar! The lousy janni failed to land its hit. 
 
-Fluvand the grittyour hero pulls a straw potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+The gritty Zamos sneaked around to janni's blind spot. The janni struck with its scimitar! Zamos reeled back in pain. 
 
-He pulls a aquamarine potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos was victorious! The janni menaced for no longer! 
 
-The ice troll leans low, ready to strike with its might. Fluvand lunged toward the ice troll, his sword ready to strike! That blow seemed like it could break some bones. 
+## <a name="chapter16"></a> Chapter 16: Che Parrouthfier and the Azruverda
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice troll, his sword ready to strike! The slippery ice troll evaded Fluvand's hit. 
+Zamos followed a dirt path into the village of Che Parrouthfier. Two monks stood by a market stall, negotiating with the hunter. Two abbots finished an apple and tossed the core aside. Zamos continued down the path. A vintner loaded a market stall with wares.
 
-Fluvand lunged toward the ice troll, his sword ready to strike! The ice troll was struck by the blow! The monster was stunned by the attack. Fluvand the guttyour hero sneaked around to ice troll's blind spot. 
+Eventually, Zamos arrived at the town square, where he found a charcoalburner. Zamos approached him, hoping for some advice.
 
-He was victorious! The ice troll menaced for no longer! 
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
 
-## <a name="chapter9"></a> Chapter 9: Ham and the Ghost
+Nearby, a pioneer gazed at him from an open window. The man sat in silence for a while, but eventually responded.
 
-Fluvand followed a dirt path into the village of Ham. A hobbler loaded a market stall with wares. A architect finished an apple and tossed the core aside. Fluvand continued down the path. A peasant sat by the side of the road.
+"Our village of Garmity will gladly help you on your quest. What do you need?"
 
-Eventually, Fluvand arrived at the town square, where he found a nedeller. The man, eying his dangerous demeanor, beckoned him forward.
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Raufrey is the best in town. His shop is past the stables. It's just to the right. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Audo gone as much as anybody."
+
+Zamos hurried towards the armory. Nearby, a lawyer slept in an alleyway. While the bard finished an apple and tossed the core aside, a silversmith eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Raufrey looked up from his work behind a counter at Zamos.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the urannag, or perhaps even the vishkanya, but that's nothing compared to the azruverda we've got."
+
+"Although repulsive in shape, these enormous, human-faced insectoid creatures are generally peaceful and serene. Left to its own devices, an azruverda is typically content to cultivate fungal gardens in deep underground sanctuaries. These gardens are beautiful to behold—masterful combinations of fungi, rocks, and other objects arranged in an artistic manner. Although generally solitary, azruverdas collaborate when a threat intrudes upon one of their underground homes. " Raufrey explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the azruverda?" Zamos asked.
+
+Raufrey returned to the book of monsters on the desk and pointed at the terrifying illustration. "Azruverdas stand 16 feet tall on their many legs and weigh close to 4,000 pounds."
+
+Zamos slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
+
+Zamos saw a scary azruverda in the distance! The gallant Zamos readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+He sneaked around to azruverda's blind spot. The azruverda struck with its bite! The fire-eating Zamos blocks the strike with his sword. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was struck by the blow! The monster was stunned by the attack. He pulls a mustard potion from his pack and drinks it. He is reinvigorated. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was struck by the blow! 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The azruverda struck with its bite! He blocks the strike with his sword. Zamos lunged toward the azruverda, his sword ready to strike! The azruverda took a glancing blow. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! Zamos the dauntlessour hero blocks the strike with his sword. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! Zamos jumps out of the way. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! Although the gallant Zamos's hit landed, azruverda is mostly unphased
+
+Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was staggered by the immense force. The azruverda struck with its bite! Zamos blocks the strike with his sword. Zamos lunged toward the azruverda, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Zamos sneaked around to azruverda's blind spot. The azruverda leans low, ready to strike with its might. 
+
+He sneaked around to azruverda's blind spot. Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was staggered by the immense force. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! He jumps out of the way. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! He jumps out of the way. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. Zamos the nobleour hero pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was struck by the blow! 
+
+The adventurer sneaked around to azruverda's blind spot. The azruverda leans low, ready to strike with its might. 
+
+He pulls a deep fuchsia potion from his pack and drinks it. He is reinvigorated. The azruverda leans low, ready to strike with its might. 
+
+He sneaked around to azruverda's blind spot. The azruverda struck with its bite! The ungodly azruverda failed to land its hit. 
+
+He sneaked around to azruverda's blind spot. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+He pulls a jade potion from his pack and drinks it. He is reinvigorated. The azruverda leans low, ready to strike with its might. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to azruverda's blind spot. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda struck with its bite! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The azruverda struck with its bite! Zamos reeled back in pain. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. The stand tall Zamos was worn out by the combat. The azruverda leans low, ready to strike with its might. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the azruverda, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! The bold Zamos jumps out of the way. 
+
+The azruverda struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The azruverda leans low, ready to strike with its might. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The azruverda struck with its bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the azruverda, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos sneaked around to azruverda's blind spot. The azruverda struck with its bite! He winces from the pain but continues fighting. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The noble Zamos landed a massive hit on azruverda! The azruverda struck with its bite! The cruel azruverda failed to land its hit. Zamos lunged toward the azruverda, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The azruverda was struck by the blow! The monster was stunned by the attack. The mythological Zamos sneaked around to azruverda's blind spot. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda struck with its bite! The adventurer jumps out of the way. Zamos the grandioseour hero leaned on his sword to catch a moment's respite. Zamos the boldour hero was worn out by the combat. The azruverda struck with its bite! Zamos the gutsyour hero stunbles backward, gasping for breath. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! The fierce blow from the monster narrowly misses the valorous Zamos. 
+
+Zamos sneaked around to azruverda's blind spot. Zamos lunged toward the azruverda, his sword ready to strike! The azruverda took a glancing blow. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. He pulls a charcoal potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda struck with its bite! The valiant Zamos jumps out of the way. Zamos lunged toward the azruverda, his sword ready to strike! Although he's hit landed, azruverda is mostly unphased
+
+The azruverda struck with its bite! The detestable azruverda failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The azruverda struck with its bite! Zamos winces from the pain but continues fighting. 
+
+The azruverda leans low, ready to strike with its might. The azruverda struck with its bite! He blocks the strike with his sword. 
+
+The gritty Zamos sneaked around to azruverda's blind spot. The azruverda struck with its bite! Zamos blocks the strike with his sword. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+The azruverda leans low, ready to strike with its might. Zamos lunged toward the azruverda, his sword ready to strike! The attack from the intrepid Zamos surely left a impression. 
+
+The azruverda struck with its bite! He jumps out of the way. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. The azruverda struck with its bite! Zamos stunbles backward, gasping for breath. Zamos lunged toward the azruverda, his sword ready to strike! The slippery azruverda evaded Zamos's hit. 
+
+He was victorious! The azruverda menaced for no longer! 
+
+## <a name="chapter17"></a> Chapter 17: Sough and the Dragonne
+
+Zamos followed a dirt path into the village of Sough. The sailmaker eyed him suspiciously with a wheelwright. Two dentists bit into an apple. Zamos continued down the path. Nearby, a famulus loaded a market stall with wares.
+
+Eventually, Zamos arrived at the town square, where he found a armorer. The man, eying his determined look, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
 
-Nearby, a woodcarver eyed him suspiciously. The man eyed him thoughtfully, but eventually responded.
+Two barbers slowly carried supplies. The man sat in silence for a while, then finally responded.
 
-"Our village of Ruishord's Wembelde will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is down the street to the tavern and right. You'll see a barn. It's just a bit further down the street. There's a small door. You'll find Mahus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Tibbon gone as much as anybody."
-
-Fluvand hurried towards the armory. The tinsmith loaded a market stall with wares with a beadle. Two philosophers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Mahus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ghost."
-
-The armorer sighed and continued. "When a soul is not allowed to rest due to some great injustice, either real or perceived, it sometimes comes back as a ghost. Such beings are in eternal anguish, lacking in substance and unable to set things right. Although ghosts can be any alignment, the majority cling to the living world out of a powerful sense of rage and hatred, and as a result are chaotic evil—even the ghost of a good or lawful creature can become hateful and cruel in its afterlife."
-
-Fluvand slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Mahus returned to the book of monsters on the desk and pointed at the terrifying illustration. "More than most of the monsters in this book, a ghost benefits from a strong and detailed backstory. Why did this character become a ghost? What are the legends surrounding the ghost? An encounter with a ghost should never happen completely out of the blue—there are plenty of other incorporeal undead like wraiths and spectres to fill that role. A proper encounter with a ghost should be a climactic scene after a lengthy period of tension building with lesser minions or manifestations of the undead spirit. The sample ghost above is that of a human princess who was murdered by an unfaithful lover—after she confronted him, he murdered her by wrapping her in chains and throwing her into the castle well, where she drowned. The ghost's abilities were selected to fit this backstory, and it shows how potent a villain you can create with a simple NPC class. Applying the template to creatures with class levels or creatures with significant racial abilities can create even more powerful ghosts."
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-"When a ghost is created, it retains incorporeal "copies" of any items that it particularly valued in life (provided the originals are not in another creature's possession). The equipment works normally for the ghost but passes harmlessly through material objects or creatures. A weapon of +1 or better magical enhancement, however, can harm material creatures, but any such attack deals only half as much damage (50%) unless it is a ghost touch weapon. A ghost can use shields or armor only if they have the ghost touch quality." Mahus explained.
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "The original items remain behind, just as the ghost's physical remains do. If another creature seizes the original, the incorporeal copy fades away. This loss invariably angers the ghost, who stops at nothing to return the item to its original resting place (and thus regain the item's use)."
-
-Fluvand slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a ruinous ghost in the distance! Our hero fixed his gaze on the heinous sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-ghost lunged toward Fluvand! He blocks the strike with his sword. Fluvand lunged toward the ghost, his sword ready to strike! The shattering blow from the intrepid Fluvand rumbled through the ground. 
-
-He sneaked around to ghost's blind spot. The ghost leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ghost, his sword ready to strike! The ghost was struck by the blow! The monster was stunned by the attack. He pulls a zinnwaldite brown potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. ghost lunged toward Fluvand! The gruesome ghost failed to land its hit. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
-
-ghost lunged toward Fluvand! The impavid Fluvand jumps out of the way. the gutty Fluvand stumbles to his knee, gasping for breath. ghost lunged toward Fluvand! He blocks the strike with his sword. 
-
-He pulls a red munsell potion from his pack and drinks it. He is reinvigorated. ghost lunged toward Fluvand! The appalling ghost failed to land its hit. 
-
-ghost lunged toward Fluvand! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The ghost leans low, ready to strike with its might. 
-
-The ghost leans low, ready to strike with its might. ghost lunged toward Fluvand! The doughty Fluvand blocks the strike with his sword. 
-
-The ghost leans low, ready to strike with its might. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
-
-ghost lunged toward Fluvand! He jumps out of the way. The exhilarating combat made the hours seem like seconds. ghost lunged toward Fluvand! He stunbles backward, gasping for breath. 
-
-The adventurer sneaked around to ghost's blind spot. ghost lunged toward Fluvand! The fearful ghost failed to land its hit. 
-
-He sneaked around to ghost's blind spot. The ghost leans low, ready to strike with its might. 
-
-Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ghost, his sword ready to strike! He landed a massive hit on ghost! 
-
-ghost lunged toward Fluvand! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghost leans low, ready to strike with its might. 
-
-Fluvand the intrepidour hero sneaked around to ghost's blind spot. ghost lunged toward Fluvand! Fluvand the bigger than lifeour hero stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the ghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
-
-Fluvand the lion-heartedour hero pulls a royal yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ghost, his sword ready to strike! The attack from the gutty Fluvand surely left a impression. 
-
-He pulls a medium tuscan red potion from his pack and drinks it. He is reinvigorated. ghost lunged toward Fluvand! The fierce blow from the monster narrowly misses he. 
-
-ghost lunged toward Fluvand! He winces from the pain but continues fighting. Fluvand lunged toward the ghost, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to ghost's blind spot. Fluvand lunged toward the ghost, his sword ready to strike! The slippery ghost evaded Fluvand's hit. 
-
-Fluvand lunged toward the ghost, his sword ready to strike! The adventurer landed a massive hit on ghost! The monster was stunned by the attack. He sneaked around to ghost's blind spot. 
-
-The valiant Fluvand was victorious! The ghost menaced for no longer! 
-
-## <a name="chapter10"></a> Chapter 10: Swichlest and the Air Veela
-
-Fluvand followed a dirt path into the village of Swichlest. The silversmith finished an apple and tossed the core aside with a bowyer. A barker slowly carried supplies. Fluvand continued down the path. The curate threw punches with a halberdier.
-
-Eventually, Fluvand arrived at the town square, where he found a paperer. The man, eying his impressive armor, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
-
-Nearby, a poulter scuttled out of his way. The man eyed him thoughtfullyHe finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"Our village of Stratford will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Xenous is past the inn. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Lysian is past the church. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. The link man gazed at him from an open window with a wood seller. Two pissprophets bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. The tapestrymaker threw punches with a poet. A silversmith stood by a market stall, negotiating with the maid. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Xenous looked up from his work behind a counter at Fluvand.
+Lysian looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Xenous grabbed a dusty book from the shelf and flipped through it. Pictures of glass golems and hieracosphinxs flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the kappa, or perhaps even the soulbound doll, but that's nothing compared to the dragonne we've got."
 
-Xenous returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster air veela is terrifying for sure, but I honestly don't know much about that beast."
+The armorer sighed and continued. "Possessing the savage instincts of lions with the cunning of brass dragons, dragonnes combine the fiercest features of these noble creatures into predators both awe-inspiring and deadly."
 
-"I could handle that. Tell me again, what makes the air veela so bad?" Fluvand responded.
+Zamos slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Lysian returned to the book of monsters on the desk and pointed at the terrifying illustration. "The origin of dragonnes generates endless speculation. The odds of these creatures being direct crossbreeds of dragons and lions are quite remote, for numerous reasons: the two creatures rarely share the same territories; few creatures as clever as brass dragons would choose to mate with simple lions; and dragonne abilities differ significantly from those of metallic dragons. While otherworldly breeding experiments and magical mishaps remain possibilities, few satisfying explanations make themselves apparent.  "
+
+"But my weapons may be too weak. Are there any other ways to defeat the dragonne?" Zamos asked.
+
+Lysian returned to the book of monsters on the desk and pointed at the terrifying illustration. "Although many creatures rightly fear these ferocious hunters, few dragonnes are blatantly evil—most are just highly territorial and seek to defend their homes and hunting grounds from interlopers. Creatures that draw too close to a dragonne's lair are typically met by the resident's fearsome roar, followed by its claws and fangs if this warning is ignored. Those who attempt to settle in a dragonne's territory find themselves harassed constantly until they decide to leave or the dragonne is slain. These intimidating predators spend the majority of their time on the ground, even when in combat, since their wings prove somewhat ungainly. They typically search for prey and intruders from the air, then land nearby to charge and pounce. "
+
+"I could handle that. Tell me again, what makes the dragonne so bad?" Zamos responded.
+
+"Despite their deadliness, dragonnes form strong bonds with those they consider members of their pride, sometimes even adopting creatures of other races. A character with the Leadership feat can take a dragonne as a cohort. Such characters must have an effective leadership level of 10th. Most dragonne cohorts gain levels in barbarian, fighter, or ranger." Lysian explained.
+
+Zamos slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Lysian returned to the book of monsters on the desk and pointed at the terrifying illustration. "A dragonne measures between 10 and 12 feet long and weighs up to 1,200 pounds."
+
+"I could handle that. Tell me again, what makes the dragonne so bad?" Zamos responded.
 
 "That's all I can tell you."
 
-Fluvand saw a ungodly air veela in the distance! Our hero fixed his gaze on the scary sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a fearful dragonne in the distance! He readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-The air veela struck with its mwk dagger! The classic Fluvand stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! He jumps out of the way. 
+Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. The monster was stunned by the attack. He pulls a black potion from his pack and drinks it. He is reinvigorated. 
 
-The impavid Fluvand pulls a jungle green potion from his pack and drinks it. He is reinvigorated. The air veela struck with its mwk dagger! He stunbles backward, gasping for breath. 
+The dragonne struck with its bite! Zamos the dauntlessour hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The dragonne struck with its bite! He jumps out of the way. 
 
-The air veela struck with its mwk dagger! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! He blocks the strike with his sword. 
+Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. The dragonne struck with its bite! The fierce blow from the monster narrowly misses Zamos. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-He sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+Zamos lunged toward the dragonne, his sword ready to strike! The dragonne was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses he. Fluvand the dauntlessour hero stumbles to his knee, gasping for breath. The air veela struck with its mwk dagger! He blocks the strike with his sword. 
+Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. The dragonne struck with its bite! The hideous dragonne failed to land its hit. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-He sneaked around to air veela's blind spot. The air veela leans low, ready to strike with its might. 
+The dragonne struck with its bite! Zamos reeled back in pain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dragonne struck with its bite! The revolting dragonne failed to land its hit. 
 
-Fluvand the daringour hero sneaked around to air veela's blind spot. The air veela leans low, ready to strike with its might. 
+Zamos pulls a corn potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-The air veela leans low, ready to strike with its might. The air veela struck with its mwk dagger! He jumps out of the way. 
+The dragonne struck with its bite! The loathsome dragonne failed to land its hit. Zamos lunged toward the dragonne, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The air veela was struck by the blow! The air veela struck with its mwk dagger! The lousy air veela failed to land its hit. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was staggered by the immense force. 
+The dragonne struck with its bite! He blocks the strike with his sword. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+The dragonne leans low, ready to strike with its might. The dragonne struck with its bite! He blocks the strike with his sword. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! He jumps out of the way. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+The courageous Zamos sneaked around to dragonne's blind spot. Zamos lunged toward the dragonne, his sword ready to strike! Although the adventurer's hit landed, dragonne is mostly unphased
 
-The air veela struck with its mwk dagger! He stunbles backward, gasping for breath. The lion-hearted Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The air veela leans low, ready to strike with its might. 
+Zamos lunged toward the dragonne, his sword ready to strike! The dragonne was staggered by the immense force. The monster was stunned by the attack. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! Fluvand blocks the strike with his sword. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+The dragonne leans low, ready to strike with its might. The dragonne struck with its bite! The fierce blow from the monster narrowly misses the gutty Zamos. 
 
-He sneaked around to air veela's blind spot. The air veela struck with its mwk dagger! Fluvand reeled back in pain. 
+Zamos lunged toward the dragonne, his sword ready to strike! The shattering blow from Zamos the gallantour hero rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the stoutheartedour hero sneaked around to air veela's blind spot. 
+The dragonne leans low, ready to strike with its might. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-The adventurer pulls a raspberry glace potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+The dragonne struck with its bite! The beastly dragonne failed to land its hit. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The dragonne struck with its bite! The adventurer winces from the pain but continues fighting. 
 
-The air veela leans low, ready to strike with its might. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses Fluvand. 
+The dragonne leans low, ready to strike with its might. Zamos lunged toward the dragonne, his sword ready to strike! That blow seemed like it could break some bones. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses the valiant Fluvand. Fluvand lunged toward the air veela, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The dragonne struck with its bite! The awful dragonne failed to land its hit. he stumbles to his knee, gasping for breath. The dragonne struck with its bite! Zamos reeled back in pain. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to air veela's blind spot. 
+Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-Fluvand sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was staggered by the immense force. 
+The dragonne struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The dragonne leans low, ready to strike with its might. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! Fluvand reeled back in pain. Fluvand lunged toward the air veela, his sword ready to strike! The air veela took a glancing blow. 
+The adventurer sneaked around to dragonne's blind spot. Zamos lunged toward the dragonne, his sword ready to strike! The slippery dragonne evaded Zamos's hit. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a orange web color potion from his pack and drinks it. He is reinvigorated. 
+The dragonne struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The dragonne struck with its bite! He blocks the strike with his sword. 
 
-The air veela struck with its mwk dagger! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The air veela struck with its mwk dagger! The shameful air veela failed to land its hit. 
+The dragonne struck with its bite! Zamos stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The dragonne struck with its bite! The offensive dragonne failed to land its hit. 
 
-He sneaked around to air veela's blind spot. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+The dragonne leans low, ready to strike with its might. The dragonne struck with its bite! The ruinous dragonne failed to land its hit. 
 
-The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! Although Fluvand's hit landed, air veela is mostly unphased
+Zamos lunged toward the dragonne, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos the courageousour hero sneaked around to dragonne's blind spot. 
 
-The air veela leans low, ready to strike with its might. Fluvand lunged toward the air veela, his sword ready to strike! The attack from he surely left a impression. 
+The dragonne struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The dragonne leans low, ready to strike with its might. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! That blow seemed like it could break some bones. The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the air veela, his sword ready to strike! The air veela was struck by the blow! 
+Zamos sneaked around to dragonne's blind spot. The dragonne leans low, ready to strike with its might. 
 
-Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. The air veela struck with its mwk dagger! The dauntless Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the air veela, his sword ready to strike! The slippery air veela evaded Fluvand's hit. 
+Zamos says
 
-The air veela struck with its mwk dagger! The fierce blow from the monster narrowly misses Fluvand. The exhilarating combat made the hours seem like seconds. The air veela leans low, ready to strike with its might. 
+"That didn't seem so hard, I don't know what Lysian was talking about."
 
-He was victorious! The air veela menaced for no longer! 
+## <a name="chapter18"></a> Chapter 18: Lank and the Ocean Giant
 
-## <a name="chapter11"></a> Chapter 11: Clanchmondenhiria) and the Wight
+Zamos followed a dirt path into the village of Lank. Two sea captains talked excitedly with what appeared to be a almoner. Nearby, a gunsmith scuttled out of his way. Zamos continued down the path. The bonecarver slowly carried supplies with a doctor.
 
-Fluvand followed a dirt path into the village of Clanchmondenhiria). Two drummers stood by a market stall, negotiating with the glass seller. Nearby, a archer sat by the side of the road. Fluvand continued down the path. Two millers sat by the side of the road.
+Eventually, Zamos arrived at the town square, where he found a glover. Zamos approached him, hoping for some advice.
 
-Eventually, Fluvand arrived at the town square, where he found a hawker. Fluvand approached him, hoping for some advice.
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
 
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
+Two cardinals talked excitedly with what appeared to be a professor. The man quietly reminised about the past, but eventually responded.
 
-Nearby, a mailer talked excitedly with what appeared to be a ropemaker. The man quietly reminised about the pastHe finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"Our village of Craidger Park will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is just a bit further down the street. Look for the large hanging sign that reads "Gerhard Fine Supplies". You'll find Gerhard, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Cyridesmas is the best in town. His shop is just a bit further down the street. It's just to the right. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. While the plattner bit into an apple, a constable sat by the side of the road. Nearby, a wetnurse ran from person to person, asking if they had seen Estes. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. A troubadour stood by a market stall, negotiating with the builder. Two plattners sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+Cyridesmas looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Gerhard grabbed a dusty book from the shelf and flipped through it. Pictures of adlets and seraptiss flew by. Eventually he settled on a page and started to explain.
+Cyridesmas grabbed a dusty book from the shelf and flipped through it. Pictures of medium water elementals and deathtrap oozes flew by. Eventually he settled on a page and started to explain.
 
-Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Wights are humanoids who rise as undead due to necromancy, a violent death, or an extremely malevolent personality. In some cases, a wight arises when an evil undead spirit permanently bonds with a corpse, often the corpse of a slain warrior. They are barely recognizable to those who knew them in life; their flesh is twisted by evil and undeath, the eyes burn with hatred, and the teeth become beast-like. In some ways, a wight bridges the gap between a ghoul and a spectre—a warped animated corpse whose touch steals living energy."
+The armorer sighed and continued. "Ocean giants embody the great extremes of the sea. Their skin colors vary from deep blue to pale green, and their eyes and hair range from foamy white to coral pink. They decorate themselves with the treasures of the sea, wearing shell jewelry or scrimshaw, and clothing woven from underwater plants, or even salvaged sails. Each ocean giant carries a hand-crafted musical horn made from a conch shell, an object of cultural significance representing its family history and travels on the vast sea."
 
-Fluvand slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the ocean giant so bad?" Zamos responded.
 
-"As undead, wights do not need to breathe, so they are sometimes found underwater, though they are not particularly good swimmers unless they were originally swimming creatures such as aquatic elves or merfolk. Underwater wights prefer low-ceilinged caves where their limited swimming isn't as much of a liability." Gerhard explained.
+"Many ocean giants view themselves as guardians of the sea, its creatures, and those who travel the waves, safeguarding their charges from remarkable coral towers. Others, however, claim domains measuring thousands of leagues, enslaving the beasts and aquatic races within and shattering any ship that dares trespass near their citadels of urchins and bones." Cyridesmas explained.
 
-"But my weapons may be too weak. Are there any other ways to defeat the wight?" Fluvand asked.
+Zamos slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"The wight presented here is a typical example of its kind, but sometimes when a wight creates spawn from particularly unusual humanoids, the resulting wights are quite different in power, such as the following three variants." Gerhard explained.
+"Adult ocean giants stand approximately 22 feet tall and weigh about 15,000 pounds. Most live to be about 500 years old." Cyridesmas explained.
 
-"I could handle that. Tell me again, what makes the wight so bad?" Fluvand responded.
+"I could handle that. Tell me again, what makes the ocean giant so bad?" Zamos responded.
 
-Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Brute Wight (CR 5): Giants that are killed by wights become hunchbacked, simple-minded undead. Brute wights are giant advanced wights, but cannot create spawn of their own."
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
 
-Fluvand slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos saw a loathsome ocean giant in the distance! Zamos the gallantour hero readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-"Cairn Wight (CR 4): Some societies deliberately create these specialized wights to serve as guardians for barrows or other burial sites. A cairn wight is an advanced wight that fights with a weapon, typically a sword, that channels its energy drain attack and affects creatures damaged by the weapon as if they had been struck by the wight's slam attack." Gerhard explained.
+The ocean giant struck with its mwk trident! Zamos jumps out of the way. he stumbles to his knee, gasping for breath. The ocean giant leans low, ready to strike with its might. 
 
-"But my weapons may be too weak. Are there any other ways to defeat the wight?" Fluvand asked.
+The ocean giant struck with its mwk trident! Zamos reeled back in pain. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-Gerhard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Frost Wight (CR 4): Wights created in cold environments sometimes become pale undead with blue-white eyes and ice in their hair. Frost wights have the cold subtype and their slam attacks deal 1d6 cold damage in addition to the normal effects. A creature touching a frost wight with natural weapons or unarmed strikes takes 1d6 cold damage."
+He pulls a light gray potion from his pack and drinks it. He is reinvigorated. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses the bold Zamos. 
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! The grandiose Zamos blocks the strike with his sword. 
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! Zamos reeled back in pain. 
 
-Fluvand saw a unholy wight in the distance! Our hero fixed his gaze on the mean sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+The ocean giant struck with its mwk trident! Zamos the stoutheartedour hero jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ocean giant leans low, ready to strike with its might. 
 
-The wight leans low, ready to strike with its might. Fluvand lunged toward the wight, his sword ready to strike! The slippery wight evaded Fluvand's hit. 
+Zamos sneaked around to ocean giant's blind spot. The ocean giant leans low, ready to strike with its might. 
 
-Fluvand lunged toward the wight, his sword ready to strike! The attack from he surely left a impression. The wight struck with its slam! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the wight, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+He sneaked around to ocean giant's blind spot. The ocean giant struck with its mwk trident! Zamos blocks the strike with his sword. 
 
-Fluvand the intrepidour hero sneaked around to wight's blind spot. Fluvand lunged toward the wight, his sword ready to strike! The wight took a glancing blow. 
+He pulls a sapphire blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-He sneaked around to wight's blind spot. Fluvand lunged toward the wight, his sword ready to strike! The wight was struck by the blow! 
+The ocean giant leans low, ready to strike with its might. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-Fluvand the nobleour hero sneaked around to wight's blind spot. The wight struck with its slam! The fierce blow from the monster narrowly misses he. 
+He pulls a isabelline potion from his pack and drinks it. He is reinvigorated. The ocean giant struck with its mwk trident! He blocks the strike with his sword. 
 
-Fluvand lunged toward the wight, his sword ready to strike! The attack from the exaggerated Fluvand surely left a impression. The monster was stunned by the attack. He pulls a myrtle potion from his pack and drinks it. He is reinvigorated. 
+The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. Zamos the high-flownour hero stumbles to his knee, gasping for breath. The ocean giant leans low, ready to strike with its might. 
 
-Fluvand pulls a cg red potion from his pack and drinks it. He is reinvigorated. The wight leans low, ready to strike with its might. 
+Zamos lunged toward the ocean giant, his sword ready to strike! The shattering blow from the unafraid Zamos rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The ocean giant was struck by the blow! 
 
-Fluvand lunged toward the wight, his sword ready to strike! The slippery wight evaded Fluvand's hit. The monster was stunned by the attack. He pulls a bondi blue potion from his pack and drinks it. He is reinvigorated. 
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-He was victorious! The wight menaced for no longer! 
+The ocean giant struck with its mwk trident! Zamos reeled back in pain. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-## <a name="chapter12"></a> Chapter 12: Westow and the Su
+The ocean giant struck with its mwk trident! The fearful ocean giant failed to land its hit. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-Fluvand followed a dirt path into the village of Westow. While the sawyer hawked fine imported goods from Gon, a purse maker slept in an alleyway. While the trapper slept in an alleyway, a basketmaker hawked fine imported goods from Kidam. Fluvand continued down the path. A mailmaker ran from person to person, asking if they had seen VÃ©ziariht.
+The adventurer pulls a egyptian blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
 
-Eventually, Fluvand arrived at the town square, where he found a tanner. The man, eying his impressive armor, beckoned him forward.
+He sneaked around to ocean giant's blind spot. The ocean giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+He sneaked around to ocean giant's blind spot. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! Although he's hit landed, ocean giant is mostly unphasedThe monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a cg blue potion from his pack and drinks it. He is reinvigorated. 
+
+The ocean giant struck with its mwk trident! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ocean giant leans low, ready to strike with its might. 
+
+He pulls a neon carrot potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the ocean giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! The sickie ocean giant failed to land its hit. 
+
+The ocean giant leans low, ready to strike with its might. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+The ocean giant struck with its mwk trident! He jumps out of the way. he stumbles to his knee, gasping for breath. The ocean giant struck with its mwk trident! The unholy ocean giant failed to land its hit. 
+
+He sneaked around to ocean giant's blind spot. Zamos lunged toward the ocean giant, his sword ready to strike! Zamos the lion-heartedour hero landed a massive hit on ocean giant! 
+
+The ocean giant struck with its mwk trident! He jumps out of the way. Zamos leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The ocean giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+The ocean giant struck with its mwk trident! Zamos the valiantour hero blocks the strike with his sword. Zamos lunged toward the ocean giant, his sword ready to strike! Although he's hit landed, ocean giant is mostly unphased
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. 
+
+Zamos pulls a dark electric blue potion from his pack and drinks it. He is reinvigorated. The ocean giant leans low, ready to strike with its might. 
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! He blocks the strike with his sword. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The ocean giant was staggered by the immense force. The monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! The ocean giant was staggered by the immense force. 
+
+The ocean giant leans low, ready to strike with its might. Zamos lunged toward the ocean giant, his sword ready to strike! The attack from Zamos surely left a impression. 
+
+He sneaked around to ocean giant's blind spot. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. 
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! Zamos jumps out of the way. 
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! The ruinous ocean giant failed to land its hit. 
+
+The ocean giant struck with its mwk trident! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The ocean giant struck with its mwk trident! He blocks the strike with his sword. 
+
+The ocean giant leans low, ready to strike with its might. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! Although the adventurer's hit landed, ocean giant is mostly unphasedThe monster was stunned by the attack. Zamos lunged toward the ocean giant, his sword ready to strike! Zamos the valorousour hero landed a massive hit on ocean giant! 
+
+The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The ocean giant struck with its mwk trident! The heinous ocean giant failed to land its hit. 
+
+The ocean giant struck with its mwk trident! The adventurer jumps out of the way. Zamos leaned on his sword to catch a moment's respite. Zamos the grandour hero was worn out by the combat. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. 
+
+The ocean giant struck with its mwk trident! The loathsome ocean giant failed to land its hit. he stumbles to his knee, gasping for breath. The ocean giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! He landed a massive hit on ocean giant! The monster was stunned by the attack. He pulls a sand dune potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos pulls a yellow ncs potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the ocean giant, his sword ready to strike! The ocean giant was struck by the blow! 
+
+The ocean giant struck with its mwk trident! He jumps out of the way. Zamos lunged toward the ocean giant, his sword ready to strike! The ocean giant was staggered by the immense force. 
+
+The ocean giant struck with its mwk trident! He blocks the strike with his sword. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+The ocean giant struck with its mwk trident! Zamos stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The ocean giant struck with its mwk trident! The ghastly ocean giant failed to land its hit. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. He pulls a deep peach potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! Although he's hit landed, ocean giant is mostly unphasedThe ocean giant struck with its mwk trident! Zamos winces from the pain but continues fighting. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+The ocean giant struck with its mwk trident! Zamos jumps out of the way. Zamos lunged toward the ocean giant, his sword ready to strike! The attack from he surely left a impression. 
+
+He sneaked around to ocean giant's blind spot. The ocean giant leans low, ready to strike with its might. 
+
+He sneaked around to ocean giant's blind spot. The ocean giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. He pulls a cream potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to ocean giant's blind spot. The ocean giant struck with its mwk trident! Zamos the guttyour hero jumps out of the way. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. Zamos the grittyour hero pulls a crimson glory potion from his pack and drinks it. He is reinvigorated. 
+
+The ocean giant struck with its mwk trident! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The ocean giant leans low, ready to strike with its might. 
+
+The ocean giant leans low, ready to strike with its might. The ocean giant struck with its mwk trident! The adventurer jumps out of the way. 
+
+He pulls a timberwolf potion from his pack and drinks it. He is reinvigorated. The ocean giant struck with its mwk trident! He blocks the strike with his sword. 
+
+The ocean giant struck with its mwk trident! He jumps out of the way. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ocean giant struck with its mwk trident! Zamos the bigger than lifeour hero winces from the pain but continues fighting. 
+
+The ocean giant struck with its mwk trident! Zamos the grandour hero blocks the strike with his sword. Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. 
+
+The ocean giant struck with its mwk trident! The ruinous ocean giant failed to land its hit. The exhilarating combat made the hours seem like seconds. The ocean giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! He landed a massive hit on ocean giant! The ocean giant struck with its mwk trident! He winces from the pain but continues fighting. Zamos lunged toward the ocean giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The unafraid Zamos landed a massive hit on ocean giant! The monster was stunned by the attack. Zamos pulls a utah crimson potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the ocean giant, his sword ready to strike! The slippery ocean giant evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to ocean giant's blind spot. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Cyridesmas was talking about."
+
+## <a name="chapter19"></a> Chapter 19: Cam and the Moon Giant
+
+Zamos followed a dirt path into the village of Cam. The plumber gazed at him from an open window with a sheepshearer. Two ship's captains slept in an alleyway. Zamos continued down the path. While the crofter ran from person to person, asking if they had seen Hick, a hermit gazed at him from an open window.
+
+Eventually, Zamos arrived at the town square, where he found a solicitor. The man, eying his impressive armor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-While the pattenmaker talked excitedly with what appeared to be a pissprophet, a archer finished an apple and tossed the core aside. The man sat in silence for a while, then finally responded.
+A dung carter stood by a market stall, negotiating with the userer. He still looked suspicious, then finally responded.
 
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Domederich is down the street to the tavern and right. You'll see a warehouse. It's down the street to the tavern and right. You'll see a tavern. It's past the stables. It's just to the left. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Tibbon gone as much as anybody."
+"Hypselmus is down the street to the inn and right. You'll see a tavern. It's past the church. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Audo gone as much as anybody."
 
-Fluvand hurried towards the armory. Nearby, a chandler rushed by quickly, ignoring him. Nearby, a hatmaker slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. Two chaplains loaded a market stall with wares. Nearby, a boatman eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Domederich looked up from his work behind a counter at Fluvand.
+Hypselmus looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Domederich lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The su."
+"Brave you say? You may have fought the cetus, or perhaps even the gate archon, but that's nothing compared to the moon giant we've got."
 
-Domederich returned to the book of monsters on the desk and pointed at the terrifying illustration. "Hateful and melancholic, the psychic marsupials called su can feel their minds weaken as they mature, and take out their frustration on any creatures who enter their forests."
+"Moon giants dwell in rocky badlands and other scarred, deserted places. They revere the moon, stars, and comets and seek wisdom in these celestial bodies' movements. Though they are normally placid scholars, more likely to enter a lively philosophical debate with other creatures than a brawl, moon giants can become violent when disturbed or when under the influence of a bad moon." Hypselmus explained.
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-The armorer sighed and continued. "All su bear young. After mating, they implant each other's back-pouches with oily, tumor-like eggs which hatch over the next year into tiny, psychically gifted humanoids. These young su cling to their parents' backs, feeding on parasites and scraps. Born at the apex of their psychic abilities, baby su slowly change shape and lose their powers over their first year—by the time they reach their full predatory form, all psychic magic has vanished. These furious new adults then leave to become providers for their own whelps. A grown su is 5 feet long and 90 pounds."
+The armorer sighed and continued. "Most moon giants stand about 24 feet tall and weigh almost 18,000 pounds."
 
-"But my weapons may be too weak. Are there any other ways to defeat the su?" Fluvand asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a grim su in the distance! Our hero fixed his gaze on the grisly sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-The exaggerated Fluvand pulls a islamic green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-He sneaked around to su's blind spot. The su struck with its bite! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-He sneaked around to su's blind spot. The su struck with its bite! He blocks the strike with his sword. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The ghastly su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su leans low, ready to strike with its might. The su struck with its bite! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The awful su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-He pulls a ceil potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! Fluvand reeled back in pain. 
-
-He sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
-
-Fluvand sneaked around to su's blind spot. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! Although he's hit landed, su is mostly unphasedThe monster was stunned by the attack. He pulls a skobeloff potion from his pack and drinks it. He is reinvigorated. 
-
-The intrepid Fluvand pulls a dark sienna potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the su, his sword ready to strike! The su took a glancing blow. 
-
-The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the valorousour hero. Fluvand leaned on his sword to catch a moment's respite. The valiant Fluvand was worn out by the combat. The su struck with its bite! He winces from the pain but continues fighting. 
-
-He sneaked around to su's blind spot. The su struck with its bite! Fluvand jumps out of the way. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! He jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The su struck with its bite! The mythological Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! A sharp crack was heard as the strike left its mark. The su struck with its bite! The abominable su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The attack from Fluvand the fire-eatingour hero surely left a impression. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! The adventurer jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su struck with its bite! He stunbles backward, gasping for breath. the grand Fluvand stumbles to his knee, gasping for breath. The su leans low, ready to strike with its might. 
-
-The su struck with its bite! He jumps out of the way. the gutty Fluvand stumbles to his knee, gasping for breath. The su struck with its bite! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the su, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand the high-flownour hero sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! Fluvand the gallantour hero jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! 
-
-The su leans low, ready to strike with its might. The su struck with its bite! The hideous su failed to land its hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The su struck with its bite! Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! He landed a massive hit on su! The su struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-He pulls a carolina blue potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
-
-He sneaked around to su's blind spot. The su struck with its bite! The menacing su failed to land its hit. 
-
-The su leans low, ready to strike with its might. The su struck with its bite! Fluvand the undauntedour hero winces from the pain but continues fighting. 
-
-He pulls a cornsilk potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
-
-The su struck with its bite! The awful su failed to land its hit. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! The su took a glancing blow. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The adventurer sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
-
-The epic Fluvand sneaked around to su's blind spot. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su struck with its bite! The adventurer blocks the strike with his sword. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand the doughtyour hero sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
-
-Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! The su struck with its bite! The fire-eating Fluvand jumps out of the way. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the gutsyour hero. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
-
-The su struck with its bite! He blocks the strike with his sword. Fluvand the elevatedour hero stumbles to his knee, gasping for breath. The su struck with its bite! The awful su failed to land its hit. 
-
-He pulls a magenta dye potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! Fluvand reeled back in pain. 
-
-He pulls a green yellow potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
-
-The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was staggered by the immense force. 
-
-The su struck with its bite! The gutty Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The su struck with its bite! He blocks the strike with his sword. 
-
-The su struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
-
-The lion-hearted Fluvand pulls a pale green potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
-
-The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the boldour hero. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The su struck with its bite! The fire-eating Fluvand blocks the strike with his sword. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! Although he's hit landed, su is mostly unphased
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-He pulls a msu green potion from his pack and drinks it. He is reinvigorated. The su leans low, ready to strike with its might. 
-
-The su struck with its bite! The undaunted Fluvand winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The su struck with its bite! He jumps out of the way. 
-
-The su struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su leans low, ready to strike with its might. The su struck with its bite! He blocks the strike with his sword. 
-
-The su struck with its bite! The beastly su failed to land its hit. The bigger than life Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The su leans low, ready to strike with its might. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. He pulls a up forest green potion from his pack and drinks it. He is reinvigorated. 
-
-The su leans low, ready to strike with its might. The su struck with its bite! Fluvand reeled back in pain. 
-
-He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The su struck with its bite! He jumps out of the way. 
-
-Fluvand lunged toward the su, his sword ready to strike! Although the mythological Fluvand's hit landed, su is mostly unphasedThe monster was stunned by the attack. The lion-hearted Fluvand pulls a pastel red potion from his pack and drinks it. He is reinvigorated. 
-
-The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su leans low, ready to strike with its might. The su struck with its bite! Fluvand reeled back in pain. 
-
-The su struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The su leans low, ready to strike with its might. 
-
-The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-The su struck with its bite! The fierce blow from the monster narrowly misses Fluvand the stand tallour hero. Fluvand the classicour hero stumbles to his knee, gasping for breath. The su struck with its bite! The loathsome su failed to land its hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! A sharp crack was heard as the strike left its mark. The su struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the su, his sword ready to strike! The slippery su evaded Fluvand's hit. 
-
-Fluvand lunged toward the su, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a light khaki potion from his pack and drinks it. He is reinvigorated. 
-
-The su leans low, ready to strike with its might. Fluvand lunged toward the su, his sword ready to strike! The su was struck by the blow! 
-
-The adventurer sneaked around to su's blind spot. The su leans low, ready to strike with its might. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Domederich was talking about."
-
-## <a name="chapter13"></a> Chapter 13: Pary Lan Parkingh and the Lyrakien
-
-Fluvand followed a dirt path into the village of Pary Lan Parkingh. A pardoner scuttled out of his way. Nearby, a innkeeper scuttled out of his way. Fluvand continued down the path. Two hobblers slowly carried supplies.
-
-Eventually, Fluvand arrived at the town square, where he found a astronomer. The man, eying his dangerous demeanor, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-Nearby, a peasant sat by the side of the road. He still looked suspicious, but eventually responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Chard is the best in town. His shop is just a bit further down the street. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. Nearby, a seamstress hawked fine imported goods from Cary. Nearby, a seamstress stood by a market stall, negotiating with the knifesmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the rokurokubi, or perhaps even the wererat (human form), but that's nothing compared to the lyrakien we've got."
-
-Chard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Lyrakien are divine musicians and messengers, mainly in the employ of deities of travel and natural wonders. They love to explore and visit beautiful places, especially locations with excellent views of rainbows, moonlight, and the stars. Whimsical and joyous, they love contests of song, dance, and knowledge, and keep journeys happy by distracting their companions from weary feet and stale food. Mortals who please them with excellent tales and new songs may be rewarded with elaborate maps, forgotten shortcuts, or rambling directions to hidden locations that hold lost magic."
-
-"But my weapons may be too weak. Are there any other ways to defeat the lyrakien?" Fluvand asked.
-
-Chard returned to the book of monsters on the desk and pointed at the terrifying illustration. "Lyrakien are light-hearted creatures, but they are very protective of breathtaking natural locations. Often called "glistenwings" by gnomes and halflings, lyrakien are frequently mistaken for fey—while they are generally friendly with true fey, their origin is the plane of Elysium. Like other azatas, they grow restless if they stay in one place too long. A chaotic good 7th-level spellcaster can gain a lyrakien as a familiar if she has the Improved Familiar feat."
-
-Fluvand slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a terrible lyrakien in the distance! Our hero fixed his gaze on the detestable sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-He pulls a royal blue web potion from his pack and drinks it. He is reinvigorated. The lyrakien struck with its slam! The adventurer blocks the strike with his sword. 
-
-The lyrakien struck with its slam! The adventurer blocks the strike with his sword. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
-
-Fluvand lunged toward the lyrakien, his sword ready to strike! The lyrakien was staggered by the immense force. The monster was stunned by the attack. He pulls a fulvous potion from his pack and drinks it. He is reinvigorated. 
-
-The lyrakien leans low, ready to strike with its might. The lyrakien struck with its slam! The adventurer stunbles backward, gasping for breath. 
-
-The lyrakien struck with its slam! The fierce blow from the monster narrowly misses Fluvand. The bold Fluvand leaned on his sword to catch a moment's respite. The grand Fluvand was worn out by the combat. The lyrakien struck with its slam! Fluvand the dauntlessour hero stunbles backward, gasping for breath. 
-
-The lyrakien struck with its slam! Fluvand the doughtyour hero blocks the strike with his sword. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
-
-Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. The lyrakien struck with its slam! Fluvand the grittyour hero stunbles backward, gasping for breath. Fluvand lunged toward the lyrakien, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand the gallantour hero pulls a venetian red potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
-
-The lyrakien leans low, ready to strike with its might. Fluvand lunged toward the lyrakien, his sword ready to strike! The slippery lyrakien evaded Fluvand's hit. 
-
-He was victorious! The lyrakien menaced for no longer! 
-
-## <a name="chapter14"></a> Chapter 14: Ereesterder and the Caller In Darkness
-
-Fluvand followed a dirt path into the village of Ereesterder. A crossbowman rushed by quickly, ignoring him. The ferryman finished an apple and tossed the core aside with a poet. Fluvand continued down the path. While the tentsman bit into an apple, a hurdle maker loaded a market stall with wares.
-
-Eventually, Fluvand arrived at the town square, where he found a executioner. Fluvand approached him, hoping for some advice.
-
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
-
-Nearby, a alewife sat by the side of the road. He still looked suspicious, then finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Huggithmir is into the market and towards the church. Eventually you need to walk past the stables. It's just to the left. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. While the engineer gazed at him from an open window, a roper talked excitedly with what appeared to be a cutler. A emperor scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Huggithmir looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the astral deva, or perhaps even the warmonger wasp, but that's nothing compared to the caller in darkness we've got."
-
-"A caller in darkness grows from the psychic remains of a creature with psychic sensitivity that died a violent death, its restless spirit compelled to visit upon others the horrors that it suffered before dying. As more and more minds are absorbed, it grows, and the original spirit is lost in the swirling mass of hatred, confusion, and despair." Huggithmir explained.
-
-"I could handle that. Tell me again, what makes the caller in darkness so bad?" Fluvand responded.
+"I could handle that. Tell me again, what makes the moon giant so bad?" Zamos responded.
 
 "That's all I can tell you."
 
-Fluvand saw a detestable caller in darkness in the distance! Our hero fixed his gaze on the frightful sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a lurid moon giant in the distance! The adventurer readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand lunged toward the caller in darkness, his sword ready to strike! The shattering blow from he rumbled through the ground. The caller in darkness struck with its incorporeal touch! He stunbles backward, gasping for breath. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! 
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The moon giant struck with its slams! Zamos the grandour hero jumps out of the way. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-Fluvand lunged toward the caller in darkness, his sword ready to strike! That blow seemed like it could break some bones. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to moon giant's blind spot. 
 
-The caller in darkness leans low, ready to strike with its might. The caller in darkness struck with its incorporeal touch! The awful caller in darkness failed to land its hit. 
+The moon giant struck with its slams! The eerie moon giant failed to land its hit. The exhilarating combat made the hours seem like seconds. The moon giant struck with its slams! The fierce blow from the monster narrowly misses the epic Zamos. 
 
-The caller in darkness leans low, ready to strike with its might. Fluvand lunged toward the caller in darkness, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+He sneaked around to moon giant's blind spot. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-He sneaked around to caller in darkness's blind spot. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. 
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The moon giant struck with its slams! The frightful moon giant failed to land its hit. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-Fluvand sneaked around to caller in darkness's blind spot. The caller in darkness leans low, ready to strike with its might. 
+The moon giant struck with its slams! The valorous Zamos winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The moon giant struck with its slams! He jumps out of the way. 
 
-Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+Zamos lunged toward the moon giant, his sword ready to strike! The moon giant was staggered by the immense force. The moon giant struck with its slams! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-He pulls a vermilion cinnabar potion from his pack and drinks it. He is reinvigorated. The caller in darkness leans low, ready to strike with its might. 
+The moon giant struck with its slams! The detestable moon giant failed to land its hit. he stumbles to his knee, gasping for breath. The moon giant leans low, ready to strike with its might. 
 
-The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses he. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The caller in darkness struck with its incorporeal touch! Fluvand blocks the strike with his sword. 
+He sneaked around to moon giant's blind spot. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-The caller in darkness leans low, ready to strike with its might. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was staggered by the immense force. 
+The moon giant struck with its slams! Zamos reeled back in pain. he stumbles to his knee, gasping for breath. The moon giant leans low, ready to strike with its might. 
 
-He pulls a resolution blue potion from his pack and drinks it. He is reinvigorated. The caller in darkness struck with its incorporeal touch! He blocks the strike with his sword. 
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. 
 
-Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. The caller in darkness struck with its incorporeal touch! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the caller in darkness, his sword ready to strike! That blow seemed like it could break some bones. 
+The moon giant struck with its slams! Zamos jumps out of the way. He leaned on his sword to catch a moment's respite. Zamos the inflatedour hero was worn out by the combat. The moon giant struck with its slams! Zamos blocks the strike with his sword. 
 
-He pulls a light yellow potion from his pack and drinks it. He is reinvigorated. The caller in darkness leans low, ready to strike with its might. 
+The moon giant struck with its slams! He stunbles backward, gasping for breath. the adventurer stumbles to his knee, gasping for breath. The moon giant struck with its slams! The gruesome moon giant failed to land its hit. 
 
-Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the caller in darkness, his sword ready to strike! The caller in darkness was struck by the blow! 
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
 
-The caller in darkness leans low, ready to strike with its might. The caller in darkness struck with its incorporeal touch! He jumps out of the way. 
+The moon giant struck with its slams! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The moon giant struck with its slams! The fierce blow from the monster narrowly misses he. 
 
-The caller in darkness struck with its incorporeal touch! The adventurer jumps out of the way. Fluvand lunged toward the caller in darkness, his sword ready to strike! The slippery caller in darkness evaded Fluvand's hit. 
+The moon giant leans low, ready to strike with its might. The moon giant struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
 
-Fluvand was victorious! The caller in darkness menaced for no longer! 
+Zamos lunged toward the moon giant, his sword ready to strike! The moon giant took a glancing blow. The monster was stunned by the attack. He pulls a yellow munsell potion from his pack and drinks it. He is reinvigorated. 
 
-## <a name="chapter15"></a> Chapter 15: Champley and the Dagon
+The moon giant struck with its slams! Zamos the valiantour hero winces from the pain but continues fighting. Zamos the bigger than lifeour hero stumbles to his knee, gasping for breath. The moon giant struck with its slams! The eerie moon giant failed to land its hit. 
 
-Fluvand followed a dirt path into the village of Champley. The stonecarver rushed by quickly, ignoring him with a troubadour. Nearby, a chancellor gazed at him from an open window. Fluvand continued down the path. A mosaic layer rushed by quickly, ignoring him.
+The moon giant struck with its slams! The frightful moon giant failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The moon giant leans low, ready to strike with its might. 
 
-Eventually, Fluvand arrived at the town square, where he found a shipchandler. The man, eying his unusual weapons, beckoned him forward.
+The moon giant struck with its slams! The ghastly moon giant failed to land its hit. The exhilarating combat made the hours seem like seconds. The moon giant leans low, ready to strike with its might. 
+
+The moon giant leans low, ready to strike with its might. The moon giant struck with its slams! Zamos reeled back in pain. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to moon giant's blind spot. 
+
+The moon giant struck with its slams! He blocks the strike with his sword. Zamos lunged toward the moon giant, his sword ready to strike! The moon giant was struck by the blow! 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The moon giant struck with its slams! Zamos reeled back in pain. Zamos lunged toward the moon giant, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The moon giant struck with its slams! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The moon giant struck with its slams! Zamos jumps out of the way. 
+
+The moon giant leans low, ready to strike with its might. The moon giant struck with its slams! Zamos the gallantour hero blocks the strike with his sword. 
+
+Zamos the bigger than lifeour hero pulls a pastel blue potion from his pack and drinks it. He is reinvigorated. The moon giant struck with its slams! He blocks the strike with his sword. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to moon giant's blind spot. 
+
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The attack from Zamos surely left a impression. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a green color wheel x11 green potion from his pack and drinks it. He is reinvigorated. 
+
+The moon giant struck with its slams! Zamos the undauntedour hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The moon giant leans low, ready to strike with its might. 
+
+He sneaked around to moon giant's blind spot. The moon giant leans low, ready to strike with its might. 
+
+He sneaked around to moon giant's blind spot. The moon giant struck with its slams! He winces from the pain but continues fighting. 
+
+The moon giant struck with its slams! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the moon giant, his sword ready to strike! The moon giant was staggered by the immense force. 
+
+The moon giant leans low, ready to strike with its might. The moon giant struck with its slams! The adventurer blocks the strike with his sword. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The moon giant was struck by the blow! 
+
+He sneaked around to moon giant's blind spot. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. He pulls a halay be potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+The moon giant leans low, ready to strike with its might. The moon giant struck with its slams! The smelly moon giant failed to land its hit. 
+
+He sneaked around to moon giant's blind spot. The moon giant struck with its slams! The adventurer jumps out of the way. 
+
+He pulls a ruby potion from his pack and drinks it. He is reinvigorated. The moon giant struck with its slams! He jumps out of the way. 
+
+The moon giant struck with its slams! The gruesome moon giant failed to land its hit. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Zamos the nobleour hero sneaked around to moon giant's blind spot. 
+
+The moon giant struck with its slams! He jumps out of the way. Zamos leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The moon giant leans low, ready to strike with its might. 
+
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+Zamos the doughtyour hero pulls a green ryb potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the moon giant, his sword ready to strike! The moon giant was struck by the blow! 
+
+The adventurer pulls a mellow yellow potion from his pack and drinks it. He is reinvigorated. The moon giant struck with its slams! Zamos the nobleour hero winces from the pain but continues fighting. 
+
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+The moon giant struck with its slams! Zamos reeled back in pain. Zamos the epicour hero stumbles to his knee, gasping for breath. The moon giant struck with its slams! He jumps out of the way. 
+
+The moon giant leans low, ready to strike with its might. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+The moon giant struck with its slams! Zamos reeled back in pain. Zamos lunged toward the moon giant, his sword ready to strike! The shattering blow from the bold Zamos rumbled through the ground. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to moon giant's blind spot. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the moon giant, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The moon giant struck with its slams! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The moon giant leans low, ready to strike with its might. 
+
+Zamos lunged toward the moon giant, his sword ready to strike! The attack from Zamos surely left a impression. The moon giant struck with its slams! The scary moon giant failed to land its hit. Zamos lunged toward the moon giant, his sword ready to strike! The slippery moon giant evaded Zamos's hit. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Hypselmus was talking about."
+
+## <a name="chapter20"></a> Chapter 20: Oxforogroad and the Agyra
+
+Zamos followed a dirt path into the village of Oxforogroad. A peddler gazed at him from an open window. Nearby, a leadworker eyed him suspiciously. Zamos continued down the path. While the furniture maker hawked fine imported goods from Heam, a saddler slowly carried supplies.
+
+Eventually, Zamos arrived at the town square, where he found a sea captain. Zamos approached him, hoping for some advice.
+
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
+
+The diplomat ran from person to person, asking if they had seen Spin with a sapper. The man sat in silence for a whileHe finally responded.
+
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Gernielulf is into the market and towards the inn. Eventually you need to walk down the street to the cattle barn and left. You'll see a church. It's into the market and towards the stables. Eventually you need to walk just a bit further down the street. It's just to the right. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Zamos hurried towards the armory. Nearby, a tanner stood by a market stall, negotiating with the baker. A water carrier loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
+
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
+
+Gernielulf lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The agyra."
+
+Gernielulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "Agyra, the Forever Storm, is believed by many cultures to be the cause of seasonal typhoons or other great storms—such tempests being a manifestation of Agyra's monstrous breaths as she exhales during her long slumber every season. While this kaiju is not in fact responsible for the world's storms, her powers over wind and lightning are significant, and when she is vexed to rampage, the effects of her hurricanes can be as devastating to a region as her more direct attacks."
+
+"But my weapons may be too weak. Are there any other ways to defeat the agyra?" Zamos asked.
+
+Gernielulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "Agyra has the appearance of a primeval, two-headed flying reptile with a wingspan of over 150 feet. Her tail is perhaps the most fearsome of her aspects. This lengthy and flailing appendage is covered with razor-sharp blades and wickedly barbed spines capable of slashing through buildings and tearing through armor with great force and from great distances."
+
+"I could handle that. Tell me again, what makes the agyra so bad?" Zamos responded.
+
+"Agyra dwells on the upper slopes of a long-dormant volcano that sits on a remote tropical island beyond the main shipping lanes and the scope of most explorers' travels. As with many kaiju, she spends the bulk of her time in deep and peaceful slumber. She is ferociously protective of the strange peoples who dwell on the shores of this island, and has been known to rouse herself to come to their defense against slavers, pirates, or other external threats to their way of life. Despite this strange protective streak, Agyra is not a kindly creature—and none know this more plainly than those who share her island. Her responses to intrusions to the island may simply be defenses of her perceived territories, for certainly the villages of the locals suffer significant damage during her local rampages. She's been known to take wing to travel to distant cities as well, often as a result of some of her island's inhabitants being taken from the shores as slaves. Yet the devastation she wreaks upon the slavers' destination cities pays no regard to the safety of the slaves themselves—they are in as much danger as anyone else from the kaiju's vengeful wrath in this situation." Gernielulf explained.
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+Gernielulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "There are rumors that certain shamans on the isle conceal sacred words or some ancient ritual to waken and command Agyra, and that many of her rampages are not the result of the kaiju being territorial or protective, but simply due to an ancient bargain the natives' ancestors forged with the mighty beast in some forgotten era. Some speculate that such rituals require the sacrifice of trespassers, but this may be nothing more than fearful superstition or rumors spread by shamans to persuade foreigners to stay clear of their island."
+
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
+
+Gernielulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "Agyra has a particular hatred of the kaiju Mogaru, and often leaves her volcanic lair to fly west to the remote jungle lake that serves as Mogaru's home to clash with her nemesis. Mogaru's penchant for attacking coastal cities often results in a devastating escalation when Agyra arrives to do battle with the land-bound kaiju. Sometimes, methods of conjuring Agyra are used to deliberately lure the kaiju to a city besieged by Mogaru, but just as often her arrival seems to be driven by self-interest. Agyra typically manages to weaken Mogaru enough to drive him off, but is often slain herself in these battles, resurrecting and returning to her home at the same time Mogaru returns to his. The nature of this rivalry is unclear, but kaiju scholars believe that the two monsters have been enemies for longer than humanity has existed."
+
+"I could handle that. Tell me again, what makes the agyra so bad?" Zamos responded.
+
+"That's all I can tell you."
+
+Zamos saw a appalling agyra in the distance! Our hero fixed his gaze on the shocking sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
+
+He pulls a rose pink potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The hideous agyra failed to land its hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The agyra struck with its bites! Zamos reeled back in pain. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! The lurid agyra failed to land its hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! The awful agyra failed to land its hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+He pulls a pastel violet potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos pulls a cobalt potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The adventurer blocks the strike with his sword. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The ruinous agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos the boldour hero sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos sneaked around to agyra's blind spot. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The attack from Zamos the epicour hero surely left a impression. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! Zamos reeled back in pain. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra was staggered by the immense force. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. The intrepid Zamos pulls a usafa blue potion from his pack and drinks it. He is reinvigorated. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The adventurer sneaked around to agyra's blind spot. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. The agyra struck with its bites! The adventurer stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a pastel red potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The agyra struck with its bites! The lion-hearted Zamos winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The unholy agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses the doughty Zamos. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+Zamos the valiantour hero pulls a duke blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The adventurer sneaked around to agyra's blind spot. The agyra struck with its bites! He stunbles backward, gasping for breath. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The ungodly agyra failed to land its hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. He pulls a pink potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He blocks the strike with his sword. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to agyra's blind spot. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+The agyra struck with its bites! He jumps out of the way. the lion-hearted Zamos stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. The agyra struck with its bites! He jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The attack from Zamos the stand tallour hero surely left a impression. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He winces from the pain but continues fighting. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos the grandour hero. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+He pulls a black bean potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The adventurer jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos the impavidour hero sneaked around to agyra's blind spot. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! Zamos blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra was staggered by the immense force. 
+
+The agyra struck with its bites! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The hideous agyra failed to land its hit. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The dreadful agyra failed to land its hit. Zamos the impavidour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra struck with its bites! The eerie agyra failed to land its hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! He stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses the doughty Zamos. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The terrible agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He winces from the pain but continues fighting. Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The agyra struck with its bites! The evil agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! The monster was stunned by the attack. The unafraid Zamos sneaked around to agyra's blind spot. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The attack from the unafraid Zamos surely left a impression. The monster was stunned by the attack. He pulls a french lime potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos the boldour hero pulls a charcoal potion from his pack and drinks it. He is reinvigorated. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses he. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos the lion-heartedour hero pulls a raspberry pink potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos pulls a lavender mist potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a razzmatazz potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! Zamos blocks the strike with his sword. 
+
+Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. The adventurer sneaked around to agyra's blind spot. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. The agyra struck with its bites! The adventurer blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+The agyra struck with its bites! The adventurer jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The adventurer blocks the strike with his sword. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The smelly agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos the courageousour hero pulls a maroon html css potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos the grittyour hero pulls a sap green potion from his pack and drinks it. He is reinvigorated. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He winces from the pain but continues fighting. 
+
+The agyra struck with its bites! The horrid agyra failed to land its hit. he stumbles to his knee, gasping for breath. The agyra struck with its bites! He winces from the pain but continues fighting. 
+
+Zamos pulls a red potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! Zamos jumps out of the way. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra struck with its bites! He blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos the fire-eatingour hero sneaked around to agyra's blind spot. 
+
+He pulls a light apricot potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! Zamos reeled back in pain. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! Zamos the gallantour hero jumps out of the way. 
+
+The agyra struck with its bites! The undaunted Zamos jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+The mythological Zamos sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The adventurer winces from the pain but continues fighting. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The offensive agyra failed to land its hit. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The dreadful agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The attack from Zamos the valiantour hero surely left a impression. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He jumps out of the way. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He winces from the pain but continues fighting. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He jumps out of the way. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos the stoutheartedour hero pulls a deep champagne potion from his pack and drinks it. He is reinvigorated. 
+
+The grandiose Zamos pulls a blond potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! He stunbles backward, gasping for breath. 
+
+The agyra struck with its bites! He jumps out of the way. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! Although he's hit landed, agyra is mostly unphased
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. He pulls a rich carmine potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The agyra struck with its bites! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+He pulls a green pigment potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses he. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! Zamos the unafraidour hero winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! The epic Zamos winces from the pain but continues fighting. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos the grandour hero. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! He stunbles backward, gasping for breath. 
+
+The stouthearted Zamos pulls a telemagenta potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+Zamos sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He jumps out of the way. 
+
+The adventurer pulls a alice blue potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+He pulls a tiger s eye potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to agyra's blind spot. 
+
+The adventurer sneaked around to agyra's blind spot. The agyra struck with its bites! Zamos the impavidour hero jumps out of the way. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! Although the fire-eating Zamos's hit landed, agyra is mostly unphased
+
+He pulls a rose madder potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The obnoxious agyra failed to land its hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He stunbles backward, gasping for breath. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a cinereous potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The repellent agyra failed to land its hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The beastly agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The awful agyra failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! Zamos blocks the strike with his sword. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! Zamos the doughtyour hero winces from the pain but continues fighting. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! Zamos stunbles backward, gasping for breath. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The mean agyra failed to land its hit. Zamos stumbles to his knee, gasping for breath. The agyra struck with its bites! The mean agyra failed to land its hit. 
+
+The agyra struck with its bites! He jumps out of the way. He leaned on his sword to catch a moment's respite. Zamos was worn out by the combat. The agyra struck with its bites! He winces from the pain but continues fighting. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a rich electric blue potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The shameful agyra failed to land its hit. 
+
+The agyra struck with its bites! He winces from the pain but continues fighting. the impavid Zamos stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The disagreeable agyra failed to land its hit. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+Zamos the doughtyour hero sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He sneaked around to agyra's blind spot. 
+
+The agyra struck with its bites! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the agyra, his sword ready to strike! The agyra was staggered by the immense force. 
+
+The agyra struck with its bites! Zamos blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The fierce blow from the monster narrowly misses the adventurer. 
+
+Zamos pulls a navy blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. He pulls a pale cerulean potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos the guttyour hero pulls a lavender gray potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! Zamos reeled back in pain. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The valiant Zamos blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The agyra struck with its bites! The evil agyra failed to land its hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a msu green potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The adventurer pulls a dark imperial blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! Although he's hit landed, agyra is mostly unphasedThe agyra struck with its bites! The abominable agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. 
+
+The agyra struck with its bites! Zamos the guttyour hero jumps out of the way. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+The agyra struck with its bites! He winces from the pain but continues fighting. The high-flown Zamos leaned on his sword to catch a moment's respite. Zamos the exaggeratedour hero was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! He jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos the fearlessour hero. 
+
+The agyra struck with its bites! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+The adventurer pulls a crimson glory potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. He pulls a fallow potion from his pack and drinks it. He is reinvigorated. 
+
+The agyra struck with its bites! The adventurer jumps out of the way. Zamos stumbles to his knee, gasping for breath. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The fearless Zamos stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The agyra struck with its bites! Zamos jumps out of the way. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos the intrepidour hero sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The adventurer sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos pulls a telemagenta potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! He blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The gutty Zamos jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The agyra struck with its bites! Zamos reeled back in pain. the adventurer stumbles to his knee, gasping for breath. The agyra struck with its bites! Zamos the exaggeratedour hero winces from the pain but continues fighting. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos the valorousour hero. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The gritty Zamos jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The mean agyra failed to land its hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra struck with its bites! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The fierce blow from the monster narrowly misses the fearless Zamos. Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The adventurer pulls a lavender floral potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+The adventurer sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! Although he's hit landed, agyra is mostly unphasedThe monster was stunned by the attack. He pulls a cinereous potion from his pack and drinks it. He is reinvigorated. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. The agyra struck with its bites! The elevated Zamos blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! Zamos landed a massive hit on agyra! 
+
+The adventurer sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! Zamos winces from the pain but continues fighting. Zamos lunged toward the agyra, his sword ready to strike! The attack from Zamos the daringour hero surely left a impression. 
+
+The agyra struck with its bites! The fearless Zamos jumps out of the way. Zamos leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses he. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The offensive agyra failed to land its hit. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+The agyra struck with its bites! He stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The attack from the adventurer surely left a impression. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The attack from he surely left a impression. The agyra struck with its bites! He stunbles backward, gasping for breath. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to agyra's blind spot. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The fierce blow from the monster narrowly misses Zamos. 
+
+The agyra struck with its bites! The adventurer jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The adventurer landed a massive hit on agyra! 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! Zamos blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! The abhorrent agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! Zamos reeled back in pain. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The doughty Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! The intrepid Zamos winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The agyra leans low, ready to strike with its might. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! The fierce blow from the monster narrowly misses he. 
+
+The gallant Zamos pulls a mulberry potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! Although Zamos the bigger than lifeour hero's hit landed, agyra is mostly unphased
+
+He pulls a dark spring green potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The agyra struck with its bites! He winces from the pain but continues fighting. Zamos the undauntedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+He sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! He landed a massive hit on agyra! 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The fearless Zamos was worn out by the combat. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! Zamos the exaggeratedour hero jumps out of the way. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He blocks the strike with his sword. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The gruesome agyra failed to land its hit. 
+
+The adventurer pulls a powder blue web potion from his pack and drinks it. He is reinvigorated. The agyra leans low, ready to strike with its might. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! He jumps out of the way. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. The monster was stunned by the attack. Zamos the guttyour hero pulls a blast off bronze potion from his pack and drinks it. He is reinvigorated. 
+
+The agyra struck with its bites! He jumps out of the way. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! The fierce blow from the monster narrowly misses the adventurer. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The adventurer blocks the strike with his sword. 
+
+The agyra struck with its bites! The dreadful agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra struck with its bites! Zamos the boldour hero jumps out of the way. he stumbles to his knee, gasping for breath. The agyra leans low, ready to strike with its might. 
+
+Zamos pulls a cornsilk potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the agyra, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
+
+The agyra struck with its bites! Zamos winces from the pain but continues fighting. Zamos lunged toward the agyra, his sword ready to strike! The agyra was struck by the blow! 
+
+Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. The agyra struck with its bites! The loathsome agyra failed to land its hit. 
+
+Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The agyra was staggered by the immense force. The agyra struck with its bites! He winces from the pain but continues fighting. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He sneaked around to agyra's blind spot. The agyra struck with its bites! The high-flown Zamos blocks the strike with his sword. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The agyra took a glancing blow. 
+
+Zamos sneaked around to agyra's blind spot. The agyra leans low, ready to strike with its might. 
+
+Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. The agyra struck with its bites! He blocks the strike with his sword. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos sneaked around to agyra's blind spot. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+Zamos lunged toward the agyra, his sword ready to strike! A sharp crack was heard as the strike left its mark. The agyra struck with its bites! The gruesome agyra failed to land its hit. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+The agyra leans low, ready to strike with its might. Zamos lunged toward the agyra, his sword ready to strike! The slippery agyra evaded Zamos's hit. 
+
+He pulls a crimson glory potion from his pack and drinks it. He is reinvigorated. The agyra struck with its bites! The mean agyra failed to land its hit. 
+
+Zamos says
+
+"That didn't seem so hard, I don't know what Gernielulf was talking about."
+
+## <a name="chapter21"></a> Chapter 21: Redsens Cirmoury and the Swamp Mummy
+
+Zamos followed a dirt path into the village of Redsens Cirmoury. The stewsman finished an apple and tossed the core aside with a threadmaker. Two paperers loaded a market stall with wares. Zamos continued down the path. A broderer slowly carried supplies.
+
+Eventually, Zamos arrived at the town square, where he found a drycooper. The man, eying his dangerous demeanor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"The evil wizard Audo has terrorized these lands for far too long. I Zamos have come to destroy him!" Zamos exclaimed.
 
-Nearby, a bellfounder scuttled out of his way. The man eyed him thoughtfullyHe finally responded.
+The merchant gazed at him from an open window with a singer. The man sat in silence for a while, but eventually responded.
 
-"Our village of Gon will gladly help you on your quest. What do you need?"
+"Our village of Osgow will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is just a bit further down the street. There's a small door. You'll find Anke, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+"The armory is down the street to the church and right. You'll see a barn. It's down the street to the warehouse and left. You'll see a tavern. It's into the market and towards the warehouse. Eventually you need to walk into the market and towards the cattle barn. Eventually you need to walk down the street to the stables and right. You'll see a church. It's down the street to the cattle barn and left. You'll see a barn. It's into the market and towards the barn. Eventually you need to walk into the market and towards the tavern. Eventually you need to walk down the street to the church and left. You'll see a warehouse. It's past the monastery. It's just to the left. You'll find Jurgainos, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Audo gone as much as anybody."
 
-Fluvand hurried towards the armory. A procurator stood by a market stall, negotiating with the ditcher. Two confectioners sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. Two summoners loaded a market stall with wares. A restaurateur slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the crucidaemon, or perhaps even the hollow serpent, but that's nothing compared to the dagon we've got."
+"Brave you say? You may have fought the fire beetle, or perhaps even the tatzlwyrm, but that's nothing compared to the swamp mummy we've got."
 
-The armorer sighed and continued. "Dagon is the demon lord of deformity, the sea, and sea monsters. He rules an Abyssal realm that consists of an immense ocean dotted above with strange and horrible islands and marked below with countless deep sea trenches and sunken cities. Dagon is 35 feet long, with the lower body of an eel, a horrific visage that evokes images of deep sea predators, and four long tentacles in place of arms."
+The armorer sighed and continued. "Strangled into unlife in the filth and muck of the deep mire, swamp mummies haunt the festering depths of isolated, desolate fenlands."
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+"But my weapons may be too weak. Are there any other ways to defeat the swamp mummy?" Zamos asked.
 
-The armorer sighed and continued. "Dagon almost always uses Power Attack in combat, taking a –9 penalty on all attack rolls but gaining a +18 bonus on damage rolls. He is never encountered without a large number of aquatic demons or monsters at his side that he uses as pawns in battles, often simply commanding them to attack foes while he hangs back in the shadows and observes the fight with his cold eyes. Immense sharks, hezrous, carnivorous whales, krakens, and shoggoths are the demon lord's favored minions."
+"Some swamp mummies are cursed by dark powers to return to unlife, while others are the victims of sacrifices or criminal executions in which the bodies were thrown into a peat bog. The nature of the death and the emotional power of the victim are both contributing factors as to whether or not the victim crawls from its swampy grave as a swamp mummy." Jurgainos explained.
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+Zamos slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Anke returned to the book of monsters on the desk and pointed at the terrifying illustration. "Dagon began life not as a demon lord but as a powerful qlippoth—the reasons for his transformation into a demon lord are not understood by mortal scholars, but there is certainly no love lost between Dagon and the qlippoth race."
+"Swamp mummies—also often called bog or peat mummies—rarely, if ever, leave their marshy realms. Those that do most often venture forth from the swamp to take revenge on their slayers. While most swamp mummies are motivated by vengeance, many fulfill these dark yearnings in a more general sense. Filled with wrath and hatred for the living, they mercilessly attack any living creatures that dare to venture into their dismal domains. Their agonized moans echo over their putrid homes, driving away the natural animals dwelling therein and often alerting travelers to the relentless danger." Jurgainos explained.
 
-"But my weapons may be too weak. Are there any other ways to defeat the dagon?" Fluvand asked.
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
+The armorer sighed and continued. "Swamp mummies delight in infecting living foes with bog rot, believing that adding their victims' essence to their gloomy domains expands their power. After battle, they carry away the bodies of their fallen victims to sink them in deep, isolated pools. Thus, even enemies that escape the bog rot become one with the swamp mummy's home."
 
-Fluvand saw a awful dagon in the distance! Our hero fixed his gaze on the lousy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+"But my weapons may be too weak. Are there any other ways to defeat the swamp mummy?" Zamos asked.
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+"Most swamp mummies are Medium humanoids, typically arising from the submerged corpses of human, lizardfolk, or elven victims—though instances of swamp mummies arising from the corpses of other races is not unknown." Jurgainos explained.
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+Zamos slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He stunbles backward, gasping for breath. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
+Zamos saw a abhorrent swamp mummy in the distance! The stouthearted Zamos readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+The swamp mummy leans low, ready to strike with its might. The swamp mummy struck with its slams! Zamos blocks the strike with his sword. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a boston university red potion from his pack and drinks it. He is reinvigorated. 
+Zamos the doughtyour hero sneaked around to swamp mummy's blind spot. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-The adventurer sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The swamp mummy struck with its slams! He winces from the pain but continues fighting. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+The swamp mummy struck with its slams! The awful swamp mummy failed to land its hit. Zamos the inflatedour hero leaned on his sword to catch a moment's respite. Zamos the nobleour hero was worn out by the combat. The swamp mummy leans low, ready to strike with its might. 
 
-He pulls a folly potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand reeled back in pain. 
+The swamp mummy struck with its slams! The offensive swamp mummy failed to land its hit. Zamos lunged toward the swamp mummy, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The dagon struck with its bite! The fearful dagon failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+He pulls a sunglow potion from his pack and drinks it. He is reinvigorated. The swamp mummy leans low, ready to strike with its might. 
 
-The inflated Fluvand pulls a burlywood potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The swamp mummy struck with its slams! The fierce blow from the monster narrowly misses he. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-The dagon struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The sickie dagon failed to land its hit. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. The monster was stunned by the attack. He pulls a dark lavender potion from his pack and drinks it. He is reinvigorated. 
 
-The dagon struck with its bite! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The dagon struck with its bite! Fluvand reeled back in pain. 
+The swamp mummy leans low, ready to strike with its might. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The swamp mummy struck with its slams! The fierce blow from the monster narrowly misses Zamos. The exhilarating combat made the hours seem like seconds. The swamp mummy struck with its slams! He jumps out of the way. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The dagon struck with its bite! Fluvand the stoutheartedour hero jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand the guttyour hero rumbled through the ground. 
+The swamp mummy struck with its slams! He jumps out of the way. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-He pulls a linen potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The attack from the adventurer surely left a impression. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to swamp mummy's blind spot. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the mythologicalour hero. 
+The swamp mummy struck with its slams! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The swamp mummy leans low, ready to strike with its might. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The fire-eating Fluvand sneaked around to dagon's blind spot. 
+He sneaked around to swamp mummy's blind spot. The swamp mummy leans low, ready to strike with its might. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The swamp mummy was struck by the blow! The monster was stunned by the attack. Zamos lunged toward the swamp mummy, his sword ready to strike! The swamp mummy was struck by the blow! 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand the gutsyour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the swamp mummy, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos lunged toward the swamp mummy, his sword ready to strike! The slippery swamp mummy evaded Zamos's hit. The monster was stunned by the attack. Zamos pulls a thistle potion from his pack and drinks it. He is reinvigorated. 
 
-The dagon struck with its bite! The adventurer stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. 
+Zamos the valorousour hero pulls a navy blue potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the swamp mummy, his sword ready to strike! The swamp mummy was struck by the blow! 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
+He sneaked around to swamp mummy's blind spot. The swamp mummy leans low, ready to strike with its might. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
+The swamp mummy leans low, ready to strike with its might. Zamos lunged toward the swamp mummy, his sword ready to strike! The swamp mummy took a glancing blow. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+Zamos says
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+"That didn't seem so hard, I don't know what Jurgainos was talking about."
 
-The dagon struck with its bite! The abominable dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+## <a name="chapter22"></a> Chapter 22: Maidgater Stond Bath and the Yithian
 
-Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a electric yellow potion from his pack and drinks it. He is reinvigorated. 
+Zamos followed a dirt path into the village of Maidgater Stond Bath. The coppersmith, redsmith ran from person to person, asking if they had seen Adlardus with a brewer. Nearby, a thimbler stood by a market stall, negotiating with the herald. Zamos continued down the path. The basketmaker eyed him suspiciously with a drummer.
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the fire-eatingour hero. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Eventually, Zamos arrived at the town square, where he found a harberdasher. Zamos approached him, hoping for some advice.
 
-The dagon struck with its bite! The hideous dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The shocking dagon failed to land its hit. 
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
 
-He sneaked around to dagon's blind spot. The dagon struck with its bite! He blocks the strike with his sword. 
+The bather talked excitedly with what appeared to be a spy with a canaller. The man sat in silence for a while, then finally responded.
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a dark cyan potion from his pack and drinks it. He is reinvigorated. 
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
-Fluvand the bigger than lifeour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-Fluvand lunged toward the dagon, his sword ready to strike! Fluvand landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. 
+"Willon is the best in town. His shop is down the street to the tavern and left. You'll see a cattle barn. It's past the warehouse. Look for the large hanging sign that reads "Willon Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos hurried towards the armory. While the solicitor loaded a market stall with wares, a threadmaker slept in an alleyway. Nearby, a waterman slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the classicour hero's hit landed, dagon is mostly unphasedThe monster was stunned by the attack. He sneaked around to dagon's blind spot. 
+Willon looked up from his work behind a counter at Zamos.
 
-He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+Willon grabbed a dusty book from the shelf and flipped through it. Pictures of babaus and ancient gold dragons flew by. Eventually he settled on a page and started to explain.
 
-The dagon struck with its bite! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The lousy dagon failed to land its hit. 
+"Untold eons ago, the yithians inhabited a dying world. To escape their doomed planet, they cast their minds through time and space, eventually coming to rest in the strange, alien bodies they possess today. While these strange beings now reside in a distant galaxy, the yithians make use of their ability to astrally project to explore other planets, eager to find new worlds to explore." Willon explained.
 
-The dagon struck with its bite! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+"I could handle that. Tell me again, what makes the yithian so bad?" Zamos responded.
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
+"When a yithian arrives upon a new world, it often swaps minds with the creatures it encounters there so as to experience that world as if it were a native. Those who spend time in a yithian's body rarely tell of the strange times they have experienced, for yithians guard themselves well, and leave those they use in this manner amnesiacs who remember the truth only as fragmentary nightmares." Willon explained.
 
-Fluvand the grittyour hero pulls a cardinal potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The noble Fluvand jumps out of the way. 
+"I could handle that. Tell me again, what makes the yithian so bad?" Zamos responded.
 
-He sneaked around to dagon's blind spot. The dagon struck with its bite! He stunbles backward, gasping for breath. 
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Zamos.
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos saw a heinous yithian in the distance! Zamos the epicour hero readied his sword. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The unkind dagon failed to land its hit. 
+The yithian struck with its pincers! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Zamos the mythologicalour hero was worn out by the combat. The yithian struck with its pincers! He stunbles backward, gasping for breath. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The dagon struck with its bite! The fierce blow from the monster narrowly misses the courageous Fluvand. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian struck with its pincers! He winces from the pain but continues fighting. Zamos stumbles to his knee, gasping for breath. The yithian struck with its pincers! Zamos the valiantour hero stunbles backward, gasping for breath. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos lunged toward the yithian, his sword ready to strike! The shattering blow from Zamos the lion-heartedour hero rumbled through the ground. The yithian struck with its pincers! He jumps out of the way. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+The yithian struck with its pincers! The execrable yithian failed to land its hit. Zamos lunged toward the yithian, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the impavidour hero. Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! Fluvand jumps out of the way. 
+The adventurer pulls a dark cyan potion from his pack and drinks it. He is reinvigorated. The yithian leans low, ready to strike with its might. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
+The yithian struck with its pincers! He blocks the strike with his sword. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos the guttyour hero sneaked around to yithian's blind spot. The yithian leans low, ready to strike with its might. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
+Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. The monster was stunned by the attack. The gutty Zamos sneaked around to yithian's blind spot. 
 
-The adventurer pulls a laser lemon potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The shocking dagon failed to land its hit. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! The fierce blow from the monster narrowly misses he. 
 
-The dagon struck with its bite! The repulsive dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The mythological Fluvand stunbles backward, gasping for breath. 
+Zamos pulls a moccasin potion from his pack and drinks it. He is reinvigorated. The yithian leans low, ready to strike with its might. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand rumbled through the ground. 
+The yithian leans low, ready to strike with its might. Zamos lunged toward the yithian, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand leaned on his sword to catch a moment's respite. Fluvand the stoutheartedour hero was worn out by the combat. The dagon leans low, ready to strike with its might. 
+He sneaked around to yithian's blind spot. The yithian leans low, ready to strike with its might. 
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! Zamos reeled back in pain. 
 
-He pulls a rose ebony potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. The yithian struck with its pincers! He winces from the pain but continues fighting. Zamos lunged toward the yithian, his sword ready to strike! The yithian was staggered by the immense force. 
 
-The daring Fluvand pulls a violet web potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! The gritty Zamos blocks the strike with his sword. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He blocks the strike with his sword. 
+The yithian struck with its pincers! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The yithian struck with its pincers! He jumps out of the way. 
 
-The dagon struck with its bite! The shameful dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+He sneaked around to yithian's blind spot. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian leans low, ready to strike with its might. Zamos lunged toward the yithian, his sword ready to strike! The attack from he surely left a impression. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos the valiantour hero sneaked around to yithian's blind spot. The yithian leans low, ready to strike with its might. 
 
-The dagon struck with its bite! The grandiose Fluvand winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+He pulls a vanilla potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-He pulls a purple x11 potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
+He sneaked around to yithian's blind spot. The yithian struck with its pincers! The fierce blow from the monster narrowly misses the adventurer. 
 
-He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+Zamos lunged toward the yithian, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon struck with its bite! The hideous dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+Zamos sneaked around to yithian's blind spot. Zamos lunged toward the yithian, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! The grisly yithian failed to land its hit. 
 
-Fluvand the stand tallour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+Zamos lunged toward the yithian, his sword ready to strike! A sharp crack was heard as the strike left its mark. The yithian struck with its pincers! Zamos the courageousour hero jumps out of the way. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+He pulls a unbleached silk potion from his pack and drinks it. He is reinvigorated. The yithian struck with its pincers! The offensive yithian failed to land its hit. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer jumps out of the way. 
+The adventurer pulls a electric yellow potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-Fluvand the exaggeratedour hero sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! The horrid yithian failed to land its hit. 
 
-The dagon struck with its bite! The terrible dagon failed to land its hit. The dauntless Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! The terrible dagon failed to land its hit. 
+The yithian struck with its pincers! He jumps out of the way. Zamos lunged toward the yithian, his sword ready to strike! Although the adventurer's hit landed, yithian is mostly unphased
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian leans low, ready to strike with its might. Zamos lunged toward the yithian, his sword ready to strike! The yithian took a glancing blow. 
 
-He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
+The yithian struck with its pincers! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The yithian struck with its pincers! He winces from the pain but continues fighting. 
 
-The dagon struck with its bite! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Fluvand the undauntedour hero was worn out by the combat. The dagon leans low, ready to strike with its might. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! He blocks the strike with his sword. 
 
-The dagon struck with its bite! The courageous Fluvand jumps out of the way. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
+Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. The yithian struck with its pincers! He stunbles backward, gasping for breath. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian leans low, ready to strike with its might. The yithian struck with its pincers! Zamos reeled back in pain. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The adventurer pulls a maize potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. 
 
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
+He pulls a french lilac potion from his pack and drinks it. He is reinvigorated. The yithian struck with its pincers! Zamos the elevatedour hero jumps out of the way. 
 
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Zamos the exaggeratedour hero pulls a smokey topaz potion from his pack and drinks it. He is reinvigorated. The yithian struck with its pincers! Zamos reeled back in pain. 
 
-The dagon struck with its bite! The lion-hearted Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The yithian struck with its pincers! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The yithian struck with its pincers! The beastly yithian failed to land its hit. 
 
-Fluvand the guttyour hero pulls a royal blue traditional potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
+Zamos lunged toward the yithian, his sword ready to strike! The slippery yithian evaded Zamos's hit. The yithian struck with its pincers! Zamos reeled back in pain. Zamos lunged toward the yithian, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the mythologicalour hero's hit landed, dagon is mostly unphasedThe dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+He sneaked around to yithian's blind spot. The yithian struck with its pincers! The fierce blow from the monster narrowly misses Zamos the doughtyour hero. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The dagon struck with its bite! The epic Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
+The adventurer pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. The yithian struck with its pincers! The epic Zamos blocks the strike with his sword. 
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a black leather jacket potion from his pack and drinks it. He is reinvigorated. 
+Zamos was victorious! The yithian menaced for no longer! 
 
-The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the grittyour hero. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The gutty Fluvand blocks the strike with his sword. 
+## <a name="chapter23"></a> Chapter 23: Bywoorperd and the Giant Leech
 
-The dagon struck with its bite! The adventurer jumps out of the way. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
+Zamos followed a dirt path into the village of Bywoorperd. While the pinmaker sat by the side of the road, a architect rushed by quickly, ignoring him. The siever gazed at him from an open window with a judge. Zamos continued down the path. A weirkeeper scuttled out of his way.
 
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The intrepid Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! The cruel dagon failed to land its hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! Fluvand the fire-eatingour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
-
-He pulls a light pastel purple potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand reeled back in pain. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
-
-He pulls a violet web potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The dauntless Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from the gritty Fluvand rumbled through the ground. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the intrepidour hero pulls a copper rose potion from his pack and drinks it. He is reinvigorated. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses the unafraid Fluvand. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. 
-
-He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand the grandioseour hero jumps out of the way. 
-
-The noble Fluvand pulls a sea blue potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The awful dagon failed to land its hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The beastly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The dagon struck with its bite! The fairy dagon failed to land its hit. 
-
-He pulls a blue gray potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! The gallant Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The intrepid Fluvand pulls a daffodil potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand the gallantour hero stumbles to his knee, gasping for breath. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
-
-The adventurer sneaked around to dagon's blind spot. The dagon struck with its bite! The unholy dagon failed to land its hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a bottle green potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He pulls a indigo potion from his pack and drinks it. He is reinvigorated. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand blocks the strike with his sword. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
-
-Fluvand pulls a medium slate blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The attack from the impavid Fluvand surely left a impression. 
-
-He sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand reeled back in pain. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
-
-The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! Fluvand reeled back in pain. the intrepid Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The stouthearted Fluvand sneaked around to dagon's blind spot. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The attack from Fluvand the stand tallour hero surely left a impression. The dagon struck with its bite! The mythological Fluvand winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. The monster was stunned by the attack. The valorous Fluvand sneaked around to dagon's blind spot. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The beastly dagon failed to land its hit. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The grisly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
-
-He pulls a medium champagne potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-He pulls a spring bud potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The adventurer pulls a pale green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-He pulls a cornsilk potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
-
-The dagon struck with its bite! Fluvand the grandioseour hero blocks the strike with his sword. Fluvand the epicour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
-
-He pulls a guppie green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. The adventurer pulls a red violet potion from his pack and drinks it. He is reinvigorated. 
-
-The dagon struck with its bite! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He jumps out of the way. 
-
-The impavid Fluvand pulls a unmellow yellow potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The unholy dagon failed to land its hit. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the dagon, his sword ready to strike! Although the adventurer's hit landed, dagon is mostly unphased
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand blocks the strike with his sword. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. The dagon struck with its bite! Fluvand the boldour hero winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! Although he's hit landed, dagon is mostly unphased
-
-The dagon struck with its bite! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The shattering blow from Fluvand the stoutheartedour hero rumbled through the ground. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The attack from the adventurer surely left a impression. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! The ghastly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The dagon struck with its bite! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! 
-
-The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The dagon struck with its bite! The hideous dagon failed to land its hit. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
-
-The dagon struck with its bite! He winces from the pain but continues fighting. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
-
-He pulls a deep fuchsia potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The terrifying dagon failed to land its hit. 
-
-The dagon struck with its bite! The bigger than life Fluvand winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He blocks the strike with his sword. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The grisly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! He landed a massive hit on dagon! The monster was stunned by the attack. He sneaked around to dagon's blind spot. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! The smelly dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-He sneaked around to dagon's blind spot. The dagon struck with its bite! He blocks the strike with his sword. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The bold Fluvand jumps out of the way. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. The dagon struck with its bite! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
-
-The dagon struck with its bite! The disagreeable dagon failed to land its hit. Fluvand stumbles to his knee, gasping for breath. The dagon struck with its bite! He stunbles backward, gasping for breath. 
-
-Fluvand sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! The eerie dagon failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The monster was stunned by the attack. The adventurer sneaked around to dagon's blind spot. 
-
-The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
-
-He pulls a sandy brown potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He blocks the strike with his sword. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The mean dagon failed to land its hit. 
-
-The dagon struck with its bite! The fierce blow from the monster narrowly misses Fluvand the stand tallour hero. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
-
-He pulls a aqua potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
-
-He sneaked around to dagon's blind spot. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
-
-The dagon struck with its bite! The lousy dagon failed to land its hit. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! The lurid dagon failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon struck with its bite! The adventurer blocks the strike with his sword. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand reeled back in pain. 
-
-Fluvand the daringour hero sneaked around to dagon's blind spot. The dagon struck with its bite! Fluvand stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand the inflatedour hero blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! He blocks the strike with his sword. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The dagon leans low, ready to strike with its might. 
-
-Fluvand pulls a red devil potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! Fluvand stunbles backward, gasping for breath. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
-
-Fluvand the classicour hero pulls a old lace potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The loathsome dagon failed to land its hit. 
-
-He sneaked around to dagon's blind spot. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! Fluvand landed a massive hit on dagon! The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
-
-The dagon struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dagon leans low, ready to strike with its might. 
-
-The dagon struck with its bite! The elevated Fluvand jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The dagon took a glancing blow. 
-
-The dagon struck with its bite! The scary dagon failed to land its hit. he stumbles to his knee, gasping for breath. The dagon struck with its bite! He stunbles backward, gasping for breath. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! Fluvand jumps out of the way. 
-
-The lion-hearted Fluvand pulls a black olive potion from his pack and drinks it. He is reinvigorated. The dagon leans low, ready to strike with its might. 
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The adventurer jumps out of the way. 
-
-The impavid Fluvand sneaked around to dagon's blind spot. The dagon struck with its bite! The abominable dagon failed to land its hit. 
-
-He pulls a timberwolf potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He stunbles backward, gasping for breath. 
-
-Fluvand the grandour hero pulls a fluorescent orange potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the boldour hero's hit landed, dagon is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! Although Fluvand the boldour hero's hit landed, dagon is mostly unphased
-
-The dagon struck with its bite! Fluvand jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The dagon struck with its bite! He winces from the pain but continues fighting. 
-
-He pulls a dark raspberry potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! He jumps out of the way. 
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The valiant Fluvand landed a massive hit on dagon! 
-
-The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! Fluvand reeled back in pain. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! 
-
-The adventurer pulls a medium red violet potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! The eerie dagon failed to land its hit. 
-
-The dagon leans low, ready to strike with its might. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand pulls a davy s grey potion from his pack and drinks it. He is reinvigorated. The dagon struck with its bite! He blocks the strike with his sword. 
-
-The dagon struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The dagon struck with its bite! He jumps out of the way. 
-
-The dagon struck with its bite! The terrible dagon failed to land its hit. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The cruel dagon failed to land its hit. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a shadow potion from his pack and drinks it. He is reinvigorated. 
-
-The dagon leans low, ready to strike with its might. The dagon struck with its bite! The fierce blow from the monster narrowly misses the fire-eating Fluvand. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The dagon was struck by the blow! The monster was stunned by the attack. He pulls a medium lavender magenta potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The dagon was staggered by the immense force. 
-
-The dagon struck with its bite! Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The dagon leans low, ready to strike with its might. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The attack from Fluvand surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! The attack from he surely left a impression. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the dagon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. The dagon struck with its bite! He jumps out of the way. Fluvand lunged toward the dagon, his sword ready to strike! The slippery dagon evaded Fluvand's hit. 
-
-The adventurer was victorious! The dagon menaced for no longer! 
-
-## <a name="chapter16"></a> Chapter 16: Kend Hullestoneton and the Gearghost
-
-Fluvand followed a dirt path into the village of Kend Hullestoneton. Two potters sat by the side of the road. Two solicitors talked excitedly with what appeared to be a baker. Fluvand continued down the path. While the clockmaker bit into an apple, a bodger sat by the side of the road.
-
-Eventually, Fluvand arrived at the town square, where he found a cutler. The man, eying his dangerous demeanor, beckoned him forward.
+Eventually, Zamos arrived at the town square, where he found a embroiderer. The man, eying his impressive armor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-While the ropemaker slept in an alleyway, a ferryman hawked fine imported goods from Mard. The man sat in silence for a while, then finally responded.
+Nearby, a swineherd hawked fine imported goods from Gild. The man quietly reminised about the past, then finally responded.
 
-"Our village of Blostch will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Vides is the best in town. His shop is just a bit further down the street. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. While the clockmaker scuttled out of his way, a plasterer bit into an apple. The clothier talked excitedly with what appeared to be a pewterer with a chaplain. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Vides looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Vides grabbed a dusty book from the shelf and flipped through it. Pictures of siyokoys and tripurasuras flew by. Eventually he settled on a page and started to explain.
-
-Vides returned to the book of monsters on the desk and pointed at the terrifying illustration. "Formed from the unquiet soul of a thief wrenched from life by a wicked trap, a gearghost delights in rigging up the same threats and tortures to which it succumbed. Eager to witness the deaths of others, the gearghost prowls the place of its death, constantly maintaining and resetting any traps in that area as it waits for victims to fall into its clutches. A gearghost also has the ability to create and set new traps, and as such its lair is usually choked with perilous new snares, spikes, and pits. A gearghost only keeps treasure as a lure for hapless adventurers, often using such treasure as the trigger for one of its devious creations."
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a mean gearghost in the distance! Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the gearghost, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
-
-The gearghost struck with its slams! The adventurer jumps out of the way. Fluvand the elevatedour hero leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The gearghost leans low, ready to strike with its might. 
-
-Fluvand the mythologicalour hero pulls a trolley grey potion from his pack and drinks it. He is reinvigorated. The gearghost struck with its slams! Fluvand reeled back in pain. 
-
-He sneaked around to gearghost's blind spot. The gearghost leans low, ready to strike with its might. 
-
-He pulls a pale silver potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the gearghost, his sword ready to strike! Although Fluvand the valorousour hero's hit landed, gearghost is mostly unphased
-
-He sneaked around to gearghost's blind spot. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
-
-Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. The monster was stunned by the attack. The adventurer sneaked around to gearghost's blind spot. 
-
-Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to gearghost's blind spot. 
-
-Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. The adventurer sneaked around to gearghost's blind spot. 
-
-Fluvand lunged toward the gearghost, his sword ready to strike! The attack from he surely left a impression. The gearghost struck with its slams! Fluvand reeled back in pain. Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The gearghost struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
-
-The gearghost struck with its slams! Fluvand jumps out of the way. Fluvand lunged toward the gearghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The gearghost leans low, ready to strike with its might. The gearghost struck with its slams! He jumps out of the way. 
-
-The adventurer pulls a sky blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the gearghost, his sword ready to strike! The slippery gearghost evaded Fluvand's hit. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Vides was talking about."
-
-## <a name="chapter17"></a> Chapter 17: Worton and the Clockwork Golem
-
-Fluvand followed a dirt path into the village of Worton. Nearby, a ship's captain slowly carried supplies. Two pewterers gazed at him from an open window. Fluvand continued down the path. A cartwright eyed him suspiciously.
-
-Eventually, Fluvand arrived at the town square, where he found a cowherd. Fluvand approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-While the carter bit into an apple, a pattenmaker scuttled out of his way. He still looked suspiciousHe finally responded.
-
-"Our village of Lanort will gladly help you on your quest. What do you need?"
+"Our village of Alquark will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is just a bit further down the street. Look for the large hanging sign that reads "Dard Fine Supplies". You'll find Dard, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Stace is just a bit further down the street. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Audo gone as much as anybody."
 
-Fluvand hurried towards the armory. The apothecary hawked fine imported goods from Ball with a architect. The herald threw punches with a taverner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. A water carrier scuttled out of his way. Two master of houndss eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Dard looked up from his work behind a counter at Fluvand.
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Dard lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The clockwork golem."
+Stace grabbed a dusty book from the shelf and flipped through it. Pictures of akhluts and satyrs flew by. Eventually he settled on a page and started to explain.
 
-Dard returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster clockwork golem is terrifying for sure, but I honestly don't know much about that beast."
+"These invertebrate parasitic relatives of the worm lurk in stagnant or slow-moving water, waiting for a suitable host." Stace explained.
 
-"I could handle that. Tell me again, what makes the clockwork golem so bad?" Fluvand responded.
+"I could handle that. Tell me again, what makes the giant leech so bad?" Zamos responded.
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+"That's all I can tell you."
 
-Fluvand saw a gruesome clockwork golem in the distance! Our hero fixed his gaze on the ungodly sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a hideous giant leech in the distance! Our hero fixed his gaze on the disgusting sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand the classicour hero pulls a cyan process potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. 
+The giant leech struck with its bite! The appalling giant leech failed to land its hit. The exhilarating combat made the hours seem like seconds. The giant leech struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The adventurer pulls a ruby red potion from his pack and drinks it. He is reinvigorated. The giant leech struck with its bite! He blocks the strike with his sword. 
 
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+He pulls a mauvelous potion from his pack and drinks it. He is reinvigorated. The giant leech leans low, ready to strike with its might. 
 
-He sneaked around to clockwork golem's blind spot. The clockwork golem struck with its slams! Fluvand the guttyour hero stunbles backward, gasping for breath. 
+The giant leech struck with its bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the giant leech, his sword ready to strike! The giant leech was struck by the blow! 
 
-He sneaked around to clockwork golem's blind spot. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+The giant leech leans low, ready to strike with its might. Zamos lunged toward the giant leech, his sword ready to strike! The slippery giant leech evaded Zamos's hit. 
 
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the stoutheartedour hero sneaked around to clockwork golem's blind spot. 
+The adventurer sneaked around to giant leech's blind spot. The giant leech leans low, ready to strike with its might. 
 
-The adventurer pulls a dark candy apple red potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. 
+The giant leech struck with its bite! Zamos the undauntedour hero winces from the pain but continues fighting. The doughty Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant leech struck with its bite! Zamos the dauntlessour hero winces from the pain but continues fighting. 
 
-The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+The giant leech leans low, ready to strike with its might. Zamos lunged toward the giant leech, his sword ready to strike! The attack from the valorous Zamos surely left a impression. 
 
-The adventurer sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
+Zamos lunged toward the giant leech, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Zamos lunged toward the giant leech, his sword ready to strike! He landed a massive hit on giant leech! 
 
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
+The giant leech struck with its bite! He stunbles backward, gasping for breath. Zamos the mythologicalour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant leech struck with its bite! He stunbles backward, gasping for breath. 
 
-The clockwork golem struck with its slams! He jumps out of the way. Fluvand stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! The awful clockwork golem failed to land its hit. 
+He was victorious! The giant leech menaced for no longer! 
 
-The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+## <a name="chapter24"></a> Chapter 24: Pornpinst & Waster Paidge and the Fuath
 
-The adventurer pulls a old lace potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
+Zamos followed a dirt path into the village of Pornpinst & Waster Paidge. The minnesinger loaded a market stall with wares with a gunsmith. A hayward eyed him suspiciously. Zamos continued down the path. While the lacemaker finished an apple and tossed the core aside, a housewife eyed him suspiciously.
 
-The clockwork golem struck with its slams! The terrible clockwork golem failed to land its hit. The grandiose Fluvand leaned on his sword to catch a moment's respite. The grand Fluvand was worn out by the combat. The clockwork golem struck with its slams! The horrid clockwork golem failed to land its hit. 
-
-He sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
-
-He pulls a golden brown potion from his pack and drinks it. He is reinvigorated. The clockwork golem leans low, ready to strike with its might. 
-
-The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from he surely left a impression. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. The noble Fluvand pulls a pale cerulean potion from his pack and drinks it. He is reinvigorated. 
-
-The clockwork golem struck with its slams! The adventurer stunbles backward, gasping for breath. the adventurer stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
-
-He pulls a stizza potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-The clockwork golem struck with its slams! The gruesome clockwork golem failed to land its hit. He leaned on his sword to catch a moment's respite. Fluvand was worn out by the combat. The clockwork golem struck with its slams! Fluvand winces from the pain but continues fighting. 
-
-The clockwork golem struck with its slams! Fluvand jumps out of the way. Fluvand stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
-
-The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! The disgusting clockwork golem failed to land its hit. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! He winces from the pain but continues fighting. Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem took a glancing blow. 
-
-The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
-
-Fluvand pulls a almond potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses the epic Fluvand. 
-
-The adventurer pulls a international klein blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-He pulls a seashell potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to clockwork golem's blind spot. 
-
-The clockwork golem struck with its slams! The adventurer stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The clockwork golem struck with its slams! The mythological Fluvand jumps out of the way. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to clockwork golem's blind spot. 
-
-The clockwork golem struck with its slams! Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem was struck by the blow! 
-
-The clockwork golem struck with its slams! The scandalous clockwork golem failed to land its hit. Fluvand the gutsyour hero stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
-
-The clockwork golem struck with its slams! The horrendous clockwork golem failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. Fluvand the undauntedour hero was worn out by the combat. The clockwork golem leans low, ready to strike with its might. 
-
-He sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
-
-The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from he surely left a impression. The clockwork golem struck with its slams! The gutty Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-Fluvand sneaked around to clockwork golem's blind spot. The clockwork golem leans low, ready to strike with its might. 
-
-Fluvand the doughtyour hero sneaked around to clockwork golem's blind spot. The clockwork golem struck with its slams! He jumps out of the way. 
-
-The clockwork golem struck with its slams! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! Fluvand jumps out of the way. 
-
-The clockwork golem struck with its slams! Fluvand reeled back in pain. he stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
-
-He pulls a light goldenrod yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although he's hit landed, clockwork golem is mostly unphased
-
-He pulls a verdigris potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! He winces from the pain but continues fighting. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! Although Fluvand's hit landed, clockwork golem is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-The clockwork golem struck with its slams! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The clockwork golem struck with its slams! Fluvand reeled back in pain. 
-
-The clockwork golem struck with its slams! Fluvand the elevatedour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The clockwork golem leans low, ready to strike with its might. 
-
-The bold Fluvand pulls a field drab potion from his pack and drinks it. He is reinvigorated. The clockwork golem struck with its slams! The inflated Fluvand blocks the strike with his sword. 
-
-The clockwork golem struck with its slams! Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The clockwork golem struck with its slams! He winces from the pain but continues fighting. 
-
-He pulls a peach yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! Fluvand the nobleour hero blocks the strike with his sword. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! The fearless Fluvand blocks the strike with his sword. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from the adventurer surely left a impression. 
-
-The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although the inflated Fluvand's hit landed, clockwork golem is mostly unphased
-
-The clockwork golem leans low, ready to strike with its might. Fluvand lunged toward the clockwork golem, his sword ready to strike! Although Fluvand the classicour hero's hit landed, clockwork golem is mostly unphased
-
-The clockwork golem struck with its slams! The fire-eating Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The clockwork golem leans low, ready to strike with its might. 
-
-The clockwork golem leans low, ready to strike with its might. The clockwork golem struck with its slams! The exaggerated Fluvand jumps out of the way. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The clockwork golem was struck by the blow! The clockwork golem struck with its slams! Fluvand reeled back in pain. Fluvand lunged toward the clockwork golem, his sword ready to strike! The attack from the noble Fluvand surely left a impression. 
-
-He sneaked around to clockwork golem's blind spot. Fluvand lunged toward the clockwork golem, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The clockwork golem struck with its slams! He jumps out of the way. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-Fluvand the courageousour hero pulls a navy blue potion from his pack and drinks it. He is reinvigorated. The clockwork golem leans low, ready to strike with its might. 
-
-Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. The clockwork golem struck with its slams! Fluvand blocks the strike with his sword. Fluvand lunged toward the clockwork golem, his sword ready to strike! The slippery clockwork golem evaded Fluvand's hit. 
-
-The adventurer was victorious! The clockwork golem menaced for no longer! 
-
-## <a name="chapter18"></a> Chapter 18: Bannaddington upe and the Ice Yai
-
-Fluvand followed a dirt path into the village of Bannaddington upe. A cardmaker slowly carried supplies. Nearby, a mirrorer scuttled out of his way. Fluvand continued down the path. The costermonger scuttled out of his way with a troubadour.
-
-Eventually, Fluvand arrived at the town square, where he found a mariner. The man, eying his foreboding cloak, beckoned him forward.
+Eventually, Zamos arrived at the town square, where he found a crofter. The man, eying his unusual weapons, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"My name is Zamos, and it is my quest to defeat the evil wizard Audo." Zamos announced.
 
-While the plumber rushed by quickly, ignoring him, a beguine eyed him suspiciously. He still looked suspiciousHe finally responded.
+A hobbler ran from person to person, asking if they had seen Hewe. The man quietly reminised about the pastHe finally responded.
 
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Evanestremfrid is past the warehouse. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Tibbon gone as much as anybody."
+"Pris is the best in town. His shop is down the street to the warehouse and left. You'll see a cattle barn. It's into the market and towards the inn. Eventually you need to walk past the tavern. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Fluvand hurried towards the armory. Nearby, a shepherd rushed by quickly, ignoring him. Nearby, a mathematician talked excitedly with what appeared to be a fuller. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. The troubadour rushed by quickly, ignoring him with a gluttonous fool. A glazier finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Fluvand cleared his throat and a man ran out from a backroom.
+Pris looked up from his work behind a counter at Zamos.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Evanestremfrid lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice yai."
+Pris lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The fuath."
 
-Evanestremfrid returned to the book of monsters on the desk and pointed at the terrifying illustration. "The ice yai is a sinister creature that combines the brutality of a frost giant with the grace and style of a skilled martial artist. Although its magical powers are formidable, it prefers to fight in melee using its slam attacks, leading its minions in merciless combat. It uses its mobility to cast combat spells or launch shards of ice from its third eye."
+Pris returned to the book of monsters on the desk and pointed at the terrifying illustration. "Drowners of sailors and sinkers of ships, a fuath (FOO-ah) is a wicked gremlin found in the sea. It climbs aboard ships in the dead of night to sever ropes, bore holes in barrels, soil provisions, and murder any hapless crew it puts to sleep or catches alone. It delights in drowning creatures by surrounding them with magically thickened water, cackling with wicked glee as its victims claw desperately for the air only inches from their mouths. "
 
-Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"An ice yai is a natural leader among frost giants, tempering their savagery with its own wisdom. A tribe led by an ice yai may still raid settlements of neighboring humanoids, but the tribe soon learns the value of establishing regular tributes and willing sacrifices—the ice yai teach that methods that rely upon the threat of violence are often even more effective than actual violence. Despite this strangely enlightened philosophy, an ice yai never passes up an opportunity to reinforce its capacity for slaughter, and will often demand that its subjects take part in show battles, both for the entertainment of the tribe and to nurture the ice yai's insatiable ego and sense of dominion over its subjects." Evanestremfrid explained.
+"A fuath wears seaweed, shells, and coral like other creatures wear armor, clothes, and jewelry. Its body is protected by a hard, hunchbacked carapace. It stands less than 2 feet tall and weighs 12 to 15 pounds." Pris explained.
 
-"But my weapons may be too weak. Are there any other ways to defeat the ice yai?" Fluvand asked.
+Zamos slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Pris returned to the book of monsters on the desk and pointed at the terrifying illustration. "Fuaths don't share a common language with other types of gremlins, though they can pantomime to each other fairly effectively. They have a surprising rapport with other sea creatures, even foul-tempered beasts like reefclaws. Small groups of fuaths lair in sea caves or rocky crevices. Larger groups frequently lay claim to whole sections of ruined ships. Their lairs usually include several trained guard animals. Fuaths prefer the taste of "land-meat" to anything from the sea, and often raid shore and ships to slake their hunger. They adore sea hags to the point of worship."
+
+"I could handle that. Tell me again, what makes the fuath so bad?" Zamos responded.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Fluvand saw a disgusting ice yai in the distance! Our hero fixed his gaze on the unholy sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a scandalous fuath in the distance! Our hero fixed his gaze on the menacing sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. He pulls a mint green potion from his pack and drinks it. He is reinvigorated. 
+Zamos lunged toward the fuath, his sword ready to strike! The slippery fuath evaded Zamos's hit. The monster was stunned by the attack. He pulls a toolbox potion from his pack and drinks it. He is reinvigorated. 
 
-The inflated Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
+The fuath leans low, ready to strike with its might. The fuath struck with its claws! The exaggerated Zamos stunbles backward, gasping for breath. 
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai took a glancing blow. The monster was stunned by the attack. The epic Fluvand pulls a pale brown potion from his pack and drinks it. He is reinvigorated. 
+He sneaked around to fuath's blind spot. The fuath leans low, ready to strike with its might. 
 
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! He jumps out of the way. 
+He sneaked around to fuath's blind spot. The fuath struck with its claws! Zamos reeled back in pain. 
 
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand the mythologicalour hero blocks the strike with his sword. 
+Zamos lunged toward the fuath, his sword ready to strike! The attack from he surely left a impression. The fuath struck with its claws! The fierce blow from the monster narrowly misses he. Zamos lunged toward the fuath, his sword ready to strike! The fuath took a glancing blow. 
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The ice yai struck with its slams! He jumps out of the way. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
+Zamos lunged toward the fuath, his sword ready to strike! The fuath took a glancing blow. The fuath struck with its claws! Zamos the valiantour hero blocks the strike with his sword. Zamos lunged toward the fuath, his sword ready to strike! The slippery fuath evaded Zamos's hit. 
 
-Fluvand lunged toward the ice yai, his sword ready to strike! Although he's hit landed, ice yai is mostly unphasedThe monster was stunned by the attack. He pulls a rosso corsa potion from his pack and drinks it. He is reinvigorated. 
+The fuath struck with its claws! The hideous fuath failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The fuath struck with its claws! Zamos winces from the pain but continues fighting. 
 
-The adventurer sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
+Zamos says
 
-The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
+"That didn't seem so hard, I don't know what Pris was talking about."
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! The monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
+## <a name="chapter25"></a> Chapter 25: Bake and the Clockwork Leviathan
 
-The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the ice yai, his sword ready to strike! The attack from he surely left a impression. 
+Zamos followed a dirt path into the village of Bake. Two cartwrights slept in an alleyway. A cartwright scuttled out of his way. Zamos continued down the path. The gemcutter slept in an alleyway with a fence.
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was staggered by the immense force. The ice yai struck with its slams! The abhorrent ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
+Eventually, Zamos arrived at the town square, where he found a mapmaker. Zamos approached him, hoping for some advice.
 
-He pulls a pale chestnut potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The terrible ice yai failed to land its hit. 
+"Do you remember the glory days before the evil wizard Audo took over?" Zamos asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-Fluvand lunged toward the ice yai, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! He landed a massive hit on ice yai! 
+Two nakerers sat by the side of the road. The man eyed him thoughtfullyHe finally responded.
 
-The ice yai struck with its slams! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The ice yai struck with its slams! The bigger than life Fluvand blocks the strike with his sword. 
-
-He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
-
-The ice yai struck with its slams! He jumps out of the way. Fluvand lunged toward the ice yai, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Fluvand the gallantour hero pulls a yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The shattering blow from he rumbled through the ground. The ice yai struck with its slams! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
-
-Fluvand the stand tallour hero pulls a jungle green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The terrifying ice yai failed to land its hit. 
-
-The epic Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand the bigger than lifeour hero jumps out of the way. 
-
-The adventurer pulls a peach orange potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! He landed a massive hit on ice yai! The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to ice yai's blind spot. 
-
-The ice yai struck with its slams! The disagreeable ice yai failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-Fluvand the boldour hero pulls a icterine potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The gutty Fluvand stunbles backward, gasping for breath. 
-
-The ice yai struck with its slams! Fluvand the grandioseour hero blocks the strike with his sword. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ice yai struck with its slams! Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The ice yai struck with its slams! Fluvand jumps out of the way. 
-
-The ice yai struck with its slams! The scary ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The adventurer sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The obnoxious ice yai failed to land its hit. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The ice yai struck with its slams! He blocks the strike with his sword. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-The ice yai struck with its slams! The menacing ice yai failed to land its hit. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand jumps out of the way. 
-
-The ice yai struck with its slams! He stunbles backward, gasping for breath. Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! 
-
-The ice yai struck with its slams! He jumps out of the way. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
-
-The ice yai struck with its slams! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
-
-The ice yai struck with its slams! The ghastly ice yai failed to land its hit. The exhilarating combat made the hours seem like seconds. The ice yai leans low, ready to strike with its might. 
-
-The elevated Fluvand sneaked around to ice yai's blind spot. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-He pulls a blue potion from his pack and drinks it. He is reinvigorated. The ice yai leans low, ready to strike with its might. 
-
-The ice yai leans low, ready to strike with its might. The ice yai struck with its slams! The smelly ice yai failed to land its hit. 
-
-Fluvand sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
-
-The ice yai struck with its slams! Fluvand jumps out of the way. The unafraid Fluvand leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ice yai struck with its slams! The beastly ice yai failed to land its hit. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was struck by the blow! The monster was stunned by the attack. Fluvand sneaked around to ice yai's blind spot. 
-
-He sneaked around to ice yai's blind spot. The ice yai leans low, ready to strike with its might. 
-
-The adventurer pulls a daffodil potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! Although the noble Fluvand's hit landed, ice yai is mostly unphasedThe monster was stunned by the attack. He sneaked around to ice yai's blind spot. 
-
-He pulls a plum web potion from his pack and drinks it. He is reinvigorated. The ice yai struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-The ice yai leans low, ready to strike with its might. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-He pulls a forest green web potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-The fearless Fluvand sneaked around to ice yai's blind spot. The ice yai struck with its slams! He jumps out of the way. 
-
-Fluvand lunged toward the ice yai, his sword ready to strike! The ice yai was staggered by the immense force. The monster was stunned by the attack. Fluvand lunged toward the ice yai, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ice yai struck with its slams! The impavid Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ice yai leans low, ready to strike with its might. 
-
-The epic Fluvand pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the ice yai, his sword ready to strike! The slippery ice yai evaded Fluvand's hit. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Evanestremfrid was talking about."
-
-## <a name="chapter19"></a> Chapter 19: Cralestley & Itherburn and the Formian Myrmarch
-
-Fluvand followed a dirt path into the village of Cralestley & Itherburn. While the footpad talked excitedly with what appeared to be a salter, a restaurateur slowly carried supplies. A dean eyed him suspiciously. Fluvand continued down the path. The spy threw punches with a goldsmith.
-
-Eventually, Fluvand arrived at the town square, where he found a pavyler. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-The butler sat by the side of the road with a halberdier. The man quietly reminised about the past, but eventually responded.
-
-"Our village of Osgillown will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Zamos. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Elepos is into the market and towards the barn. Eventually you need to walk down the street to the monastery and right. You'll see a tavern. It's just a bit further down the street. It's just to the right. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Tibbon gone as much as anybody."
+"The armory is into the market and towards the cattle barn. Eventually you need to walk down the street to the warehouse and right. You'll see a church. It's into the market and towards the church. Eventually you need to walk past the inn. There's a small door. You'll find Bidebald, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Fluvand hurried towards the armory. While the tillerman talked excitedly with what appeared to be a constable, a fisherman bit into an apple. Two palmers sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Zamos hurried towards the armory. A canaller eyed him suspiciously. Two turners rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Elepos looked up from his work behind a counter at Fluvand.
+There was no one there. Zamos cleared his throat and a man ran out from a backroom.
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+"I'm Zamos, a brave adventurer seeking to destroy Audo. What dangers lurk nearby?" he asked.
 
-Elepos grabbed a dusty book from the shelf and flipped through it. Pictures of adherers and calignis flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the elasmosaurus, or perhaps even the elder deep one, but that's nothing compared to the clockwork leviathan we've got."
 
-Elepos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Myrmarchs are an elite caste of the formian race. They serve as direct agents for the queen, acting as advisors and generals, or administrating tasks where complexity or propriety renders taskmasters unsuitable. It is myrmarchs who answer the call when a particularly skilled diplomat or emissary is required to carry the queen's words outside of the territory of the hive to the dangerously disorganized races."
+The armorer sighed and continued. "Clockwork leviathans are equally capable of functioning on land and in water. Sailors who are haunted by the memories of these treacherous machines need not exaggerate their yarns, for the reality of an aquatic construct such as this holds enough terror in its story for even the hardiest of seafarers."
 
-Fluvand slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-"While myrmarchs make up the aristocracy of formian society, this does not make them pampered intellectuals and bureaucrats. On the contrary, they are even more deadly than the warriors they often command, and do not hesitate to use their considerable might to aid and protect their kin. Myrmarchs facing combat apply their natural poison to their javelins, making them even more lethal." Elepos explained.
+The armorer sighed and continued. "A clockwork leviathan's numerous metal plates and links are made of such resilient material that they never rust, even after long exposure to the briny sea waters that leviathans often patrol. "
 
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
+Zamos looked surprised. "Incredible! Is there anything else I should know?"
 
-"Like other formians, myrmarchs record their life's history upon their carapaces. Between their greater opportunities and longer lifespans (roughly as long as those of humans), myrmarchs can cover nearly every inch of their shells with great deeds accomplished, foes overcome, and service to the hive. Some myrmarchs actually run out of space for new records: some die shortly thereafter, knowing that they have served their queen to the utmost, while others add new artificial plates to their carapaces to continue their epics." Elepos explained.
+"Clockwork leviathans are 25 feet long and weigh just over 3 tons." Bidebald explained.
 
-"I could handle that. Tell me again, what makes the formian myrmarch so bad?" Fluvand responded.
-
-"The most accomplished, trusted, and battle-tested of their race, myrmarchs form the queen's elite bodyguard. In a small hive, these bodyguards likely have the same statistics presented above. In the oldest and largest hives, however, most possess class levels." Elepos explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the formian myrmarch?" Fluvand asked.
-
-Elepos returned to the book of monsters on the desk and pointed at the terrifying illustration. "A myrmarch has an enlarged thorax and abdomen, which give it the same general size and weight as a large warhorse, though its upper body is not much larger than that of a formian warrior's. Myrmarchs stand about 8 feet high and weigh about 1,200 pounds."
-
-"But my weapons may be too weak. Are there any other ways to defeat the formian myrmarch?" Fluvand asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a ghastly formian myrmarch in the distance! Fluvand the courageousour hero readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The shattering blow from Fluvand the lion-heartedour hero rumbled through the ground. The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses Fluvand. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-He pulls a electric green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. Fluvand the impavidour hero stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
-
-The formian myrmarch leans low, ready to strike with its might. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from he surely left a impression. 
-
-The formian myrmarch struck with its sting! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The formian myrmarch struck with its sting! He jumps out of the way. 
-
-The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. Fluvand the nobleour hero stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! Although he's hit landed, formian myrmarch is mostly unphased
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-The formian myrmarch struck with its sting! Fluvand the doughtyour hero jumps out of the way. Fluvand the bigger than lifeour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from Fluvand the stoutheartedour hero surely left a impression. The monster was stunned by the attack. He pulls a dark powder blue potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a persian green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from Fluvand the unafraidour hero surely left a impression. 
-
-Fluvand the courageousour hero pulls a kenyan copper potion from his pack and drinks it. He is reinvigorated. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium taupe potion from his pack and drinks it. He is reinvigorated. 
-
-The formian myrmarch leans low, ready to strike with its might. The formian myrmarch struck with its sting! He blocks the strike with his sword. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! The menacing formian myrmarch failed to land its hit. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch took a glancing blow. 
-
-The valiant Fluvand sneaked around to formian myrmarch's blind spot. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand the courageousour hero pulls a sea green potion from his pack and drinks it. He is reinvigorated. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! Fluvand the courageousour hero jumps out of the way. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-The formian myrmarch struck with its sting! He jumps out of the way. Fluvand lunged toward the formian myrmarch, his sword ready to strike! He landed a massive hit on formian myrmarch! 
-
-The formian myrmarch struck with its sting! He winces from the pain but continues fighting. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-He pulls a green html css green potion from his pack and drinks it. He is reinvigorated. The formian myrmarch struck with its sting! The terrifying formian myrmarch failed to land its hit. 
-
-The formian myrmarch struck with its sting! The gallant Fluvand blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The formian myrmarch struck with its sting! The fierce blow from the monster narrowly misses he. 
-
-The formian myrmarch struck with its sting! The bigger than life Fluvand blocks the strike with his sword. he stumbles to his knee, gasping for breath. The formian myrmarch leans low, ready to strike with its might. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch took a glancing blow. The monster was stunned by the attack. He pulls a honeydew potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! He landed a massive hit on formian myrmarch! The formian myrmarch struck with its sting! The dreadful formian myrmarch failed to land its hit. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-The formian myrmarch struck with its sting! Fluvand reeled back in pain. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The formian myrmarch was staggered by the immense force. 
-
-The mythological Fluvand pulls a china pink potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the formian myrmarch, his sword ready to strike! Although he's hit landed, formian myrmarch is mostly unphased
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The attack from the adventurer surely left a impression. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. The formian myrmarch struck with its sting! He blocks the strike with his sword. Fluvand lunged toward the formian myrmarch, his sword ready to strike! The slippery formian myrmarch evaded Fluvand's hit. 
-
-Fluvand lunged toward the formian myrmarch, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to formian myrmarch's blind spot. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Elepos was talking about."
-
-## <a name="chapter20"></a> Chapter 20: Brisle and the Locathah
-
-Fluvand followed a dirt path into the village of Brisle. Nearby, a mummer finished an apple and tossed the core aside. The horseleech talked excitedly with what appeared to be a vintner with a chainmaker. Fluvand continued down the path. A woolman gazed at him from an open window.
-
-Eventually, Fluvand arrived at the town square, where he found a lady. Fluvand approached him, hoping for some advice.
-
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
-
-The scholar loaded a market stall with wares with a sergeant. The man sat in silence for a whileHe finally responded.
-
-"Our village of Can will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the stables. Eventually you need to walk into the market and towards the stables. Eventually you need to walk past the monastery. It's just to the left. You'll find Raynaeus, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. Two housewifes bit into an apple. Nearby, a woodcutter slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Raynaeus looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Raynaeus grabbed a dusty book from the shelf and flipped through it. Pictures of ecorches and warsworns flew by. Eventually he settled on a page and started to explain.
-
-"Simple aquatic creatures shunned by landwalkers and undersea folk alike, locathahs live in tight-knit communities scattered throughout the world's seas, lakes. and waterways. Locathahs possess scaly ochre skin tinged with green and yellow. Ridged, rust-colored skin covers their chests and stomachs, and a mottled wash of green, brown, and orange colors their fins like aging kelp. Locathahs exude a strong fishy odor when above water that, in addition to their already unnerving appearance, repulses most land-dwellers. Despite this animosity, locathahs go to great lengths to befriend surface folk, offering safe passage through the waters, pointing out dangerous reefs, and hinting at sunken treasures in return for durable ceramics and metal tools and weapons, as well as tubers, which they view as a delicacy." Raynaeus explained.
-
-Fluvand slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"These creatures dislike combat and flee when disarmed or outnumbered. Locathahs hold community in the highest regard, never leaving a friend behind and often going to great lengths to retrieve a fallen companion. Among their own kind and races friendly toward them, locathahs are social creatures who live a very human-like, albeit simple, lifestyle. Locathahs work in stone, coral, and bone to produce the crude implements they use. Some take coral work to obsessive levels, with certain clans taking generations to grow their preferred medium in its desired form before carving it. They feed on crustaceans, undersea plants, and shellfish, and rarely on large fish that are caught during ritualized hunts." Raynaeus explained.
-
-"I could handle that. Tell me again, what makes the locathah so bad?" Fluvand responded.
-
-The armorer sighed and continued. "Locathah matriarchs serve their undersea tribes not only as chieftains, but also as the primary egg layers of the community. Each adult member of the tribe is responsible for raising a single young locathah as his or her own. Locathahs tame moray eels, keeping them near their lairs as humans keep dogs. Some locathah soldiers and hunting groups use giant moray eels as mounts, chasing down their quarry and attacking with narrow-tipped spears. More powerful aquatic races use locathahs as slaves, abducting breeding matriarchs to produce a constant wave of new workers."
-
-"I could handle that. Tell me again, what makes the locathah so bad?" Fluvand responded.
-
-The armorer sighed and continued. "Locathah stand roughly as tall as humans, yet their fins jut out, giving them an imposing stature. Lean and strong, locathahs weigh roughly 160 pounds."
-
-"But my weapons may be too weak. Are there any other ways to defeat the locathah?" Fluvand asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a awful locathah in the distance! The inflated Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the locathah, his sword ready to strike! A sharp crack was heard as the strike left its mark. The locathah struck with its longspear! Fluvand jumps out of the way. Fluvand lunged toward the locathah, his sword ready to strike! The slippery locathah evaded Fluvand's hit. 
-
-The locathah struck with its longspear! Fluvand reeled back in pain. Fluvand leaned on his sword to catch a moment's respite. Fluvand the nobleour hero was worn out by the combat. The locathah leans low, ready to strike with its might. 
-
-The adventurer pulls a copper rose potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the locathah, his sword ready to strike! The slippery locathah evaded Fluvand's hit. 
-
-The adventurer was victorious! The locathah menaced for no longer! 
-
-## <a name="chapter21"></a> Chapter 21: Manochesforton and the Animate Dream
-
-Fluvand followed a dirt path into the village of Manochesforton. While the smelter threw punches, a bailiff threw punches. While the cheesemaker finished an apple and tossed the core aside, a cobbler sat by the side of the road. Fluvand continued down the path. Nearby, a banker gazed at him from an open window.
-
-Eventually, Fluvand arrived at the town square, where he found a currier. Fluvand approached him, hoping for some advice.
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-Two mosaic layers loaded a market stall with wares. He still looked suspiciousHe finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Thyrice is into the market and towards the stables. Eventually you need to walk just a bit further down the street. It's just to the right. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. Nearby, a gardner hawked fine imported goods from Cocheter Hillow. A jew sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Thyrice looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the arsinoitherium, or perhaps even the dire corby, but that's nothing compared to the animate dream we've got."
-
-Thyrice returned to the book of monsters on the desk and pointed at the terrifying illustration. "From time to time, when a powerfully imaginative sleeper wakes from a particularly vivid or unusual dream, a fragment of that dream lingers on the Ethereal Plane. To survive, this animate dream needs the power of living will, imagination, and emotion to sustain it. An animate dream seeks out mortal minds, appearing as a shadowy and often frightful dream figure. Its true appearance is vague and nebulous, but it reacts to the fears and emotions of those around it, taking on a nightmarish appearance that differs for each viewer."
-
-Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Thyrice returned to the book of monsters on the desk and pointed at the terrifying illustration. "An animate dream can find satisfaction and sustenance by passing one of its ghostly limbs through a mortal's body—the act infusing the mortal with negative energy that sates the animate dream's unnatural hunger. But by forcing a creature into a state of sleep, terror, or both, the animate dream can gain a much more satisfying meal, feeding on the emotions released in such states. It uses its spell-like abilities to this end, for each creature it harms with its nightmares, drives temporarily insane with confusion or fear, or outright slays with phantasmal killer provides the monster with more nourishment. An animate dream forced to go for a long period of time without feeding does not starve to death, but does grow increasingly feral and violent in nature."
-
-"But my weapons may be too weak. Are there any other ways to defeat the animate dream?" Fluvand asked.
-
-"Animate dreams sometimes associate with other creatures from the Ethereal Plane or that have associations with dreams and nightmares, such as night hags, phase spiders, and xills. Sometimes these alliances are mutually beneficial, but in many cases the animate dreams are treated as slaves. Night hags in particular like enslaving animate dreams, and sometimes use their essence as a component in creating heartstones." Thyrice explained.
-
-"I could handle that. Tell me again, what makes the animate dream so bad?" Fluvand responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a lousy animate dream in the distance! Our hero fixed his gaze on the heinous sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! He stunbles backward, gasping for breath. Fluvand lunged toward the animate dream, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand the boldour hero. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! He blocks the strike with his sword. 
-
-The adventurer sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a french lime potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! He jumps out of the way. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The adventurer pulls a light crimson potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! The frightful animate dream failed to land its hit. 
-
-The animate dream struck with its incorporeal  touch! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The animate dream struck with its incorporeal  touch! He jumps out of the way. 
-
-He sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a dark jungle green potion from his pack and drinks it. He is reinvigorated. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The attack from he surely left a impression. 
-
-Fluvand the inflatedour hero sneaked around to animate dream's blind spot. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand the inflatedour hero. 
-
-The adventurer sneaked around to animate dream's blind spot. The animate dream struck with its incorporeal  touch! The adventurer jumps out of the way. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! Although the gutty Fluvand's hit landed, animate dream is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream took a glancing blow. 
-
-The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The epic Fluvand winces from the pain but continues fighting. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses the adventurer. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream took a glancing blow. 
-
-The animate dream struck with its incorporeal  touch! The abhorrent animate dream failed to land its hit. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. The monster was stunned by the attack. He pulls a azure potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was struck by the blow! The monster was stunned by the attack. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! Fluvand reeled back in pain. 
-
-Fluvand the daringour hero pulls a fawn potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The animate dream was staggered by the immense force. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-The animate dream struck with its incorporeal  touch! The awful animate dream failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The animate dream leans low, ready to strike with its might. 
-
-The animate dream leans low, ready to strike with its might. Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. 
-
-He pulls a indigo potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! The fierce blow from the monster narrowly misses Fluvand. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The animate dream struck with its incorporeal  touch! Fluvand reeled back in pain. Fluvand lunged toward the animate dream, his sword ready to strike! Although he's hit landed, animate dream is mostly unphased
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to animate dream's blind spot. 
-
-He sneaked around to animate dream's blind spot. The animate dream leans low, ready to strike with its might. 
-
-Fluvand lunged toward the animate dream, his sword ready to strike! The slippery animate dream evaded Fluvand's hit. The monster was stunned by the attack. He pulls a lavender purple potion from his pack and drinks it. He is reinvigorated. 
-
-The animate dream struck with its incorporeal  touch! The repulsive animate dream failed to land its hit. The exhilarating combat made the hours seem like seconds. The animate dream leans low, ready to strike with its might. 
-
-The animate dream struck with its incorporeal  touch! He jumps out of the way. Fluvand lunged toward the animate dream, his sword ready to strike! The attack from Fluvand surely left a impression. 
-
-He pulls a robin egg blue potion from his pack and drinks it. He is reinvigorated. The animate dream struck with its incorporeal  touch! Fluvand jumps out of the way. 
-
-The animate dream leans low, ready to strike with its might. The animate dream struck with its incorporeal  touch! The unholy animate dream failed to land its hit. 
-
-He was victorious! The animate dream menaced for no longer! 
-
-## <a name="chapter22"></a> Chapter 22: Bay and the Chuspiki
-
-Fluvand followed a dirt path into the village of Bay. A gunsmith gazed at him from an open window. While the thimbler scuttled out of his way, a armorer bit into an apple. Fluvand continued down the path. Two wood sellers eyed him suspiciously.
-
-Eventually, Fluvand arrived at the town square, where he found a rugmaker. Fluvand approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Two pikemans talked excitedly with what appeared to be a clockmaker. The man sat in silence for a whileHe finally responded.
-
-"Our village of Mangdon will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Demosoniaumela is down the street to the stables and right. You'll see a cattle barn. It's down the street to the tavern and right. You'll see a barn. It's down the street to the tavern and left. You'll see a tavern. It's into the market and towards the inn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Demosoniaumela Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Fluvand hurried towards the armory. Nearby, a drycooper slowly carried supplies. While the molecatcher loaded a market stall with wares, a siege engineer gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Demosoniaumela looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the spirit naga, or perhaps even the crone queen, but that's nothing compared to the chuspiki we've got."
-
-The armorer sighed and continued. "Chuspikis are intelligent, mouselike creatures covered in a coat of downy tan fur which makes them appear much larger than they actually are. A chuspiki's tail is substantially longer than the rest of its body, fanning out into a sail-like structure. The base of its tail is strong and flexible, allowing the chuspiki to whip around the fan at the tip with surprising speed. It can use this motion to create concussive blasts of air, or to scratch opponents with barbs on the underside of its tail bones."
-
-"I could handle that. Tell me again, what makes the chuspiki so bad?" Fluvand responded.
-
-The armorer sighed and continued. "Like the wind itself, chuspikis are always moving. Chuspikis soar through the air, riding their fans like gliders and summoning minor gusts to steer their flight. They rest in short bursts, napping for just an hour at a time."
-
-"But my weapons may be too weak. Are there any other ways to defeat the chuspiki?" Fluvand asked.
-
-The armorer sighed and continued. "Whenever they can, chuspikis seek out new experiences. They are social creatures that prefer to travel with others of their kind, or with members of other species. Chuspikis feel an especially strong connection with other creatures who share their bond with the skies, such as air elementals and sylphs. Chuspikis enjoy exploring unique locations, and when they find a particularly fascinating site, they announce their find on the winds to encourage others to share in their discovery. A mysterious disembodied voice promising glorious adventure may very well be a chuspiki; however, the playful creatures are just as likely to play pranks on hapless passersby as they are to provide legitimate guidance."
-
-"But my weapons may be too weak. Are there any other ways to defeat the chuspiki?" Fluvand asked.
-
-The armorer sighed and continued. "A typical chuspiki is 1 foot long, with its tail extending out an additional 5 feet, and weighs 1 pound. Its bones are hollow, like a bird's."
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-"A chuspiki will sometimes ally with a spellcaster as a familiar. A chaotic spellcaster can gain a chuspiki as a familiar at 7th level by taking the Improved Familiar feat." Demosoniaumela explained.
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a horrid chuspiki in the distance! Our hero fixed his gaze on the sickie sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-The chuspiki struck with its tail fan! He blocks the strike with his sword. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-The chuspiki struck with its tail fan! He stunbles backward, gasping for breath. the courageous Fluvand stumbles to his knee, gasping for breath. The chuspiki struck with its tail fan! Fluvand reeled back in pain. 
-
-He pulls a iceberg potion from his pack and drinks it. He is reinvigorated. The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses Fluvand. 
-
-The chuspiki struck with its tail fan! The repellent chuspiki failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The chuspiki leans low, ready to strike with its might. 
-
-Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the bigger than lifeour hero pulls a dark lava potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand the inflatedour hero pulls a cal poly green potion from his pack and drinks it. He is reinvigorated. The chuspiki leans low, ready to strike with its might. 
-
-The chuspiki leans low, ready to strike with its might. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-He sneaked around to chuspiki's blind spot. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-The chuspiki struck with its tail fan! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The chuspiki leans low, ready to strike with its might. 
-
-The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-The chuspiki leans low, ready to strike with its might. Fluvand lunged toward the chuspiki, his sword ready to strike! The attack from the elevated Fluvand surely left a impression. 
-
-Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a royal blue traditional potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. The monster was stunned by the attack. The exaggerated Fluvand sneaked around to chuspiki's blind spot. 
-
-He pulls a dark goldenrod potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-He pulls a shocking pink potion from his pack and drinks it. He is reinvigorated. The chuspiki leans low, ready to strike with its might. 
-
-The chuspiki leans low, ready to strike with its might. The chuspiki struck with its tail fan! Fluvand blocks the strike with his sword. 
-
-The chuspiki struck with its tail fan! The fierce blow from the monster narrowly misses Fluvand the gallantour hero. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The chuspiki leans low, ready to strike with its might. 
-
-Fluvand lunged toward the chuspiki, his sword ready to strike! The shattering blow from the elevated Fluvand rumbled through the ground. The monster was stunned by the attack. Fluvand lunged toward the chuspiki, his sword ready to strike! Although Fluvand the grandioseour hero's hit landed, chuspiki is mostly unphased
-
-The chuspiki struck with its tail fan! Fluvand reeled back in pain. Fluvand lunged toward the chuspiki, his sword ready to strike! The slippery chuspiki evaded Fluvand's hit. 
-
-He sneaked around to chuspiki's blind spot. The chuspiki leans low, ready to strike with its might. 
-
-The adventurer was victorious! The chuspiki menaced for no longer! 
-
-## <a name="chapter23"></a> Chapter 23: Rayswickpon-Treet Finswarry Havon up and the Living Wall
-
-Fluvand followed a dirt path into the village of Rayswickpon-Treet Finswarry Havon up. Two shoemakers talked excitedly with what appeared to be a tillerman. A farrier stood by a market stall, negotiating with the spectaclesmaker. Fluvand continued down the path. A rivener slowly carried supplies.
-
-Eventually, Fluvand arrived at the town square, where he found a cooper. Fluvand approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Tibbon took over?" Fluvand asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Nearby, a bagger rushed by quickly, ignoring him. He still looked suspicious, then finally responded.
-
-"Our village of Sholl Treephey will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is down the street to the monastery and left. You'll see a inn. It's down the street to the tavern and left. You'll see a barn. It's down the street to the cattle barn and right. You'll see a tavern. It's past the barn. It's just to the right. You'll find Fastus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Tibbon gone as much as anybody."
-
-Fluvand hurried towards the armory. Two gravediggers slowly carried supplies. Two princes slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Fastus looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the ghaele, or perhaps even the nightwalker, but that's nothing compared to the living wall we've got."
-
-"A living wall is a construct built out of the bodies of many creatures and mortared together with liquefied flesh. Like a gelatinous cube, it fills an entire 10-foot square, allowing it to completely block a hallway. Several living walls placed next to one another can obstruct an entire room. Its normal method of attack is to creep into range to make slam attacks, then push opponents against other walls and crush them to death. Living walls follow basic orders and are normally used to block access to certain parts of their creator's lair—to get through a living wall, it must be killed and hacked apart to create a space other creatures can pass through. Living walls can be ordered to stack themselves on top of each other to reach higher ceilings, but this requires a ramp to allow one to climb onto the other." Fastus explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the living wall?" Fluvand asked.
-
-"A living wall rises 8 to 10 feet high and weighs 4,000 pounds. The appearance of each one varies wildly depending on the creatures used to make up its constituent parts." Fastus explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the living wall?" Fluvand asked.
+"But my weapons may be too weak. Are there any other ways to defeat the clockwork leviathan?" Zamos asked.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Fluvand saw a shameful living wall in the distance! The doughty Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+Zamos saw a heinous clockwork leviathan in the distance! Our hero fixed his gaze on the mean sight. Zamos hurried towards the enemy, ready to strike it down with all his might! 
 
-Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a camouflage green potion from his pack and drinks it. He is reinvigorated. 
+He pulls a gray x11 gray potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Fluvand the intrepidour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! The adventurer blocks the strike with his sword. the undaunted Zamos stumbles to his knee, gasping for breath. The clockwork leviathan struck with its bite! Zamos reeled back in pain. 
 
-The living wall struck with its slams! The lurid living wall failed to land its hit. The exhilarating combat made the hours seem like seconds. The living wall struck with its slams! He jumps out of the way. 
+The clockwork leviathan struck with its bite! He jumps out of the way. Zamos the undauntedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The clockwork leviathan struck with its bite! The hideous clockwork leviathan failed to land its hit. 
 
-He sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The living wall struck with its slams! Fluvand blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+He pulls a sap green potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The living wall struck with its slams! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! The hideous clockwork leviathan failed to land its hit. The exhilarating combat made the hours seem like seconds. The clockwork leviathan struck with its bite! Zamos reeled back in pain. 
 
-The living wall struck with its slams! The gritty Fluvand blocks the strike with his sword. Fluvand lunged toward the living wall, his sword ready to strike! The living wall took a glancing blow. 
+The gutsy Zamos pulls a camouflage green potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The attack from the dauntless Zamos surely left a impression. 
 
-The living wall struck with its slams! The shocking living wall failed to land its hit. Fluvand lunged toward the living wall, his sword ready to strike! Although Fluvand's hit landed, living wall is mostly unphased
+The clockwork leviathan struck with its bite! Zamos stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! He landed a massive hit on living wall! The monster was stunned by the attack. Fluvand lunged toward the living wall, his sword ready to strike! The living wall was struck by the blow! 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The clockwork leviathan struck with its bite! Zamos reeled back in pain. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! That blow seemed like it could break some bones. The living wall struck with its slams! The fierce blow from the monster narrowly misses the gritty Fluvand. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+The clockwork leviathan struck with its bite! The disgusting clockwork leviathan failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The clockwork leviathan leans low, ready to strike with its might. 
 
-The living wall struck with its slams! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The living wall leans low, ready to strike with its might. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The clockwork leviathan took a glancing blow. The monster was stunned by the attack. The dauntless Zamos sneaked around to clockwork leviathan's blind spot. 
 
-The lion-hearted Fluvand pulls a mode beige potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+Zamos sneaked around to clockwork leviathan's blind spot. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The living wall struck with its slams! The smelly living wall failed to land its hit. He leaned on his sword to catch a moment's respite. Fluvand the nobleour hero was worn out by the combat. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! Zamos the doughtyour hero blocks the strike with his sword. the noble Zamos stumbles to his knee, gasping for breath. The clockwork leviathan struck with its bite! The adventurer jumps out of the way. 
 
-The adventurer pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+Zamos sneaked around to clockwork leviathan's blind spot. The clockwork leviathan leans low, ready to strike with its might. 
 
-The living wall struck with its slams! The disagreeable living wall failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! Zamos blocks the strike with his sword. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand sneaked around to living wall's blind spot. The living wall struck with its slams! The terrible living wall failed to land its hit. 
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! The valiant Zamos blocks the strike with his sword. 
 
-Fluvand pulls a gray x11 gray potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The living wall struck with its slams! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! Zamos reeled back in pain. 
 
-He pulls a moonstone blue potion from his pack and drinks it. He is reinvigorated. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The clockwork leviathan leans low, ready to strike with its might. 
 
-The living wall struck with its slams! The stand tall Fluvand blocks the strike with his sword. Fluvand the dauntlessour hero leaned on his sword to catch a moment's respite. Fluvand the epicour hero was worn out by the combat. The living wall leans low, ready to strike with its might. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The attack from Zamos surely left a impression. The monster was stunned by the attack. The bigger than life Zamos pulls a royal blue traditional potion from his pack and drinks it. He is reinvigorated. 
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+The clockwork leviathan leans low, ready to strike with its might. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to living wall's blind spot. 
+He sneaked around to clockwork leviathan's blind spot. The clockwork leviathan leans low, ready to strike with its might. 
 
-He pulls a prune potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! Fluvand blocks the strike with his sword. 
+He pulls a ultramarine potion from his pack and drinks it. He is reinvigorated. The clockwork leviathan leans low, ready to strike with its might. 
 
-The living wall struck with its slams! The fierce blow from the monster narrowly misses the grand Fluvand. Fluvand lunged toward the living wall, his sword ready to strike! Although Fluvand the stand tallour hero's hit landed, living wall is mostly unphased
+The adventurer sneaked around to clockwork leviathan's blind spot. Zamos lunged toward the clockwork leviathan, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The living wall struck with its slams! The repellent living wall failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! The appalling clockwork leviathan failed to land its hit. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to living wall's blind spot. 
+He sneaked around to clockwork leviathan's blind spot. The clockwork leviathan leans low, ready to strike with its might. 
 
-He sneaked around to living wall's blind spot. The living wall struck with its slams! The adventurer jumps out of the way. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos the intrepidour hero sneaked around to clockwork leviathan's blind spot. 
 
-The adventurer pulls a dark sea green potion from his pack and drinks it. He is reinvigorated. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! The hideous clockwork leviathan failed to land its hit. Zamos lunged toward the clockwork leviathan, his sword ready to strike! Although he's hit landed, clockwork leviathan is mostly unphased
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! Although the adventurer's hit landed, clockwork leviathan is mostly unphasedThe clockwork leviathan struck with its bite! The heinous clockwork leviathan failed to land its hit. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The clockwork leviathan took a glancing blow. 
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. He pulls a india green potion from his pack and drinks it. He is reinvigorated. 
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+The clockwork leviathan struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to living wall's blind spot. 
+The clockwork leviathan struck with its bite! The gruesome clockwork leviathan failed to land its hit. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-He pulls a bright green potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! The fierce blow from the monster narrowly misses he. 
+Zamos the stand tallour hero pulls a golden brown potion from his pack and drinks it. He is reinvigorated. The clockwork leviathan struck with its bite! The mean clockwork leviathan failed to land its hit. 
 
-Fluvand the high-flownour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses the gallant Zamos. 
 
-Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the daringour hero pulls a rubine red potion from his pack and drinks it. He is reinvigorated. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. He sneaked around to clockwork leviathan's blind spot. 
 
-Fluvand the grandour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-He pulls a english lavender potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! He jumps out of the way. 
+The clockwork leviathan struck with its bite! The adventurer jumps out of the way. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The clockwork leviathan took a glancing blow. 
 
-Fluvand pulls a raspberry potion from his pack and drinks it. He is reinvigorated. The living wall struck with its slams! The fierce blow from the monster narrowly misses he. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! The living wall took a glancing blow. 
+The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The clockwork leviathan leans low, ready to strike with its might. 
 
-The living wall struck with its slams! The repellent living wall failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The living wall leans low, ready to strike with its might. 
+The adventurer sneaked around to clockwork leviathan's blind spot. The clockwork leviathan struck with its bite! He blocks the strike with his sword. 
 
-The living wall struck with its slams! The adventurer blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The valorous Fluvand was worn out by the combat. The living wall struck with its slams! The adventurer jumps out of the way. 
+He pulls a royal fuchsia potion from his pack and drinks it. He is reinvigorated. The clockwork leviathan struck with its bite! The noble Zamos blocks the strike with his sword. 
 
-The living wall leans low, ready to strike with its might. Fluvand lunged toward the living wall, his sword ready to strike! He landed a massive hit on living wall! 
+The clockwork leviathan struck with its bite! Zamos blocks the strike with his sword. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-He sneaked around to living wall's blind spot. Fluvand lunged toward the living wall, his sword ready to strike! The slippery living wall evaded Fluvand's hit. 
+The clockwork leviathan struck with its bite! Zamos reeled back in pain. The exhilarating combat made the hours seem like seconds. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand the lion-heartedour hero sneaked around to living wall's blind spot. The living wall leans low, ready to strike with its might. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-He was victorious! The living wall menaced for no longer! 
+The clockwork leviathan leans low, ready to strike with its might. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-## <a name="chapter24"></a> Chapter 24: Road and the Fastachee
+He sneaked around to clockwork leviathan's blind spot. Zamos lunged toward the clockwork leviathan, his sword ready to strike! He landed a massive hit on clockwork leviathan! 
 
-Fluvand followed a dirt path into the village of Road. While the shipchandler threw punches, a beerbrewer scuttled out of his way. Two tentsmans eyed him suspiciously. Fluvand continued down the path. While the curate stood by a market stall, negotiating with the jailer, a plowman scuttled out of his way.
+The clockwork leviathan struck with its bite! The adventurer stunbles backward, gasping for breath. Zamos the gutsyour hero stumbles to his knee, gasping for breath. The clockwork leviathan leans low, ready to strike with its might. 
 
-Eventually, Fluvand arrived at the town square, where he found a pewterer. Fluvand approached him, hoping for some advice.
+The stouthearted Zamos sneaked around to clockwork leviathan's blind spot. The clockwork leviathan leans low, ready to strike with its might. 
 
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses Zamos the gutsyour hero. 
 
-Two horners finished an apple and tossed the core aside. The man sat in silence for a whileHe finally responded.
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. The adventurer sneaked around to clockwork leviathan's blind spot. 
 
-"Our village of Dol Gal will gladly help you on your quest. What do you need?"
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The clockwork leviathan struck with its bite! He blocks the strike with his sword. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The monster was stunned by the attack. Zamos the undauntedour hero pulls a wood brown potion from his pack and drinks it. He is reinvigorated. 
 
-"Hildebrianulf is the best in town. His shop is into the market and towards the inn. Eventually you need to walk past the cattle barn. Look for the large hanging sign that reads "Hildebrianulf Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
+The clockwork leviathan struck with its bite! Zamos reeled back in pain. Zamos leaned on his sword to catch a moment's respite. He was worn out by the combat. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand hurried towards the armory. Two almoners slowly carried supplies. A fool for money slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+The clockwork leviathan leans low, ready to strike with its might. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Hildebrianulf looked up from his work behind a counter at Fluvand.
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
+The clockwork leviathan struck with its bite! The stouthearted Zamos winces from the pain but continues fighting. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-"Brave you say? You may have fought the giant muckdweller, or perhaps even the cursed king, but that's nothing compared to the fastachee we've got."
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. The clockwork leviathan struck with its bite! The adventurer jumps out of the way. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Hildebrianulf returned to the book of monsters on the desk and pointed at the terrifying illustration. "Fastachees are mysterious, wise, and generous fey who foster the growth of nearby plants. Many communities who interact with them revere them as bringers of food and medicine, as well as protectors of crops. These fey have a particularly strong connection to corn; they regularly project their senses through corn plants to monitor the health of the field and search the local area for threats. They prefer to avoid direct confrontation if possible, using their ability to originate their spells from corn plants to harass those they wish to chase away."
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-"I could handle that. Tell me again, what makes the fastachee so bad?" Fluvand responded.
+The clockwork leviathan leans low, ready to strike with its might. The clockwork leviathan struck with its bite! Zamos winces from the pain but continues fighting. 
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+The clockwork leviathan struck with its bite! He blocks the strike with his sword. Zamos the unafraidour hero leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand saw a disagreeable fastachee in the distance! Our hero fixed his gaze on the terrifying sight. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
+The clockwork leviathan struck with its bite! The undaunted Zamos stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+The high-flown Zamos sneaked around to clockwork leviathan's blind spot. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The clockwork leviathan was struck by the blow! 
 
-The fastachee struck with its vines! Fluvand reeled back in pain. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+Zamos lunged toward the clockwork leviathan, his sword ready to strike! The shattering blow from Zamos rumbled through the ground. The monster was stunned by the attack. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Fluvand the grittyour hero sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+Zamos the gallantour hero sneaked around to clockwork leviathan's blind spot. The clockwork leviathan leans low, ready to strike with its might. 
 
-Fluvand sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand reeled back in pain. 
+Zamos pulls a light cyan potion from his pack and drinks it. He is reinvigorated. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The high-flown Fluvand sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
+The clockwork leviathan struck with its bite! The fierce blow from the monster narrowly misses he. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-Fluvand the classicour hero pulls a green ncs potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand reeled back in pain. 
+He sneaked around to clockwork leviathan's blind spot. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The slippery clockwork leviathan evaded Zamos's hit. 
 
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. Fluvand the valiantour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The unkind fastachee failed to land its hit. 
+The clockwork leviathan struck with its bite! He jumps out of the way. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The attack from he surely left a impression. 
 
-The fastachee struck with its vines! The gallant Fluvand jumps out of the way. he stumbles to his knee, gasping for breath. The fastachee leans low, ready to strike with its might. 
+The intrepid Zamos pulls a zinnwaldite brown potion from his pack and drinks it. He is reinvigorated. The clockwork leviathan struck with its bite! Zamos reeled back in pain. 
 
-The fastachee leans low, ready to strike with its might. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
+The clockwork leviathan struck with its bite! Zamos the classicour hero blocks the strike with his sword. Zamos lunged toward the clockwork leviathan, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-The fastachee struck with its vines! Fluvand jumps out of the way. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
+Zamos says
 
-The fastachee struck with its vines! He blocks the strike with his sword. Fluvand the fire-eatingour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The mean fastachee failed to land its hit. 
-
-The valorous Fluvand pulls a green pigment potion from his pack and drinks it. He is reinvigorated. The fastachee leans low, ready to strike with its might. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! The gutsy Fluvand blocks the strike with his sword. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
-
-He pulls a medium spring bud potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! The adventurer blocks the strike with his sword. 
-
-The fastachee struck with its vines! Fluvand jumps out of the way. Fluvand lunged toward the fastachee, his sword ready to strike! Although Fluvand the intrepidour hero's hit landed, fastachee is mostly unphased
-
-The fastachee struck with its vines! Fluvand the doughtyour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The fastachee struck with its vines! He blocks the strike with his sword. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! Fluvand stunbles backward, gasping for breath. 
-
-The fastachee struck with its vines! Fluvand reeled back in pain. He leaned on his sword to catch a moment's respite. Fluvand the grandioseour hero was worn out by the combat. The fastachee struck with its vines! The adventurer jumps out of the way. 
-
-He pulls a dark goldenrod potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! He blocks the strike with his sword. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The adventurer pulls a violet potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. He pulls a medium candy apple red potion from his pack and drinks it. He is reinvigorated. 
-
-The fastachee struck with its vines! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Fluvand sneaked around to fastachee's blind spot. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-He sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand jumps out of the way. 
-
-He sneaked around to fastachee's blind spot. The fastachee struck with its vines! Fluvand stunbles backward, gasping for breath. 
-
-The fastachee struck with its vines! The disagreeable fastachee failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The fastachee leans low, ready to strike with its might. 
-
-He pulls a myrtle potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand the courageousour hero jumps out of the way. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! Fluvand the elevatedour hero winces from the pain but continues fighting. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand sneaked around to fastachee's blind spot. The fastachee struck with its vines! He winces from the pain but continues fighting. 
-
-The fastachee struck with its vines! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
-
-The fastachee struck with its vines! The bold Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee leans low, ready to strike with its might. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! The fastachee struck with its vines! The mythological Fluvand stunbles backward, gasping for breath. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He jumps out of the way. 
-
-The fastachee struck with its vines! The scary fastachee failed to land its hit. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The grim fastachee failed to land its hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The smelly fastachee failed to land its hit. 
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses the grand Fluvand. Fluvand the gutsyour hero stumbles to his knee, gasping for breath. The fastachee leans low, ready to strike with its might. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to fastachee's blind spot. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He winces from the pain but continues fighting. 
-
-The fastachee struck with its vines! The awful fastachee failed to land its hit. The gutsy Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee struck with its vines! The terrible fastachee failed to land its hit. 
-
-Fluvand the grittyour hero sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
-
-The adventurer sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to fastachee's blind spot. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was staggered by the immense force. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! Fluvand the exaggeratedour hero jumps out of the way. Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! 
-
-The fastachee leans low, ready to strike with its might. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand the undauntedour hero sneaked around to fastachee's blind spot. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee took a glancing blow. 
-
-He pulls a air superiority blue potion from his pack and drinks it. He is reinvigorated. The fastachee struck with its vines! Fluvand the daringour hero blocks the strike with his sword. 
-
-Fluvand the valiantour hero pulls a yellow ryb potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! Although the adventurer's hit landed, fastachee is mostly unphased
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses the dauntless Fluvand. The valorous Fluvand leaned on his sword to catch a moment's respite. Fluvand the daringour hero was worn out by the combat. The fastachee struck with its vines! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! The smelly fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! He landed a massive hit on fastachee! The monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-He sneaked around to fastachee's blind spot. The fastachee struck with its vines! The dreadful fastachee failed to land its hit. 
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses the adventurer. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The fastachee struck with its vines! The frightful fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-He pulls a dark green potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses Fluvand the grandioseour hero. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee leans low, ready to strike with its might. 
-
-The fastachee struck with its vines! The revolting fastachee failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The fastachee leans low, ready to strike with its might. 
-
-The adventurer pulls a stil de grain yellow potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The fastachee struck with its vines! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
-
-The adventurer sneaked around to fastachee's blind spot. The fastachee leans low, ready to strike with its might. 
-
-The fastachee struck with its vines! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The fierce blow from the monster narrowly misses the stand tall Fluvand. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He jumps out of the way. 
-
-The fastachee struck with its vines! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The fastachee struck with its vines! The elevated Fluvand jumps out of the way. 
-
-The adventurer pulls a malachite potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the fastachee, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. The monster was stunned by the attack. Fluvand the fearlessour hero sneaked around to fastachee's blind spot. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! Although the adventurer's hit landed, fastachee is mostly unphasedThe monster was stunned by the attack. Fluvand lunged toward the fastachee, his sword ready to strike! The fastachee was struck by the blow! 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! The dreadful fastachee failed to land its hit. 
-
-The fastachee struck with its vines! He stunbles backward, gasping for breath. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The fastachee struck with its vines! The unafraid Fluvand winces from the pain but continues fighting. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-Fluvand lunged toward the fastachee, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He sneaked around to fastachee's blind spot. 
-
-The fastachee leans low, ready to strike with its might. The fastachee struck with its vines! He winces from the pain but continues fighting. 
-
-The fastachee struck with its vines! The terrifying fastachee failed to land its hit. Fluvand lunged toward the fastachee, his sword ready to strike! The slippery fastachee evaded Fluvand's hit. 
-
-The fire-eating Fluvand was victorious! The fastachee menaced for no longer! 
-
-## <a name="chapter25"></a> Chapter 25: Onde Stree and the Ice Troll
-
-Fluvand followed a dirt path into the village of Onde Stree. While the clockmaker talked excitedly with what appeared to be a palmer, a dwarf ran from person to person, asking if they had seen Bades. Nearby, a furrier hawked fine imported goods from Hare. Fluvand continued down the path. A fool loaded a market stall with wares.
-
-Eventually, Fluvand arrived at the town square, where he found a balancemaker. Fluvand approached him, hoping for some advice.
-
-"My name is Fluvand, and it is my quest to defeat the evil wizard Tibbon." Fluvand announced.
-
-A nakerer finished an apple and tossed the core aside. The man quietly reminised about the pastHe finally responded.
-
-"Our village of Parrow Tunnostoft will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the inn. Eventually you need to walk down the street to the barn and right. You'll see a stables. It's into the market and towards the barn. Eventually you need to walk past the inn. It's just to the left. You'll find Bizi, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Fluvand hurried towards the armory. The carver threw punches with a jailer. Two fishmongers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Bizi looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-Bizi lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The ice troll."
-
-"Ice trolls are somewhat smaller than normal trolls, but they possess greater intelligence and cunning and are just as voraciously hungry. They display the typical hunched posture of trolls, combined with long arms tipped with sharp claws and the distinctive troll underbite. Like normal trolls, ice trolls possess amazing regenerative powers that enable them to recover from almost any wound. Unlike most trolls, ice trolls often use weapons in battle, but in the heat of combat, they often cast aside weapons in favor of their rending claws. An ice troll stands about 10 feet tall and weighs up to 900 pounds." Bizi explained.
-
-Fluvand looked surprised. "Incredible! Is there anything else I should know?"
-
-"Because of their greater intellects, ice trolls sometimes work as mercenaries, and often serve as soldiers in monstrous armies. They frequently ally with frost giants, and may even be found among northern barbarian tribes, as long as they are well fed and well paid." Bizi explained.
-
-Fluvand slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice trolls enjoy the taste of human flesh, and those not working with humans frequently set traps near civilized areas to catch their favorite prey. They will also raid isolated settlements for food, often bringing captured humans back to their icy lairs, where the unfortunate victims are caged and fattened up before finally being devoured by the voracious trolls."
-
-"But my weapons may be too weak. Are there any other ways to defeat the ice troll?" Fluvand asked.
-
-Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "In combat, ice trolls are more cautious than normal trolls. They do not normally rush headlong into battle, instead focusing on weaker foes or those bearing fire. They do not hesitate to attack opponents armed with fire, but work together to defeat such enemies before they can bring their dangerous weapons to bear."
-
-"I could handle that. Tell me again, what makes the ice troll so bad?" Fluvand responded.
-
-Bizi returned to the book of monsters on the desk and pointed at the terrifying illustration. "Ice troll society is more patriarchal than normal troll society, and while males may form gangs to hunt or raid, most ice trolls live in small family groups comprised of a male, a female, and their offspring."
-
-"I could handle that. Tell me again, what makes the ice troll so bad?" Fluvand responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Fluvand.
-
-Fluvand saw a unholy ice troll in the distance! Fluvand readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-The adventurer was victorious! The ice troll menaced for no longer! 
-
-## <a name="chapter26"></a> Chapter 26: Fark and the Elephant
-
-Fluvand followed a dirt path into the village of Fark. Nearby, a waferer talked excitedly with what appeared to be a maid. The taverner scuttled out of his way with a lorimer. Fluvand continued down the path. Two basinbeaters ran from person to person, asking if they had seen Halef.
-
-Eventually, Fluvand arrived at the town square, where he found a fuller. The man, eying his strong forearms, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Tibbon has terrorized these lands for far too long. I Fluvand have come to destroy him!" Fluvand exclaimed.
-
-While the rat catcher threw punches, a pickpocket talked excitedly with what appeared to be a sexton. The man quietly reminised about the pastHe finally responded.
-
-"We have waited for your arrival for many years, Fluvand. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Balin is just a bit further down the street. Look for the large hanging sign that reads "Balin Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Fluvand hurried towards the armory. A mercer finished an apple and tossed the core aside. A parker gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Balin looked up from his work behind a counter at Fluvand.
-
-"I'm Fluvand, a brave adventurer seeking to destroy Tibbon. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the minotaur, or perhaps even the stringy demodand, but that's nothing compared to the elephant we've got."
-
-The armorer sighed and continued. "These large land animals, majestically wandering the plains in tightly knit family herds, are symbols of wisdom and strength. Having few natural predators, elephants are sometimes hunted for their ivory tusks. These tusks often become jewelry, statuettes, and trinkets for the wealthy. "
-
-"I could handle that. Tell me again, what makes the elephant so bad?" Fluvand responded.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Fluvand saw a scandalous elephant in the distance! The adventurer readied his sword. Fluvand hurried towards the enemy, ready to strike it down with all his might! 
-
-He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
-
-He pulls a light cyan potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! He winces from the pain but continues fighting. Fluvand stumbles to his knee, gasping for breath. The elephant struck with its gore! The gruesome elephant failed to land its hit. 
-
-He sneaked around to elephant's blind spot. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The elephant struck with its gore! The grim elephant failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! The disgusting elephant failed to land its hit. Fluvand leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant leans low, ready to strike with its might. 
-
-The impavid Fluvand pulls a indigo dye potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. The monster was stunned by the attack. Fluvand the dauntlessour hero pulls a magic mint potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! Fluvand winces from the pain but continues fighting. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The courageous Fluvand sneaked around to elephant's blind spot. The elephant struck with its gore! He stunbles backward, gasping for breath. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! He jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The elephant struck with its gore! The obnoxious elephant failed to land its hit. The exhilarating combat made the hours seem like seconds. The elephant struck with its gore! He winces from the pain but continues fighting. 
-
-The elephant struck with its gore! The adventurer blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant struck with its gore! The disgusting elephant failed to land its hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. He pulls a mustard potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand pulls a medium electric blue potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand pulls a light pastel purple potion from his pack and drinks it. He is reinvigorated. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand sneaked around to elephant's blind spot. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The nasty elephant failed to land its hit. 
-
-Fluvand pulls a barn red potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-He sneaked around to elephant's blind spot. The elephant struck with its gore! Fluvand the mythologicalour hero stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The attack from the adventurer surely left a impression. The elephant struck with its gore! He stunbles backward, gasping for breath. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The elephant leans low, ready to strike with its might. Fluvand lunged toward the elephant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The elephant struck with its gore! Fluvand reeled back in pain. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant struck with its gore! Fluvand reeled back in pain. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand reeled back in pain. Fluvand lunged toward the elephant, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He pulls a sandstorm potion from his pack and drinks it. He is reinvigorated. Fluvand lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. 
-
-The elephant struck with its gore! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The elephant struck with its gore! He blocks the strike with his sword. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. He sneaked around to elephant's blind spot. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! Fluvand reeled back in pain. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! He blocks the strike with his sword. 
-
-He sneaked around to elephant's blind spot. The elephant struck with its gore! He winces from the pain but continues fighting. 
-
-The elephant struck with its gore! Fluvand blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
-
-He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
-
-Fluvand the epicour hero pulls a hunter green potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer jumps out of the way. 
-
-Fluvand the boldour hero pulls a electric crimson potion from his pack and drinks it. He is reinvigorated. The elephant struck with its gore! The grand Fluvand winces from the pain but continues fighting. 
-
-Fluvand pulls a french lime potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! Fluvand the classicour hero stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The elephant leans low, ready to strike with its might. 
-
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer winces from the pain but continues fighting. 
-
-He sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! The fierce blow from the monster narrowly misses he. Fluvand lunged toward the elephant, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Fluvand the unafraidour hero sneaked around to elephant's blind spot. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand the inflatedour hero sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
-
-Fluvand the guttyour hero pulls a khaki html css khaki potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-The elephant struck with its gore! The mythological Fluvand blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Fluvand the lion-heartedour hero was worn out by the combat. The elephant struck with its gore! Fluvand reeled back in pain. 
-
-The elephant struck with its gore! The daring Fluvand jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-He sneaked around to elephant's blind spot. The elephant struck with its gore! The scandalous elephant failed to land its hit. 
-
-The elephant struck with its gore! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The elephant struck with its gore! He blocks the strike with his sword. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! The adventurer jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The gutty Fluvand pulls a magenta potion from his pack and drinks it. He is reinvigorated. The elephant struck with its gore! He stunbles backward, gasping for breath. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-He sneaked around to elephant's blind spot. The elephant struck with its gore! The execrable elephant failed to land its hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. The elephant struck with its gore! He jumps out of the way. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-Fluvand lunged toward the elephant, his sword ready to strike! Fluvand the dauntlessour hero landed a massive hit on elephant! The monster was stunned by the attack. Fluvand lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Fluvand's hit. 
-
-The bigger than life Fluvand pulls a carmine m p potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
-
-The courageous Fluvand sneaked around to elephant's blind spot. The elephant struck with its gore! Fluvand the bigger than lifeour hero jumps out of the way. 
-
-Fluvand says
-
-"That didn't seem so hard, I don't know what Balin was talking about."
+"That didn't seem so hard, I don't know what Bidebald was talking about."
 
 
