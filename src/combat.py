@@ -27,7 +27,7 @@ def combat_intro(name = None):
 
 def combat():
     if monster['hitpoints'] <= 0:
-        return '<monster_dead>'
+        return '<pc_attack><monster_dead>'
     return (
         random.choice([
             '<monster_attack><pc_attack>',
