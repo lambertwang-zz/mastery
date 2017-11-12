@@ -1,13 +1,26 @@
 import util
 
 def run():
-    protaganist_name = util.name()
-    wiz_name = util.name()
-    town_name = util.town()
+    args = {
+        'pc_name': util.name(),
+        'wiz_name': util.name(),
+        'town_name': util.town(),
+        'armor_name': util.name(),
+        'monster_name': util.monster_name()
+    }    
+    result = ''
 
-    print(util.expand(
-        util.town_intro(),
-        pc_name = protaganist_name,
-        wiz_name = wiz_name,
-        armor_name = util.name()
-    ))
+    result += util.expand(util.town_intro(), **args)
+    result += util.expand(util.armory_intro(), **args)
+
+    descriptions = util.monster_description(args['monster_name'])
+    for description in descriptions:
+        args['description'] = description
+        result += util.expand(util.armory_explanation(), **args)
+        result += util.expand(util.armory_more(), **args)
+
+    result += util.expand(util.armory_no_more(), **args)
+    
+    return len(result.split(' '))
+
+print(sum([run() for i in range(10000)]) / 10000)
