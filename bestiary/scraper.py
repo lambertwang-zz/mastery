@@ -169,7 +169,8 @@ def get_monster(index, all_stats, flavor = None):
             break
         # print(all_stats[index])
         try:
-            all_stats[index]['class']
+            if all_stats[index]['class'][0] == 'stat-block-title':
+                break
             try:
                 all_stats[index]['id']
                 break
@@ -302,34 +303,17 @@ if __name__ == "__main__":
     if soup == None:
         exit()
 
-    # table = driver.find_element(By.ID, 'monster-index-wrapper')
-    # data_table = soup.body.find('table', { 'id': 'DataTables_Table_0'} )
-
     monster_links = soup.findAll('a')
 
     for a in monster_links:
         monster_urls.append(a['href'])
 
     url_index = 0
-    # for link in monster_urls[:10]:
     for link in monster_urls:
         print('Url Index: ' + str(url_index))
         extract_monster_data(driver, link)
         url_index += 1
-        # columns = row.findAll('td')
-        # print(columns)
-        # data = {}
-        # data["rank"] =     columns[0].getText()
-        # data["name"] =     columns[1].getText()
-        # data["guild"] =    columns[2].getText()
-        # data["realm"] =    columns[3].getText()
-        # data["item_lvl"] = columns[4].getText()
-        # data["dps"] =      columns[5].getText()
-        # data["size"] =     columns[6].getText()
-        # data["date"] =     columns[7].getText()
-        # data["duration"] = columns[8].getText()
-        # death_knights.append(data)
-    # print(monster_data)
+
     print('Got ' + str(len(monster_urls)) + ' urls')
     print('Got ' + str(len(monster_data)) + ' monsters')
     with open('monsters.json', 'w') as outfile:
