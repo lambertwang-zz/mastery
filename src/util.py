@@ -190,7 +190,7 @@ def town_intro():
         ]) +
         random.choice([
             '"We have waited for your arrival for many years, <!pc_name>. Is there any way I can be of help?"\n\n',
-            '"Our village of <town> will gladly help you on your quest. What do you need?"\n\n'
+            '"Our village of <!town_name> will gladly help you on your quest. What do you need?"\n\n'
         ]) +
         '"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"\n\n' +
         random.choice([
