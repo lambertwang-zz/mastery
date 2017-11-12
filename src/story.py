@@ -28,6 +28,7 @@ def chapter(args):
     result += util.expand(combat.combat(), **args)
     return result
 
+chapter_number = 1
 def book():
     args = {
         'pc_name': util.name(),
@@ -37,7 +38,7 @@ def book():
     result = util.expand(util.book_title(), **args)
     word_count = len(result.split(' '))
 
-    chapter_number = 1
+    global chapter_number
     global TARGET_WORD_COUNT
     while word_count < TARGET_WORD_COUNT:
         args['chapter_number'] = str(chapter_number)
@@ -47,5 +48,14 @@ def book():
         chapter_number += 1
 
     return result
+
+def toc():
+    result = ''
+    for i in range(1, chapter_number + 1):
+        result += '[Chapter ' + str(i) + '](#chapter' + str(i) + ')\n\n'
+
+    return result
+
+print(toc())
 
 print(book())

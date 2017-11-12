@@ -1,3299 +1,3118 @@
-# Sumantes's Journey to Defeat the Evil Wizard Euryllus _(and his many battles along the way)_
-
-[This is the link text](#chapter5)
+[Chapter 1](#chapter1)
 
 
+# Malchambalde's Journey to Defeat the Evil Wizard Otes _(and his many battles along the way)_
 
-## <a name="chapter1"></a> Chapter 1: Ken and the Baboon
+## <a name="chapter1"></a> Chapter 1: Gon and the Wereboar (human Form)
 
-Sumantes followed a dirt path into the village of Ken. The merchant taylor slept in an alleyway with a lacemaker. Two papermakers finished an apple and tossed the core aside. Sumantes continued down the path. The bather talked excitedly with what appeared to be a executioner with a brushbinder.
+Malchambalde followed a dirt path into the village of Gon. The harper scuttled out of his way with a mariner. A builder finished an apple and tossed the core aside. Malchambalde continued down the path. The stewsman eyed him suspiciously with a lady.
 
-Eventually, Sumantes arrived at the town square, where he found a tillerman. Sumantes approached him, hoping for some advice.
+Eventually, Malchambalde arrived at the town square, where he found a restaurateur. Malchambalde approached him, hoping for some advice.
 
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
 
-While the fence talked excitedly with what appeared to be a besom maker, a bather gazed at him from an open window. The man eyed him thoughtfully, but eventually responded.
+A silkmaid finished an apple and tossed the core aside. The man sat in silence for a while, then finally responded.
 
-"Our village of Bedospood will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Imbal is into the market and towards the warehouse. Eventually you need to walk past the warehouse. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. The gardner eyed him suspiciously with a poet. Nearby, a maidservant rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Imbal looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Imbal lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The baboon."
-
-The armorer sighed and continued. "Baboons are known for their aggressive nature and distinctive build, including a canine-like maw filled with sharp teeth, strong jaw muscles, a short tail, and prominent calluses on their brightly colored and protruding buttocks. Though they are primarily vegetarians, baboons are known to eat fish, insects, shellfish, and other small creatures. Ferociously territorial, baboons are quick to rise and defend their homes from any sort of intruders."
-
-Sumantes slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-The armorer sighed and continued. "A baboon is 3 feet tall and weighs 70 pounds."
-
-"I could handle that. Tell me again, what makes the baboon so bad?" Sumantes responded.
-
-"That's all I can tell you."
-
-Sumantes saw a terrifying baboon in the distance! Sumantes the grandioseour hero readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. The monster was stunned by the attack. He pulls a dark lavender potion from his pack and drinks it. He is reinvigorated. 
-
-The baboon leans low, ready to strike with its might. Sumantes lunged toward the baboon, his sword ready to strike! The baboon took a glancing blow. 
-
-The baboon struck with its bite! The adventurer jumps out of the way. Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. 
-
-The baboon struck with its bite! The noble Sumantes winces from the pain but continues fighting. Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. 
-
-The baboon struck with its bite! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. The doughty Sumantes was worn out by the combat. The baboon struck with its bite! The fierce blow from the monster narrowly misses the classic Sumantes. 
-
-Sumantes lunged toward the baboon, his sword ready to strike! The baboon took a glancing blow. The baboon struck with its bite! The impavid Sumantes blocks the strike with his sword. Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. 
-
-Sumantes pulls a deep tuscan red potion from his pack and drinks it. He is reinvigorated. The baboon leans low, ready to strike with its might. 
-
-The baboon struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The baboon struck with its bite! Sumantes jumps out of the way. 
-
-Sumantes lunged toward the baboon, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. 
-
-Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. The monster was stunned by the attack. He pulls a bistre potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the baboon, his sword ready to strike! The slippery baboon evaded Sumantes's hit. 
-
-He was victorious! The baboon menaced for no longer! 
-
-## <a name="chapter2"></a> Chapter 2: Scus and the Sea Drake
-
-Sumantes followed a dirt path into the village of Scus. Two spicers talked excitedly with what appeared to be a tinker. A sexton rushed by quickly, ignoring him. Sumantes continued down the path. Nearby, a prince rushed by quickly, ignoring him.
-
-Eventually, Sumantes arrived at the town square, where he found a waterseller. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-A sapper threw punches. He still looked suspicious, but eventually responded.
-
-"Our village of Shrioney Lane will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Aman is the best in town. His shop is into the market and towards the stables. Eventually you need to walk into the market and towards the barn. Eventually you need to walk just a bit further down the street. It's just to the left. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Gomerien is the best in town. His shop is past the barn. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Sumantes hurried towards the armory. A fool for money rushed by quickly, ignoring him. Two princes finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. The ferryman slept in an alleyway with a drywaller. While the oil merchant ran from person to person, asking if they had seen Nigs, a hermit scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Aman lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sea drake."
+"Brave you say? You may have fought the thought eater, or perhaps even the medium air elemental, but that's nothing compared to the wereboar (human form) we've got."
 
-Aman returned to the book of monsters on the desk and pointed at the terrifying illustration. "While obviously the product of draconic inbreeding, the heritage of sea drakes is less clear than that of other drakes. Among the strongest of the drakes, sea drakes still lack the mental acuity of their true dragon forebears, though they remain as brutally cunning as other drakes. Although amphibious, sea drakes spend the majority of their time in shallow coastal waters."
+Gomerien returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster wereboar (human form) is terrifying for sure, but I honestly don't know much about that beast."
 
-Sumantes slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Aman returned to the book of monsters on the desk and pointed at the terrifying illustration. "Sea drakes are up to 14 feet long from their noses to the tips of their powerful tails. They weigh 2,000 pounds."
-
-"But my weapons may be too weak. Are there any other ways to defeat the sea drake?" Sumantes asked.
-
-Aman returned to the book of monsters on the desk and pointed at the terrifying illustration. "The most solitary of all drakes, sea drakes prefer to hunt alone. Occasionally, however, they band together in packs to hunt larger prey. Such rampages can be a significant danger to coastal shipping."
-
-Sumantes slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Sumantes saw a terrifying sea drake in the distance! Our hero fixed his gaze on the eerie sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The sea drake struck with its bite! He jumps out of the way. Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. 
-
-Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. The sea drake struck with its bite! The revolting sea drake failed to land its hit. Sumantes lunged toward the sea drake, his sword ready to strike! The sea drake was struck by the blow! 
-
-Sumantes lunged toward the sea drake, his sword ready to strike! The sea drake was struck by the blow! The sea drake struck with its bite! Sumantes reeled back in pain. Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. 
-
-The sea drake struck with its bite! Sumantes reeled back in pain. he stumbles to his knee, gasping for breath. The sea drake struck with its bite! The evil sea drake failed to land its hit. 
-
-The gutsy Sumantes pulls a catalina blue potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! He winces from the pain but continues fighting. 
-
-The sea drake leans low, ready to strike with its might. The sea drake struck with its bite! He jumps out of the way. 
-
-The sea drake struck with its bite! The abhorrent sea drake failed to land its hit. Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. 
-
-The adventurer sneaked around to sea drake's blind spot. The sea drake struck with its bite! The mean sea drake failed to land its hit. 
-
-The fearless Sumantes pulls a celeste colour potion from his pack and drinks it. He is reinvigorated. The sea drake leans low, ready to strike with its might. 
-
-He pulls a old lavender potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. 
-
-The sea drake struck with its bite! He blocks the strike with his sword. Sumantes lunged toward the sea drake, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The unafraid Sumantes sneaked around to sea drake's blind spot. Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. 
-
-Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the sea drake, his sword ready to strike! Although he's hit landed, sea drake is mostly unphased
-
-Sumantes lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the sea drake, his sword ready to strike! The sea drake was struck by the blow! 
-
-Sumantes lunged toward the sea drake, his sword ready to strike! The attack from Sumantes surely left a impression. The monster was stunned by the attack. Sumantes lunged toward the sea drake, his sword ready to strike! The shattering blow from Sumantes the valiantour hero rumbled through the ground. 
-
-The sea drake leans low, ready to strike with its might. The sea drake struck with its bite! The mythological Sumantes blocks the strike with his sword. 
-
-The sea drake struck with its bite! The adventurer winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The sea drake struck with its bite! Sumantes reeled back in pain. 
-
-The adventurer was victorious! The sea drake menaced for no longer! 
-
-## <a name="chapter3"></a> Chapter 3: Osgatfortinchley and the Pale Stranger
-
-Sumantes followed a dirt path into the village of Osgatfortinchley. A parchmenter talked excitedly with what appeared to be a musician. Two chandlers finished an apple and tossed the core aside. Sumantes continued down the path. Nearby, a copyist sat by the side of the road.
-
-Eventually, Sumantes arrived at the town square, where he found a mathematician. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-While the poacher slowly carried supplies, a buttonmaker bit into an apple. The man quietly reminised about the past, but eventually responded.
-
-"Our village of Eal will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Percianus is the best in town. His shop is past the stables. Look for the large hanging sign that reads "Percianus Fine Supplies". And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. Two nedellers eyed him suspiciously. The hurdle maker gazed at him from an open window with a bishop. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Percianus looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Percianus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The pale stranger."
-
-"Sometimes death itself cannot come between a gunslinger and its final revenge. When a gunslinger is slain by a hated enemy, or murdered before it can achieve vengeance against a hated foe, the anger and wrath can animate its remains as a vengeful undead monstrosity. When a pale stranger first rises, it seeks out the source of its anger to finish the job—thereafter, it wanders the desolate parts of the world looking for new victims to vent its unending rage upon." Percianus explained.
-
-"I could handle that. Tell me again, what makes the pale stranger so bad?" Sumantes responded.
-
-The armorer sighed and continued. "A pale stranger appears much as it did in life, though desiccated and obviously undead. Rare pale strangers have the ability to hide their undead nature and appear as they did in life using veil as a constant spell-like ability (CL equals their CR). These pale strangers are often more powerful and have class levels in gunslinger or ranger, and often attract large groups of adoring bandits and followers who may or may not realize that their murderous idol is in fact an unliving horror."
-
-Sumantes slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Percianus returned to the book of monsters on the desk and pointed at the terrifying illustration. "A pale stranger stands 6-1/2 feet tall and weighs 130 pounds."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"That's all I can tell you."
-
-Sumantes saw a ungodly pale stranger in the distance! The fire-eating Sumantes readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The pale stranger leans low, ready to strike with its might. pale stranger fired a shot with its pistols! The fierce blow from the monster narrowly misses he. 
-
-He pulls a bittersweet potion from his pack and drinks it. He is reinvigorated. pale stranger fired a shot with its pistols! The ungodly pale stranger failed to land its hit. 
-
-The pale stranger leans low, ready to strike with its might. pale stranger fired a shot with its pistols! The fierce blow from the monster narrowly misses Sumantes. 
-
-The pale stranger leans low, ready to strike with its might. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-He pulls a electric cyan potion from his pack and drinks it. He is reinvigorated. The pale stranger leans low, ready to strike with its might. 
-
-He pulls a chartreuse web potion from his pack and drinks it. He is reinvigorated. The pale stranger leans low, ready to strike with its might. 
-
-pale stranger fired a shot with its pistols! Sumantes reeled back in pain. the adventurer stumbles to his knee, gasping for breath. pale stranger fired a shot with its pistols! The fierce blow from the monster narrowly misses he. 
-
-pale stranger fired a shot with its pistols! The cruel pale stranger failed to land its hit. The stand tall Sumantes leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The pale stranger leans low, ready to strike with its might. 
-
-The pale stranger leans low, ready to strike with its might. pale stranger fired a shot with its pistols! The shameful pale stranger failed to land its hit. 
-
-Sumantes sneaked around to pale stranger's blind spot. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes sneaked around to pale stranger's blind spot. Sumantes lunged toward the pale stranger, his sword ready to strike! That blow seemed like it could break some bones. 
-
-pale stranger fired a shot with its pistols! The undaunted Sumantes winces from the pain but continues fighting. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The attack from Sumantes surely left a impression. pale stranger fired a shot with its pistols! Sumantes blocks the strike with his sword. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes pulls a fuchsia crayola potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The pale stranger took a glancing blow. 
-
-The pale stranger leans low, ready to strike with its might. pale stranger fired a shot with its pistols! The fierce blow from the monster narrowly misses the valorous Sumantes. 
-
-Sumantes pulls a camouflage green potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-He pulls a dark salmon potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the pale stranger, his sword ready to strike! Although Sumantes's hit landed, pale stranger is mostly unphased
-
-He sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! The terrible pale stranger failed to land its hit. 
-
-pale stranger fired a shot with its pistols! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. pale stranger fired a shot with its pistols! He stunbles backward, gasping for breath. 
-
-Sumantes the elevatedour hero pulls a medium turquoise potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes the boldour hero sneaked around to pale stranger's blind spot. Sumantes lunged toward the pale stranger, his sword ready to strike! The attack from he surely left a impression. 
-
-The fire-eating Sumantes sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! He blocks the strike with his sword. 
-
-The pale stranger leans low, ready to strike with its might. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-The adventurer sneaked around to pale stranger's blind spot. Sumantes lunged toward the pale stranger, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! He winces from the pain but continues fighting. 
-
-He pulls a desert potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The pale stranger took a glancing blow. 
-
-The pale stranger leans low, ready to strike with its might. Sumantes lunged toward the pale stranger, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
-
-pale stranger fired a shot with its pistols! He stunbles backward, gasping for breath. Sumantes leaned on his sword to catch a moment's respite. Sumantes the gutsyour hero was worn out by the combat. pale stranger fired a shot with its pistols! Sumantes reeled back in pain. 
-
-He sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! Sumantes reeled back in pain. 
-
-The adventurer sneaked around to pale stranger's blind spot. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes the dauntlessour hero sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! The frightful pale stranger failed to land its hit. 
-
-pale stranger fired a shot with its pistols! Sumantes reeled back in pain. he stumbles to his knee, gasping for breath. The pale stranger leans low, ready to strike with its might. 
-
-The pale stranger leans low, ready to strike with its might. Sumantes lunged toward the pale stranger, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He pulls a tenn tawny potion from his pack and drinks it. He is reinvigorated. The pale stranger leans low, ready to strike with its might. 
-
-Sumantes pulls a dark red potion from his pack and drinks it. He is reinvigorated. The pale stranger leans low, ready to strike with its might. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. He pulls a majorelle blue potion from his pack and drinks it. He is reinvigorated. 
-
-The adventurer pulls a bright lavender potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-pale stranger fired a shot with its pistols! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. pale stranger fired a shot with its pistols! The fearful pale stranger failed to land its hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. pale stranger fired a shot with its pistols! Sumantes jumps out of the way. Sumantes lunged toward the pale stranger, his sword ready to strike! The attack from the undaunted Sumantes surely left a impression. 
-
-He sneaked around to pale stranger's blind spot. pale stranger fired a shot with its pistols! The nasty pale stranger failed to land its hit. 
-
-He pulls a tuscan red potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the pale stranger, his sword ready to strike! The pale stranger was staggered by the immense force. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. pale stranger fired a shot with its pistols! The adventurer blocks the strike with his sword. Sumantes lunged toward the pale stranger, his sword ready to strike! The pale stranger took a glancing blow. 
-
-pale stranger fired a shot with its pistols! The abominable pale stranger failed to land its hit. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. pale stranger fired a shot with its pistols! He stunbles backward, gasping for breath. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. Sumantes sneaked around to pale stranger's blind spot. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. He sneaked around to pale stranger's blind spot. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. pale stranger fired a shot with its pistols! Sumantes the courageousour hero stunbles backward, gasping for breath. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to pale stranger's blind spot. 
-
-The pale stranger leans low, ready to strike with its might. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes lunged toward the pale stranger, his sword ready to strike! The attack from he surely left a impression. pale stranger fired a shot with its pistols! Sumantes reeled back in pain. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-pale stranger fired a shot with its pistols! Sumantes jumps out of the way. Sumantes lunged toward the pale stranger, his sword ready to strike! Although the adventurer's hit landed, pale stranger is mostly unphased
-
-pale stranger fired a shot with its pistols! Sumantes reeled back in pain. Sumantes lunged toward the pale stranger, his sword ready to strike! The slippery pale stranger evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Percianus was talking about."
-
-## <a name="chapter4"></a> Chapter 4: Pings and the Einherji
-
-Sumantes followed a dirt path into the village of Pings. The beer seller gazed at him from an open window with a hunter. While the harness maker gazed at him from an open window, a pioneer hawked fine imported goods from Sounte. Sumantes continued down the path. While the privycleaner slowly carried supplies, a silversmith slept in an alleyway.
-
-Eventually, Sumantes arrived at the town square, where he found a glass seller. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-Two laundresss rushed by quickly, ignoring him. He still looked suspiciousHe finally responded.
-
-"Our village of Easton will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Denisius is the best in town. His shop is into the market and towards the tavern. Eventually you need to walk past the stables. Look for the large hanging sign that reads "Denisius Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. Nearby, a jailer ran from person to person, asking if they had seen Iban. A privycleaner slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Denisius looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Denisius lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The einherji."
-
-Denisius returned to the book of monsters on the desk and pointed at the terrifying illustration. "Some warriors who die glorious deaths in battle find that there is a call for their skill and prowess even after death. Chosen by valkyries from among the slain on the battlefield, they become einherjar, outsiders who fight for the gods and other powerful extraplanar beings in battles across the multiverse."
-
-Sumantes slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-The armorer sighed and continued. "Like valkyries, einherjar can serve a variety of deities, not just gods of war, conflict, and valor, but also those of love, beauty, life, and others not thought of as combative. Einherjar pride themselves on prowess in battle, and forever seek to prove themselves by challenging worthy foes."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Einherjar can be either male or female, and normally appear as muscled, battle-hardened humans, dwarves, or elves. A typical einherji stands 7 feet tall and weighs around 300 pounds."
-
-"But my weapons may be too weak. Are there any other ways to defeat the einherji?" Sumantes asked.
+"I could handle that. Tell me again, what makes the wereboar (human form) so bad?" Malchambalde responded.
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Sumantes saw a smelly einherji in the distance! Our hero fixed his gaze on the horrendous sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a unkind wereboar (human form) in the distance! Malchambalde readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The einherji struck with its battleaxe! He blocks the strike with his sword. Sumantes the epicour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The einherji leans low, ready to strike with its might. 
+The wereboar (human form) struck with its dagger! The shameful wereboar (human form) failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The wereboar (human form) struck with its dagger! Malchambalde the gallantour hero winces from the pain but continues fighting. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! A sharp crack was heard as the strike left its mark. The einherji struck with its battleaxe! The adventurer blocks the strike with his sword. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-Sumantes the inflatedour hero sneaked around to einherji's blind spot. The einherji leans low, ready to strike with its might. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The einherji struck with its battleaxe! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The einherji leans low, ready to strike with its might. 
+He sneaked around to wereboar (human form)'s blind spot. The wereboar (human form) leans low, ready to strike with its might. 
 
-The einherji struck with its battleaxe! The adventurer jumps out of the way. the doughty Sumantes stumbles to his knee, gasping for breath. The einherji leans low, ready to strike with its might. 
+The wereboar (human form) struck with its dagger! Malchambalde stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The wereboar (human form) leans low, ready to strike with its might. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! The einherji was staggered by the immense force. The monster was stunned by the attack. Sumantes the lion-heartedour hero sneaked around to einherji's blind spot. 
+The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-Sumantes sneaked around to einherji's blind spot. The einherji struck with its battleaxe! The loathsome einherji failed to land its hit. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a catalina blue potion from his pack and drinks it. He is reinvigorated. 
 
-Sumantes pulls a big dip o ruby potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the einherji, his sword ready to strike! That blow seemed like it could break some bones. 
+The wereboar (human form) struck with its dagger! The beastly wereboar (human form) failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde the nobleour hero was worn out by the combat. The wereboar (human form) leans low, ready to strike with its might. 
 
-Sumantes the stoutheartedour hero sneaked around to einherji's blind spot. The einherji struck with its battleaxe! Sumantes reeled back in pain. 
+The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Sumantes sneaked around to einherji's blind spot. 
+The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Sumantes the lion-heartedour hero sneaked around to einherji's blind spot. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! Although he's hit landed, wereboar (human form) is mostly unphasedThe wereboar (human form) struck with its dagger! Malchambalde the doughtyour hero blocks the strike with his sword. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-Sumantes the classicour hero sneaked around to einherji's blind spot. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+The wereboar (human form) struck with its dagger! The hideous wereboar (human form) failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The wereboar (human form) leans low, ready to strike with its might. 
 
-The einherji leans low, ready to strike with its might. The einherji struck with its battleaxe! Sumantes reeled back in pain. 
+He pulls a bubble gum potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) struck with its dagger! He winces from the pain but continues fighting. 
 
-He sneaked around to einherji's blind spot. The einherji struck with its battleaxe! The fierce blow from the monster narrowly misses the stand tall Sumantes. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde sneaked around to wereboar (human form)'s blind spot. 
 
-The einherji leans low, ready to strike with its might. Sumantes lunged toward the einherji, his sword ready to strike! The shattering blow from Sumantes the daringour hero rumbled through the ground. 
+The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The impavid Malchambalde was worn out by the combat. The wereboar (human form) leans low, ready to strike with its might. 
 
-The daring Sumantes pulls a utah crimson potion from his pack and drinks it. He is reinvigorated. The einherji struck with its battleaxe! He stunbles backward, gasping for breath. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to wereboar (human form)'s blind spot. 
 
-He pulls a lime color wheel potion from his pack and drinks it. He is reinvigorated. The einherji leans low, ready to strike with its might. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-The einherji leans low, ready to strike with its might. The einherji struck with its battleaxe! Sumantes the undauntedour hero blocks the strike with his sword. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. The monster was stunned by the attack. He sneaked around to wereboar (human form)'s blind spot. 
 
-The adventurer sneaked around to einherji's blind spot. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses the inflated Malchambalde. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-The grand Sumantes sneaked around to einherji's blind spot. Sumantes lunged toward the einherji, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! The attack from Sumantes the doughtyour hero surely left a impression. The monster was stunned by the attack. Sumantes lunged toward the einherji, his sword ready to strike! The einherji was struck by the blow! 
+The wereboar (human form) leans low, ready to strike with its might. The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. 
 
-The einherji leans low, ready to strike with its might. The einherji struck with its battleaxe! The fierce blow from the monster narrowly misses the valiant Sumantes. 
+Malchambalde the mythologicalour hero pulls a bole potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) leans low, ready to strike with its might. 
 
-He sneaked around to einherji's blind spot. Sumantes lunged toward the einherji, his sword ready to strike! He landed a massive hit on einherji! 
+The wereboar (human form) struck with its dagger! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The wereboar (human form) leans low, ready to strike with its might. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
 
-Sumantes lunged toward the einherji, his sword ready to strike! The adventurer landed a massive hit on einherji! The monster was stunned by the attack. Sumantes lunged toward the einherji, his sword ready to strike! The slippery einherji evaded Sumantes's hit. 
+The wereboar (human form) struck with its dagger! Malchambalde jumps out of the way. The exhilarating combat made the hours seem like seconds. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses Malchambalde the stand tallour hero. 
 
-Sumantes says
+He pulls a fallow potion from his pack and drinks it. He is reinvigorated. The wereboar (human form) leans low, ready to strike with its might. 
 
-"That didn't seem so hard, I don't know what Denisius was talking about."
+The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. the adventurer stumbles to his knee, gasping for breath. The wereboar (human form) struck with its dagger! He stunbles backward, gasping for breath. 
 
-## <a name="chapter5"></a> Chapter 5: Houth and the Etiainen
+The wereboar (human form) leans low, ready to strike with its might. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The wereboar (human form) took a glancing blow. 
 
-Sumantes followed a dirt path into the village of Houth. While the cabinetmaker rushed by quickly, ignoring him, a diplomat eyed him suspiciously. Two beggers talked excitedly with what appeared to be a engraver. Sumantes continued down the path. While the barrister scuttled out of his way, a sea captain bit into an apple.
+The wereboar (human form) leans low, ready to strike with its might. The wereboar (human form) struck with its dagger! The disgusting wereboar (human form) failed to land its hit. 
 
-Eventually, Sumantes arrived at the town square, where he found a hatter. The man, eying his determined look, beckoned him forward.
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! A sharp crack was heard as the strike left its mark. The wereboar (human form) struck with its dagger! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The attack from he surely left a impression. 
+
+The wereboar (human form) struck with its dagger! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The wereboar (human form) leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wereboar (human form), his sword ready to strike! The slippery wereboar (human form) evaded Malchambalde's hit. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Gomerien was talking about."
+
+## <a name="chapter2"></a> Chapter 2: Wimble Eas and the Black Pudding
+
+Malchambalde followed a dirt path into the village of Wimble Eas. A fishmonger loaded a market stall with wares. While the franklin ran from person to person, asking if they had seen Fast, a cobbler threw punches. Malchambalde continued down the path. While the broderer threw punches, a bowyer loaded a market stall with wares.
+
+Eventually, Malchambalde arrived at the town square, where he found a armorer. The man, eying his foreboding cloak, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
+"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-Nearby, a lighter man ran from person to person, asking if they had seen Raaf. He still looked suspicious, but eventually responded.
+Nearby, a siege engineer bit into an apple. The man quietly reminised about the past, then finally responded.
 
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the stables. Eventually you need to walk into the market and towards the monastery. Eventually you need to walk just a bit further down the street. There's a small door. You'll find Gimm, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. A philosopher talked excitedly with what appeared to be a nedeller. Two barkers slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the sea hag, or perhaps even the werebear (human form), but that's nothing compared to the etiainen we've got."
-
-The armorer sighed and continued. "Etiainens are psychic amalgams of the past and the future, given form in a wispy, indistinct shape. It is believed these spirits are projections of strong psychic emanations from the past—usually the echoes of important people or the psychic residue of heroic deeds—and that they can manifest only in the presence of the psychic impressions and energies that attend the living. Once manifested, etiainens often act in confusing or even whimsical ways, opening and closing doors, attacking and stealing memories of those nearby, and creating a general sense of psychic discontent. They continue either until compelled to stop or until they use enough of their psychic magic to wink out of existence for a short period of time, returning only when the psychic impressions and energy of the local area allow them to manifest once again to repeat the cycle."
-
-Sumantes slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-The armorer sighed and continued. "An etiainen sometimes forges an involuntary connection with a creature that allows the spirit to perform actions in advance of the linked creature, leading to bizarre cases of deja vu for those nearby. For instance, a husband might hear the front door open and the sound of his wife's familiar footsteps walking toward him, only to discover that his wife has not yet returned home—But bafflingly, when she does come home, she carries out the same series of actions."
-
-Sumantes slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Gimm returned to the book of monsters on the desk and pointed at the terrifying illustration. "Those who manage to successfully communicate with etiainens can sometimes compel the spirits to perform small tasks, though holding their attention requires great patience. For one who manages this difficult task, these spirits can sometimes act as intermediaries and messengers, or even spies. When acting in this fashion, an etiainen often appears as a strange, silent double of the creature it is serving. Etiainens can understand speech but cannot speak, and they rely on mindlink to communicate. Because of the chaotic nature of these spirits, such fellowships are short lived, as the etiainen might at any time flit away on some strange flight of fancy."
-
-Sumantes slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a scary etiainen in the distance! The adventurer readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The etiainen leans low, ready to strike with its might. Sumantes lunged toward the etiainen, his sword ready to strike! The slippery etiainen evaded Sumantes's hit. 
-
-The etiainen leans low, ready to strike with its might. Sumantes lunged toward the etiainen, his sword ready to strike! The etiainen was struck by the blow! 
-
-Sumantes lunged toward the etiainen, his sword ready to strike! The slippery etiainen evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the fearlessour hero pulls a kelly green potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the etiainen, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the etiainen, his sword ready to strike! The slippery etiainen evaded Sumantes's hit. 
-
-Sumantes lunged toward the etiainen, his sword ready to strike! The slippery etiainen evaded Sumantes's hit. The etiainen struck with its incorporeal touch! The undaunted Sumantes winces from the pain but continues fighting. Sumantes lunged toward the etiainen, his sword ready to strike! The etiainen took a glancing blow. 
-
-He pulls a blue potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the etiainen, his sword ready to strike! Although the adventurer's hit landed, etiainen is mostly unphased
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Gimm was talking about."
-
-## <a name="chapter6"></a> Chapter 6: Duncasterpooll Hildurban and the Dullahan
-
-Sumantes followed a dirt path into the village of Duncasterpooll Hildurban. Two mailmakers ran from person to person, asking if they had seen Alaskuin. Nearby, a mapmaker stood by a market stall, negotiating with the spicer. Sumantes continued down the path. Nearby, a lapidary hawked fine imported goods from Crow.
-
-Eventually, Sumantes arrived at the town square, where he found a minnesinger. Sumantes approached him, hoping for some advice.
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-A balancemaker bit into an apple. The man eyed him thoughtfully, then finally responded.
-
-"Our village of Maine will gladly help you on your quest. What do you need?"
+"Our village of Wokefor will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Esder is just a bit further down the street. Look for the large hanging sign that reads "Esder Fine Supplies". Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Euryllus gone as much as anybody."
+"Saxos is just a bit further down the street. Look for the large hanging sign that reads "Saxos Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Sumantes hurried towards the armory. The pope talked excitedly with what appeared to be a chantry priest with a palmer. Two lanternmakers rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. Nearby, a chantry priest gazed at him from an open window. Nearby, a ditcher talked excitedly with what appeared to be a confectioner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
+Saxos looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the giant termite, or perhaps even the raktavarna, but that's nothing compared to the dullahan we've got."
+Saxos grabbed a dusty book from the shelf and flipped through it. Pictures of chimeras and half-celestial unicorns flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "Terrifying reapers of souls, dullahans are created by powerful fiends from the souls of particularly cruel generals, watch-captains, or other military commanders. Sent back from the pits of Hell to sow terror and harvest new souls, dullahans return to the towns or villages they lived in as mortals. While their favored victims are evil men and women (or their living descendants) whose souls are destined for Hell, the dullahans have no qualms about adding innocents to their lists of victims."
+Saxos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Black puddings are the scavengers of the underworld, constantly on the lookout for a meal. They can sense organic or metallic objects within 60 feet and mindlessly attack such items or beings until they are dissolved or the ooze is killed. A black pudding reproduces by breaking off a piece of its body and forming a new, smaller black pudding, which grows to full size in 1 month's time. Some of the more intelligent creatures in the underworld use black puddings as natural garbage disposals, creating stone pits to house the pudding and throwing organic refuse or foes in as needed."
 
-"But my weapons may be too weak. Are there any other ways to defeat the dullahan?" Sumantes asked.
+"I could handle that. Tell me again, what makes the black pudding so bad?" Malchambalde responded.
 
-"Legends tell of powerful dullahans who can summon not just a single fiendish mount, but an entire carriage pulled by six powerful ebony horses. Known as a "Coach of the Silent," these powerful undead are CR 14 with 20 Hit Dice, the advanced creature simple template, and the ability to cast trap the soul on those who fail to resist their death's calling. These souls take seats in the coach, where they languish forever—or at least until the dullahan himself is slain. " Esder explained.
+The armorer sighed and continued. "Larger specimens of black puddings have been encountered in the deepest parts of the world, with Gargantuan individuals having up to 30 HD. Other colored puddings are rumored to exist, with white ones living in the arctic, brown ones living in swamps, and tan ones living in deserts."
 
-"I could handle that. Tell me again, what makes the dullahan so bad?" Sumantes responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a horrendous dullahan in the distance! Our hero fixed his gaze on the awful sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The dullahan struck with its keen longsword! The gruesome dullahan failed to land its hit. Sumantes lunged toward the dullahan, his sword ready to strike! The dullahan was struck by the blow! 
-
-He sneaked around to dullahan's blind spot. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-The dullahan struck with its keen longsword! Sumantes the classicour hero jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses he. 
-
-The dullahan leans low, ready to strike with its might. The dullahan struck with its keen longsword! He jumps out of the way. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The dullahan took a glancing blow. The monster was stunned by the attack. Sumantes sneaked around to dullahan's blind spot. 
-
-The gutty Sumantes pulls a straw potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-The dullahan leans low, ready to strike with its might. The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses he. 
-
-The adventurer sneaked around to dullahan's blind spot. The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses the adventurer. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-The dullahan struck with its keen longsword! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dullahan leans low, ready to strike with its might. 
-
-The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses he. Sumantes the grittyour hero stumbles to his knee, gasping for breath. The dullahan struck with its keen longsword! Sumantes reeled back in pain. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The shattering blow from he rumbled through the ground. The dullahan struck with its keen longsword! He jumps out of the way. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses the adventurer. Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Sumantes lunged toward the dullahan, his sword ready to strike! The attack from the doughty Sumantes surely left a impression. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the mythologicalour hero sneaked around to dullahan's blind spot. 
-
-Sumantes the high-flownour hero pulls a french rose potion from his pack and drinks it. He is reinvigorated. The dullahan struck with its keen longsword! The fierce blow from the monster narrowly misses he. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The dullahan took a glancing blow. The dullahan struck with its keen longsword! He blocks the strike with his sword. Sumantes lunged toward the dullahan, his sword ready to strike! Although the adventurer's hit landed, dullahan is mostly unphased
-
-The dullahan struck with its keen longsword! He winces from the pain but continues fighting. Sumantes lunged toward the dullahan, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Sumantes lunged toward the dullahan, his sword ready to strike! The slippery dullahan evaded Sumantes's hit. The monster was stunned by the attack. The adventurer sneaked around to dullahan's blind spot. 
-
-The dullahan struck with its keen longsword! The high-flown Sumantes jumps out of the way. The exhilarating combat made the hours seem like seconds. The dullahan leans low, ready to strike with its might. 
-
-Sumantes the epicour hero was victorious! The dullahan menaced for no longer! 
-
-## <a name="chapter7"></a> Chapter 7: Houth Rush and the Giant Locust
-
-Sumantes followed a dirt path into the village of Houth Rush. The wattler stood by a market stall, negotiating with the lutemaker with a beerbrewer. While the sea captain threw punches, a lighter man gazed at him from an open window. Sumantes continued down the path. Nearby, a sailmaker eyed him suspiciously.
-
-Eventually, Sumantes arrived at the town square, where he found a typefounder. Sumantes approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The spearman slowly carried supplies with a farmer. The man quietly reminised about the past, then finally responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the cattle barn. Eventually you need to walk down the street to the inn and right. You'll see a cattle barn. It's into the market and towards the cattle barn. Eventually you need to walk past the church. Look for the large hanging sign that reads "Orion Fine Supplies". You'll find Orion, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. A swineherd gazed at him from an open window. Two harness makers gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Orion lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant locust."
-
-"Giant locusts have a hunger akin to their smaller cousins, but only rarely do they gather in the endless numbers of their tiny kin." Orion explained.
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-Orion returned to the book of monsters on the desk and pointed at the terrifying illustration. "A mature giant locust measures just over 4 feet long and weighs 50 pounds."
-
-"I could handle that. Tell me again, what makes the giant locust so bad?" Sumantes responded.
+Malchambalde slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "That's all I can tell you."
 
-Sumantes saw a loathsome giant locust in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a gruesome black pudding in the distance! Malchambalde readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-He pulls a green color wheel x11 green potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. 
+Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! The monster was stunned by the attack. The inflated Malchambalde pulls a venetian red potion from his pack and drinks it. He is reinvigorated. 
 
-The giant locust struck with its bite! Sumantes blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The giant locust leans low, ready to strike with its might. 
+He sneaked around to black pudding's blind spot. Malchambalde lunged toward the black pudding, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. The giant locust struck with its bite! The fierce blow from the monster narrowly misses the fearless Sumantes. Sumantes lunged toward the giant locust, his sword ready to strike! That blow seemed like it could break some bones. 
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
 
-Sumantes lunged toward the giant locust, his sword ready to strike! That blow seemed like it could break some bones. The giant locust struck with its bite! The scandalous giant locust failed to land its hit. Sumantes lunged toward the giant locust, his sword ready to strike! The giant locust took a glancing blow. 
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
 
-Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. The giant locust struck with its bite! He jumps out of the way. Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. 
+Malchambalde the exaggeratedour hero pulls a raspberry pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
 
-The giant locust struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The giant locust leans low, ready to strike with its might. 
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the nobleour hero pulls a isabelline potion from his pack and drinks it. He is reinvigorated. 
 
-The giant locust leans low, ready to strike with its might. Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. 
+He pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
 
-Sumantes lunged toward the giant locust, his sword ready to strike! The slippery giant locust evaded Sumantes's hit. The giant locust struck with its bite! The smelly giant locust failed to land its hit. Sumantes lunged toward the giant locust, his sword ready to strike! The giant locust took a glancing blow. 
+The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The attack from he surely left a impression. 
 
-The giant locust leans low, ready to strike with its might. The giant locust struck with its bite! He blocks the strike with his sword. 
+He pulls a pink orange potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! The fierce blow from the monster narrowly misses the adventurer. 
 
-The giant locust leans low, ready to strike with its might. The giant locust struck with its bite! Sumantes jumps out of the way. 
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to black pudding's blind spot. 
 
-Sumantes says
+Malchambalde lunged toward the black pudding, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding took a glancing blow. 
 
-"That didn't seem so hard, I don't know what Orion was talking about."
+The black pudding struck with its slam! The grisly black pudding failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The black pudding struck with its slam! He jumps out of the way. 
 
-## <a name="chapter8"></a> Chapter 8: Manchurhampian and the Choral
+The dauntless Malchambalde pulls a khaki x11 light khaki potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! He stunbles backward, gasping for breath. 
 
-Sumantes followed a dirt path into the village of Manchurhampian. Two camp followers scuttled out of his way. Two seneschals threw punches. Sumantes continued down the path. While the nobleman threw punches, a founder slowly carried supplies.
+He sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
 
-Eventually, Sumantes arrived at the town square, where he found a dean. The man, eying his dangerous demeanor, beckoned him forward.
+The black pudding struck with its slam! The lion-hearted Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. The grand Malchambalde sneaked around to black pudding's blind spot. 
+
+He sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
+
+He pulls a international orange engineering potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
+
+The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. The daring Malchambalde sneaked around to black pudding's blind spot. 
+
+The black pudding struck with its slam! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The black pudding leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. 
+
+The black pudding leans low, ready to strike with its might. The black pudding struck with its slam! The execrable black pudding failed to land its hit. 
+
+The black pudding struck with its slam! The ruinous black pudding failed to land its hit. The exhilarating combat made the hours seem like seconds. The black pudding struck with its slam! Malchambalde stunbles backward, gasping for breath. 
+
+The black pudding leans low, ready to strike with its might. The black pudding struck with its slam! The horrendous black pudding failed to land its hit. 
+
+He pulls a fluorescent pink potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
+
+He pulls a rosewood potion from his pack and drinks it. He is reinvigorated. The black pudding struck with its slam! Malchambalde the dauntlessour hero blocks the strike with his sword. 
+
+The black pudding struck with its slam! Malchambalde the dauntlessour hero jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The black pudding struck with its slam! The evil black pudding failed to land its hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! The dreadful black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+The black pudding leans low, ready to strike with its might. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a gray html css gray potion from his pack and drinks it. He is reinvigorated. 
+
+The black pudding struck with its slam! The fearless Malchambalde jumps out of the way. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+The black pudding struck with its slam! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The black pudding struck with its slam! Malchambalde reeled back in pain. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. The black pudding struck with its slam! He winces from the pain but continues fighting. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! 
+
+The black pudding struck with its slam! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to black pudding's blind spot. 
+
+The intrepid Malchambalde pulls a midnight blue potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
+
+The black pudding struck with its slam! The scandalous black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+The adventurer sneaked around to black pudding's blind spot. The black pudding leans low, ready to strike with its might. 
+
+The black pudding struck with its slam! The detestable black pudding failed to land its hit. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+The black pudding struck with its slam! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The black pudding struck with its slam! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! That blow seemed like it could break some bones. The black pudding struck with its slam! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a lemon chiffon potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde the elevatedour hero sneaked around to black pudding's blind spot. Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! 
+
+Malchambalde lunged toward the black pudding, his sword ready to strike! The black pudding was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the black pudding, his sword ready to strike! The slippery black pudding evaded Malchambalde's hit. 
+
+Malchambalde pulls a dark powder blue potion from his pack and drinks it. He is reinvigorated. The black pudding leans low, ready to strike with its might. 
+
+He was victorious! The black pudding menaced for no longer! 
+
+## <a name="chapter3"></a> Chapter 3: Sme and the Giant Frilled Lizard
+
+Malchambalde followed a dirt path into the village of Sme. Nearby, a groom loaded a market stall with wares. A halberdier rushed by quickly, ignoring him. Malchambalde continued down the path. Nearby, a curate sat by the side of the road.
+
+Eventually, Malchambalde arrived at the town square, where he found a scout. Malchambalde approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Two barbers gazed at him from an open window. The man eyed him thoughtfully, then finally responded.
+
+"Our village of Lake End-dÃ« will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. It's just to the right. You'll find Emambkin, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. While the beerbrewer loaded a market stall with wares, a link man gazed at him from an open window. While the singer threw punches, a gunsmith slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Emambkin looked up from his work behind a counter at Malchambalde.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Emambkin lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant frilled lizard."
+
+The armorer sighed and continued. "This lizard is a true behemoth—an apex predator found in tropical regions. Many species of giant lizard exist—other species lack this lizard's intimidating charge special ability but might have other special attacks like grab, trip, constrict (with a bite), or pounce."
+
+"I could handle that. Tell me again, what makes the giant frilled lizard so bad?" Malchambalde responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a scandalous giant frilled lizard in the distance! Our hero fixed his gaze on the awful sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! The revolting giant frilled lizard failed to land its hit. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The attack from he surely left a impression. 
+
+The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. The unafraid Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard leans low, ready to strike with its might. 
+
+He pulls a unbleached silk potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! The stouthearted Malchambalde stunbles backward, gasping for breath. 
+
+The bigger than life Malchambalde pulls a sapphire blue potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses the inflated Malchambalde. 
+
+The adventurer sneaked around to giant frilled lizard's blind spot. The giant frilled lizard leans low, ready to strike with its might. 
+
+The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The giant frilled lizard struck with its bite! He winces from the pain but continues fighting. 
+
+The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! Malchambalde the boldour hero blocks the strike with his sword. 
+
+The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard was struck by the blow! 
+
+The giant frilled lizard struck with its bite! He jumps out of the way. Malchambalde the grandioseour hero leaned on his sword to catch a moment's respite. The doughty Malchambalde was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. 
+
+Malchambalde the boldour hero pulls a bittersweet potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! He blocks the strike with his sword. 
+
+Malchambalde the boldour hero pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
+
+The giant frilled lizard struck with its bite! The terrible giant frilled lizard failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The giant frilled lizard leans low, ready to strike with its might. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
+
+The giant frilled lizard struck with its bite! The impavid Malchambalde blocks the strike with his sword. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses the gutsy Malchambalde. 
+
+He pulls a dark violet potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard struck with its bite! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard took a glancing blow. 
+
+The giant frilled lizard struck with its bite! He jumps out of the way. he stumbles to his knee, gasping for breath. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+He pulls a blue crayola potion from his pack and drinks it. He is reinvigorated. The giant frilled lizard leans low, ready to strike with its might. 
+
+The adventurer sneaked around to giant frilled lizard's blind spot. The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! Although he's hit landed, giant frilled lizard is mostly unphasedThe monster was stunned by the attack. He pulls a dark green potion from his pack and drinks it. He is reinvigorated. 
+
+The giant frilled lizard struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The giant frilled lizard leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The giant frilled lizard struck with its bite! He jumps out of the way. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to giant frilled lizard's blind spot. 
+
+The giant frilled lizard struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The giant frilled lizard was staggered by the immense force. 
+
+He sneaked around to giant frilled lizard's blind spot. The giant frilled lizard struck with its bite! The adventurer blocks the strike with his sword. 
+
+He sneaked around to giant frilled lizard's blind spot. The giant frilled lizard leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
+
+The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! Malchambalde jumps out of the way. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a spring bud potion from his pack and drinks it. He is reinvigorated. 
+
+The giant frilled lizard struck with its bite! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The giant frilled lizard struck with its bite! The gallant Malchambalde stunbles backward, gasping for breath. 
+
+Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! The slippery giant frilled lizard evaded Malchambalde's hit. 
+
+The giant frilled lizard leans low, ready to strike with its might. Malchambalde lunged toward the giant frilled lizard, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The giant frilled lizard struck with its bite! The hideous giant frilled lizard failed to land its hit. He leaned on his sword to catch a moment's respite. The bold Malchambalde was worn out by the combat. The giant frilled lizard struck with its bite! Malchambalde the valorousour hero jumps out of the way. 
+
+The giant frilled lizard leans low, ready to strike with its might. The giant frilled lizard struck with its bite! He winces from the pain but continues fighting. 
+
+The fire-eating Malchambalde was victorious! The giant frilled lizard menaced for no longer! 
+
+## <a name="chapter4"></a> Chapter 4: Preen and the Jotund Troll
+
+Malchambalde followed a dirt path into the village of Preen. While the harper scuttled out of his way, a cartwright loaded a market stall with wares. A rat catcher talked excitedly with what appeared to be a cartwright. Malchambalde continued down the path. While the smith eyed him suspiciously, a bodger scuttled out of his way.
+
+Eventually, Malchambalde arrived at the town square, where he found a sawyer. Malchambalde approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the chancellor hawked fine imported goods from Dudburst, a jeweler hawked fine imported goods from Arsburtock. He still looked suspiciousHe finally responded.
+
+"Our village of Pargark will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Hann is into the market and towards the inn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Hann Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. The abbot stood by a market stall, negotiating with the attendent with a porter. Nearby, a rat catcher slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Hann grabbed a dusty book from the shelf and flipped through it. Pictures of stringy demodands and bogeymans flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "Jotund trolls are gigantic, nine-headed horrors. Prowling frigid moors and marshes, these rapacious creatures have the same insatiable appetites of common trolls but require much more sustenance because of their excessive size. Jotund trolls stand 30 feet tall and weigh roughly 25,000 pounds. They can live for up to 100 years."
+
+"I could handle that. Tell me again, what makes the jotund troll so bad?" Malchambalde responded.
+
+"The jotund troll's nine heads each have their own brains and senses, but they share, after a fashion, the same mind. Despite this, a jotund troll's heads often argue and bicker, particularly over which head gets to eat. The fact that all nine maws lead to the same shared stomach makes little difference in such culinary disagreements. " Hann explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the jotund troll?" Malchambalde asked.
+
+"Jotund trolls spawn with either their own kind or with other trolls. In the latter case, there is only a 5% chance the offspring will be a jotund troll. Apart from brief mating periods, jotund trolls are solitary, although some cull together bands of other giants into devastating war parties that can lay waste to entire regions. " Hann explained.
+
+Malchambalde slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"That's all I can tell you."
+
+Malchambalde saw a disgusting jotund troll in the distance! The adventurer readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+The jotund troll struck with its club! The disgusting jotund troll failed to land its hit. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The jotund troll struck with its club! The adventurer blocks the strike with his sword. 
+
+The jotund troll struck with its club! The lurid jotund troll failed to land its hit. he stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cherry blossom pink potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was struck by the blow! The monster was stunned by the attack. Malchambalde pulls a prune potion from his pack and drinks it. He is reinvigorated. 
+
+The jotund troll struck with its club! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! Malchambalde the gutsyour hero winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the adventurer. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! Malchambalde reeled back in pain. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to jotund troll's blind spot. 
+
+The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! The unafraid Malchambalde stunbles backward, gasping for breath. 
+
+The jotund troll struck with its club! The courageous Malchambalde blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the lion-hearted Malchambalde. 
+
+The jotund troll struck with its club! Malchambalde the unafraidour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde the classicour hero was worn out by the combat. The jotund troll struck with its club! The fearful jotund troll failed to land its hit. 
+
+The jotund troll struck with its club! He jumps out of the way. Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. 
+
+Malchambalde pulls a peach crayola potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. The intrepid Malchambalde pulls a ku crimson potion from his pack and drinks it. He is reinvigorated. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a raspberry potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+He pulls a persimmon potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The ungodly jotund troll failed to land its hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! Malchambalde reeled back in pain. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the intrepidour hero. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde the intrepidour hero pulls a light apricot potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! He winces from the pain but continues fighting. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The adventurer sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The beastly jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The adventurer sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. The jotund troll struck with its club! The disgusting jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although Malchambalde's hit landed, jotund troll is mostly unphased
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! Although the grandiose Malchambalde's hit landed, jotund troll is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses the daring Malchambalde. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a yellow ryb potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The terrible jotund troll failed to land its hit. 
+
+He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The jotund troll struck with its club! He jumps out of the way. he stumbles to his knee, gasping for breath. The jotund troll struck with its club! He blocks the strike with his sword. 
+
+The jotund troll struck with its club! Malchambalde the epicour hero blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a antique fuchsia potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The daring Malchambalde pulls a rich black potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
+
+The jotund troll struck with its club! The terrible jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde the inflatedour hero sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark byzantium potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer pulls a ruddy brown potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! He winces from the pain but continues fighting. the adventurer stumbles to his knee, gasping for breath. The jotund troll struck with its club! Malchambalde the grandioseour hero jumps out of the way. 
+
+The jotund troll struck with its club! The adventurer jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. The exaggerated Malchambalde was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the nobleour hero. The grandiose Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! Malchambalde the valiantour hero blocks the strike with his sword. 
+
+The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! Malchambalde reeled back in pain. 
+
+The jotund troll struck with its club! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! Malchambalde jumps out of the way. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The jotund troll struck with its club! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
+
+The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The high-flown Malchambalde sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The jotund troll struck with its club! Malchambalde the elevatedour hero jumps out of the way. 
+
+The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! The terrible jotund troll failed to land its hit. 
+
+He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! He stunbles backward, gasping for breath. Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
+
+He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! Malchambalde the inflatedour hero blocks the strike with his sword. the grand Malchambalde stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde the valorousour hero sneaked around to jotund troll's blind spot. The jotund troll struck with its club! The bigger than life Malchambalde blocks the strike with his sword. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde. the adventurer stumbles to his knee, gasping for breath. The jotund troll leans low, ready to strike with its might. 
+
+The adventurer sneaked around to jotund troll's blind spot. The jotund troll struck with its club! The ungodly jotund troll failed to land its hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! Malchambalde the courageousour hero landed a massive hit on jotund troll! The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The adventurer pulls a pale cornflower blue potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The fierce blow from the monster narrowly misses the noble Malchambalde. 
+
+He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a violet ryb potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! The adventurer jumps out of the way. 
+
+Malchambalde the nobleour hero sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to jotund troll's blind spot. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. 
+
+The jotund troll leans low, ready to strike with its might. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The undaunted Malchambalde sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He jumps out of the way. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a cg red potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The adventurer pulls a tropical rain forest potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! He winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a dark tangerine potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The jotund troll struck with its club! The heinous jotund troll failed to land its hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The high-flown Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the daringour hero pulls a medium jungle green potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. 
+
+The jotund troll leans low, ready to strike with its might. The jotund troll struck with its club! Malchambalde winces from the pain but continues fighting. 
+
+The adventurer pulls a mardi gras potion from his pack and drinks it. He is reinvigorated. The jotund troll struck with its club! He blocks the strike with his sword. 
+
+Malchambalde pulls a dark violet potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! He winces from the pain but continues fighting. Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from the elevated Malchambalde surely left a impression. 
+
+He sneaked around to jotund troll's blind spot. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer pulls a red orange potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to jotund troll's blind spot. 
+
+He pulls a ube potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The jotund troll struck with its club! He blocks the strike with his sword. The lion-hearted Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The horrid jotund troll failed to land its hit. Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll took a glancing blow. 
+
+He pulls a light thulian pink potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+He sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! Although he's hit landed, jotund troll is mostly unphased
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+The jotund troll struck with its club! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The jotund troll struck with its club! He stunbles backward, gasping for breath. 
+
+The adventurer sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The adventurer sneaked around to jotund troll's blind spot. Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! He blocks the strike with his sword. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a jasper potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He pulls a stil de grain yellow potion from his pack and drinks it. He is reinvigorated. The jotund troll leans low, ready to strike with its might. 
+
+The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The jotund troll was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde pulls a classic rose potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. The jotund troll struck with its club! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the jotund troll, his sword ready to strike! The slippery jotund troll evaded Malchambalde's hit. 
+
+He was victorious! The jotund troll menaced for no longer! 
+
+## <a name="chapter5"></a> Chapter 5: Dundorth Ealis and the Phantom Fungus
+
+Malchambalde followed a dirt path into the village of Dundorth Ealis. A netmaker sat by the side of the road. The parchmenter hawked fine imported goods from Londa Vaull with a link man. Malchambalde continued down the path. The basinbeater stood by a market stall, negotiating with the wheelwright with a oil merchant.
+
+Eventually, Malchambalde arrived at the town square, where he found a solicitor. Malchambalde approached him, hoping for some advice.
+
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+
+A tillerman rushed by quickly, ignoring him. The man sat in silence for a while, then finally responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Florus is down the street to the barn and right. You'll see a tavern. It's past the inn. It's just to the left. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. Nearby, a tutor stood by a market stall, negotiating with the pilgrim. A chimney sweep gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Florus grabbed a dusty book from the shelf and flipped through it. Pictures of hangman trees and vouivres flew by. Eventually he settled on a page and started to explain.
+
+"A phantom fungus is a tripedal carnivorous plant that roams the vast and deep underground caverns of the world. It wanders in search of food, using its rootlike feet to detect movement along the cavern floors and the sensitive tendrils surrounding its mouth to pinpoint prey." Florus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the phantom fungus?" Malchambalde asked.
+
+Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "A phantom fungus's primary advantage as a predator is its ability to vanish from sight. Stealthily patrolling the perimeters of caverns, a phantom fungus remains invisible until it is behind its prey, at which point it snaps at its victim with its vicious maw."
+
+"But my weapons may be too weak. Are there any other ways to defeat the phantom fungus?" Malchambalde asked.
+
+"A phantom fungus prefers to ambush lone creatures. When it encounters a larger group, a phantom fungus often stalks prey for hours, waiting for the targets to spread out or make camp so that it may attack a single foe at its leisure. Though phantom fungi are not normally pack hunters, there are reports of groves working together to bring down larger foes. When faced with no other option than to attack multiple foes, a group of phantom fungi focuses its attacks on single targets. They prefer to attack noisier foes if possible—characters wearing heavy armor or those that make heavy use of loud attacks (such as bards or spellcasters) are preferred over quieter creatures." Florus explained.
+
+Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "The maw with which a phantom fungus attacks prey is lined with row upon row of sharp, jagged teeth that resemble pointed rocks more than actual fangs. This "mouth" is not used to feed, however, and does not attach to a digestive tract—it is nothing more than a gaping natural weapon. When a phantom fungus feeds, it does so by squatting down on its prey and infesting the corpse with thousands of feeding filaments that burrow through dead flesh to siphon away nutrients. "
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+Florus returned to the book of monsters on the desk and pointed at the terrifying illustration. "A typical phantom fungus is 6 feet tall and weighs 200 pounds. Although they prefer dwelling underground, they have been encountered above ground as well."
+
+Malchambalde slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a repulsive phantom fungus in the distance! Our hero fixed his gaze on the lurid sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+Malchambalde lunged toward the phantom fungus, his sword ready to strike! The phantom fungus was struck by the blow! The phantom fungus struck with its bite! He winces from the pain but continues fighting. Malchambalde lunged toward the phantom fungus, his sword ready to strike! Malchambalde landed a massive hit on phantom fungus! 
+
+The phantom fungus struck with its bite! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The phantom fungus leans low, ready to strike with its might. 
+
+He pulls a neon green potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
+
+The adventurer sneaked around to phantom fungus's blind spot. The phantom fungus leans low, ready to strike with its might. 
+
+He pulls a royal blue web potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
+
+The adventurer sneaked around to phantom fungus's blind spot. The phantom fungus leans low, ready to strike with its might. 
+
+The phantom fungus struck with its bite! Malchambalde reeled back in pain. He leaned on his sword to catch a moment's respite. The inflated Malchambalde was worn out by the combat. The phantom fungus struck with its bite! He stunbles backward, gasping for breath. 
+
+He pulls a psychedelic purple potion from his pack and drinks it. He is reinvigorated. The phantom fungus struck with its bite! The bigger than life Malchambalde jumps out of the way. 
+
+The phantom fungus leans low, ready to strike with its might. Malchambalde lunged toward the phantom fungus, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to phantom fungus's blind spot. Malchambalde lunged toward the phantom fungus, his sword ready to strike! The slippery phantom fungus evaded Malchambalde's hit. 
+
+He pulls a radical red potion from his pack and drinks it. He is reinvigorated. The phantom fungus leans low, ready to strike with its might. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Florus was talking about."
+
+## <a name="chapter6"></a> Chapter 6: Shol Gare and the Owlbear
+
+Malchambalde followed a dirt path into the village of Shol Gare. The spectaclesmaker ran from person to person, asking if they had seen Deinfride with a spice merchant. Two halberdiers stood by a market stall, negotiating with the grinder. Malchambalde continued down the path. While the sailor stood by a market stall, negotiating with the dentist, a ditcher talked excitedly with what appeared to be a wiredrawer.
+
+Eventually, Malchambalde arrived at the town square, where he found a barrister. The man, eying his determined look, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
 
-Nearby, a pewterer talked excitedly with what appeared to be a chamberlain. The man quietly reminised about the pastHe finally responded.
+While the dog trainer rushed by quickly, ignoring him, a cannoneer stood by a market stall, negotiating with the ragpicker. He still looked suspicious, then finally responded.
 
-"Our village of Sea will gladly help you on your quest. What do you need?"
+"Our village of Manaley will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Nikas is the best in town. His shop is just a bit further down the street. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Oxarchepar is the best in town. His shop is into the market and towards the barn. Eventually you need to walk past the cattle barn. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Sumantes hurried towards the armory. While the lady hawked fine imported goods from Neath, a mailmaker slowly carried supplies. The jester ran from person to person, asking if they had seen Eulos with a canaller. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. A wetnurse ran from person to person, asking if they had seen Philberi. While the architect eyed him suspiciously, a purse maker scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
+Oxarchepar looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Nikas grabbed a dusty book from the shelf and flipped through it. Pictures of medium earth elementals and stringy demodands flew by. Eventually he settled on a page and started to explain.
+Oxarchepar lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The owlbear."
 
-"Choral angels are singers of great skill, and their ranks fill the halls of good deities with soaring hymns and solemn chants. They manifest from the spirits of the pious dead who had exceptional musical talent. While they aren't soldiers, chorals can defend themselves with their magical voices. Chorals sometimes visit the Material Plane with auspicious messages for mortals." Nikas explained.
+The armorer sighed and continued. "The origin of the owlbear is a subject of great debate among scholars of the monstrous creatures of the world. However, most concur that at some point in the distant past, a deranged wizard created the original specimens by crossing an owl with a bear—perhaps as proof of some insane concept about the nature of life, but possibly out of sheer lunacy. Whatever the original purpose of such a freakish creation as the owlbear, the creature bred true and has become quite well-established in woodlands across the world, where it plays a key role in a region's ecosystem as an apex predator."
 
-"I could handle that. Tell me again, what makes the choral so bad?" Sumantes responded.
+"I could handle that. Tell me again, what makes the owlbear so bad?" Malchambalde responded.
+
+"Owlbears are notoriously bloodthirsty killers, well known for their short tempers, aggression, and savage nature. They tend to attack without provocation, slaughtering any living creatures that cross their paths. Many scholars that have encountered these creatures in the wild have noted that they all have red-rimmed eyes that roll about wildly when they close in for an attack. This is sometimes presented as a sign of madness, suggesting that all owlbears are born with a pathological need to fight and kill, but more level-headed researchers believe that it's simply part of the way the massive bird-beast's keen eyes are constructed." Oxarchepar explained.
+
+"I could handle that. Tell me again, what makes the owlbear so bad?" Malchambalde responded.
+
+The armorer sighed and continued. "Owlbears generally inhabit desolate areas of the wilderness, making their messy lairs within wild forests or inside dark, shallow caverns. They are equally adept at hunting during the day and at night, depending upon the prey available near their lairs."
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Adult owlbears live in mated pairs, and hunt in small groups, leaving their young behind in their lairs while they search for prey. A typical owlbear lair contains 1d6 juveniles, which can fetch a price of up to 3,000 gp apiece in many city markets." Oxarchepar explained.
+
+Malchambalde slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"While it is considered impossible to truly domesticate owlbears due to their feral natures, they can still be used as guardians if contained within an area but allowed to roam and hunt freely there. Professional animal trainers charge up to 2,000 gp to rear or train an owlbear into a serviceable guardian that can obey simple commands (DC 23 for a juvenile creature; DC 30 for a fully grown adult)." Oxarchepar explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the owlbear?" Malchambalde asked.
+
+"A full-grown male can stand as tall as 8 feet and weighs up to 1,500 pounds." Oxarchepar explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a disgusting owlbear in the distance! The adventurer readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! Malchambalde the grandour hero landed a massive hit on owlbear! The monster was stunned by the attack. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
+
+He sneaked around to owlbear's blind spot. The owlbear leans low, ready to strike with its might. 
+
+The owlbear struck with its claws! The smelly owlbear failed to land its hit. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear leans low, ready to strike with its might. 
+
+The owlbear struck with its claws! Malchambalde reeled back in pain. Malchambalde leaned on his sword to catch a moment's respite. The high-flown Malchambalde was worn out by the combat. The owlbear leans low, ready to strike with its might. 
+
+The owlbear struck with its claws! The fairy owlbear failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear struck with its claws! Malchambalde reeled back in pain. 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark cyan potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a lemon potion from his pack and drinks it. He is reinvigorated. The owlbear leans low, ready to strike with its might. 
+
+He sneaked around to owlbear's blind spot. The owlbear struck with its claws! Malchambalde jumps out of the way. 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to owlbear's blind spot. 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. The owlbear struck with its claws! He blocks the strike with his sword. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! The attack from Malchambalde surely left a impression. The owlbear struck with its claws! He winces from the pain but continues fighting. Malchambalde lunged toward the owlbear, his sword ready to strike! The slippery owlbear evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the owlbear, his sword ready to strike! A sharp crack was heard as the strike left its mark. The owlbear struck with its claws! He jumps out of the way. Malchambalde lunged toward the owlbear, his sword ready to strike! The owlbear was staggered by the immense force. 
+
+Malchambalde sneaked around to owlbear's blind spot. The owlbear leans low, ready to strike with its might. 
+
+The owlbear struck with its claws! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The owlbear leans low, ready to strike with its might. 
+
+He was victorious! The owlbear menaced for no longer! 
+
+## <a name="chapter7"></a> Chapter 7: Pell and the Wax Golem
+
+Malchambalde followed a dirt path into the village of Pell. Two shipchandlers talked excitedly with what appeared to be a master of hounds. Nearby, a cartwright stood by a market stall, negotiating with the brushbinder. Malchambalde continued down the path. A merchant loaded a market stall with wares.
+
+Eventually, Malchambalde arrived at the town square, where he found a stonecarver. Malchambalde approached him, hoping for some advice.
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+A feltmaker threw punches. The man eyed him thoughtfully, then finally responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is down the street to the stables and right. You'll see a cattle barn. It's down the street to the barn and right. You'll see a cattle barn. It's just a bit further down the street. It's just to the right. You'll find Alecton, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Malchambalde hurried towards the armory. The harness maker threw punches with a master of hounds. Nearby, a builder rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Alecton lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The wax golem."
+
+Alecton returned to the book of monsters on the desk and pointed at the terrifying illustration. ""
+
+Malchambalde slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"" Alecton explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "A wax golem is an exact replica of a particular person, composed completely of wax. While skilled artists pride themselves on their ability to make wax sculptures look lifelike, builders of wax golems go one step further and actually bring their art to life. Though eerily silent and unblinking, well-built wax golems bear such striking similarity to the subjects they are modeled after that some golems begin to think they are in fact that person."
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"A wax golem can be constructed to resemble any person or creature." Alecton explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a ungodly wax golem in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+He pulls a dark imperial blue potion from his pack and drinks it. He is reinvigorated. The wax golem leans low, ready to strike with its might. 
+
+The adventurer pulls a brilliant rose potion from his pack and drinks it. He is reinvigorated. The wax golem struck with its slam! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The wax golem struck with its slam! The valorous Malchambalde blocks the strike with his sword. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a pale silver potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The wax golem took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the wax golem, his sword ready to strike! The attack from Malchambalde the nobleour hero surely left a impression. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to wax golem's blind spot. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a royal yellow potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to wax golem's blind spot. The wax golem leans low, ready to strike with its might. 
+
+The wax golem struck with its slam! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The wax golem struck with its slam! Malchambalde the stand tallour hero blocks the strike with his sword. 
+
+The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+The wax golem leans low, ready to strike with its might. The wax golem struck with its slam! He jumps out of the way. 
+
+The wax golem leans low, ready to strike with its might. Malchambalde lunged toward the wax golem, his sword ready to strike! The wax golem was struck by the blow! 
+
+He sneaked around to wax golem's blind spot. The wax golem struck with its slam! The fierce blow from the monster narrowly misses the adventurer. 
+
+Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. The wax golem struck with its slam! Malchambalde reeled back in pain. Malchambalde lunged toward the wax golem, his sword ready to strike! The slippery wax golem evaded Malchambalde's hit. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Alecton was talking about."
+
+## <a name="chapter8"></a> Chapter 8: Rayle and the Shinigami
+
+Malchambalde followed a dirt path into the village of Rayle. While the feltmaker bit into an apple, a delver ran from person to person, asking if they had seen Faldus. Two fences sat by the side of the road. Malchambalde continued down the path. Two jews scuttled out of his way.
+
+Eventually, Malchambalde arrived at the town square, where he found a canon. Malchambalde approached him, hoping for some advice.
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+Nearby, a maid hawked fine imported goods from Rockfridgway. The man eyed him thoughtfully, but eventually responded.
+
+"Our village of Borth will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Segus is into the market and towards the warehouse. Eventually you need to walk past the barn. Look for the large hanging sign that reads "Segus Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. A tailor threw punches. The shipchandler sat by the side of the road with a swordsmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Segus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The shinigami."
+
+"Feared as truly impartial and merciless harbingers of death, shinigamis are relentless in their pursuit of dispensing quick and just deaths upon those who would seek to disrupt the delicate balance of life. Unlike other, more sinister bringers of doom, shinigamis do not take pleasure in their work and do not seek to impose suffering—although there are exceptions. Some individuals, aptly described by their kin as "rogue shinigamis," subscribe to either more merciful or more despicable forms of execution, and are either lawful good or lawful evil. Victims who have had their lives spared by kind shinigamis praise the angels of death for their clemency and willingness to listen to the victims' plight, while other dastardly survivors have successfully cheated or bribed their way out of death by manipulating credulous or less honorable shinigami. A shinigami is 9 feet tall and weighs 130 pounds." Segus explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
 
 "That's all I can tell you."
 
-Sumantes saw a abominable choral in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a disgusting shinigami in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The choral struck with its slam! The beastly choral failed to land its hit. he stumbles to his knee, gasping for breath. The choral struck with its slam! Sumantes reeled back in pain. 
+The shinigami struck with its axiomatic scythe! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! He jumps out of the way. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the choral, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The adventurer sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. The monster was stunned by the attack. He pulls a pale goldenrod potion from his pack and drinks it. He is reinvigorated. 
+The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
 
-He sneaked around to choral's blind spot. The choral struck with its slam! Sumantes the guttyour hero blocks the strike with his sword. 
+He sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! Malchambalde reeled back in pain. 
 
-The choral struck with its slam! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the choral, his sword ready to strike! The choral was struck by the blow! 
+He pulls a little boy blue potion from his pack and drinks it. He is reinvigorated. The shinigami struck with its axiomatic scythe! He winces from the pain but continues fighting. 
 
-The choral struck with its slam! The fierce blow from the monster narrowly misses Sumantes the gallantour hero. The exhilarating combat made the hours seem like seconds. The choral struck with its slam! Sumantes stunbles backward, gasping for breath. 
+The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
 
-Sumantes lunged toward the choral, his sword ready to strike! That blow seemed like it could break some bones. The choral struck with its slam! Sumantes the courageousour hero jumps out of the way. Sumantes lunged toward the choral, his sword ready to strike! The choral was struck by the blow! 
+The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! Malchambalde the daringour hero blocks the strike with his sword. 
 
-Sumantes pulls a turquoise blue potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+He pulls a dark byzantium potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
 
-The choral struck with its slam! He blocks the strike with his sword. Sumantes lunged toward the choral, his sword ready to strike! The attack from he surely left a impression. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-The choral struck with its slam! The nasty choral failed to land its hit. Sumantes stumbles to his knee, gasping for breath. The choral struck with its slam! Sumantes reeled back in pain. 
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The choral was struck by the blow! The choral struck with its slam! He winces from the pain but continues fighting. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
 
-The choral leans low, ready to strike with its might. The choral struck with its slam! The fierce blow from the monster narrowly misses the adventurer. 
+The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
 
-The choral leans low, ready to strike with its might. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! He landed a massive hit on shinigami! The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The choral struck with its slam! The execrable choral failed to land its hit. Sumantes lunged toward the choral, his sword ready to strike! The choral took a glancing blow. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. The choral struck with its slam! He jumps out of the way. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+The exaggerated Malchambalde pulls a dark chestnut potion from his pack and drinks it. He is reinvigorated. The shinigami struck with its axiomatic scythe! Malchambalde blocks the strike with his sword. 
 
-The choral struck with its slam! Sumantes winces from the pain but continues fighting. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-The choral struck with its slam! He jumps out of the way. Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The choral struck with its slam! The lousy choral failed to land its hit. 
+He sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The obnoxious shinigami failed to land its hit. 
 
-The choral leans low, ready to strike with its might. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+Malchambalde sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
 
-The choral struck with its slam! The awful choral failed to land its hit. he stumbles to his knee, gasping for breath. The choral struck with its slam! Sumantes reeled back in pain. 
+The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-The choral leans low, ready to strike with its might. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+He pulls a cadmium orange potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-He pulls a princeton orange potion from his pack and drinks it. He is reinvigorated. The choral leans low, ready to strike with its might. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to shinigami's blind spot. 
 
-The choral struck with its slam! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The choral leans low, ready to strike with its might. 
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
 
-The choral leans low, ready to strike with its might. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+The shinigami struck with its axiomatic scythe! The frightful shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-He pulls a dark salmon potion from his pack and drinks it. He is reinvigorated. The choral struck with its slam! He winces from the pain but continues fighting. 
+The shinigami struck with its axiomatic scythe! The adventurer blocks the strike with his sword. Malchambalde the elevatedour hero stumbles to his knee, gasping for breath. The shinigami leans low, ready to strike with its might. 
 
-The choral struck with its slam! The epic Sumantes winces from the pain but continues fighting. Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. 
+The shinigami struck with its axiomatic scythe! The smelly shinigami failed to land its hit. The exhilarating combat made the hours seem like seconds. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The bold Sumantes landed a massive hit on choral! The monster was stunned by the attack. Sumantes lunged toward the choral, his sword ready to strike! The attack from Sumantes the mythologicalour hero surely left a impression. 
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
 
-Sumantes the grandioseour hero sneaked around to choral's blind spot. The choral leans low, ready to strike with its might. 
+The shinigami struck with its axiomatic scythe! The noble Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The sickie shinigami failed to land its hit. 
 
-Sumantes lunged toward the choral, his sword ready to strike! The slippery choral evaded Sumantes's hit. The monster was stunned by the attack. Sumantes sneaked around to choral's blind spot. 
+The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the gutsy Malchambalde. The exhilarating combat made the hours seem like seconds. The shinigami struck with its axiomatic scythe! Malchambalde the grittyour hero stunbles backward, gasping for breath. 
 
-Sumantes the grandioseour hero was victorious! The choral menaced for no longer! 
+Malchambalde pulls a persian pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-## <a name="chapter9"></a> Chapter 9: Canas and the Deathweb
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a beige potion from his pack and drinks it. He is reinvigorated. 
 
-Sumantes followed a dirt path into the village of Canas. A tinker talked excitedly with what appeared to be a fruitier. While the weirkeeper slept in an alleyway, a wetnurse eyed him suspiciously. Sumantes continued down the path. While the chainmaker talked excitedly with what appeared to be a tumbler, a philosopher talked excitedly with what appeared to be a milliner.
+He pulls a medium carmine potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
 
-Eventually, Sumantes arrived at the town square, where he found a hobbler. The man, eying his impressive armor, beckoned him forward.
+Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
 
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+He pulls a deep cerise potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+Malchambalde pulls a white potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
 
-Nearby, a drayman loaded a market stall with wares. The man eyed him thoughtfullyHe finally responded.
+He sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
 
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
+The shinigami struck with its axiomatic scythe! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! Although Malchambalde's hit landed, shinigami is mostly unphasedThe monster was stunned by the attack. Malchambalde the classicour hero pulls a licorice potion from his pack and drinks it. He is reinvigorated. 
+
+He pulls a kelly green potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
+
+The shinigami struck with its axiomatic scythe! The mean shinigami failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a ivory potion from his pack and drinks it. He is reinvigorated. 
+
+The bold Malchambalde pulls a violet blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The shinigami struck with its axiomatic scythe! The adventurer winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! The monster was stunned by the attack. The adventurer pulls a iris potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
+
+Malchambalde pulls a green munsell potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
+
+The shinigami struck with its axiomatic scythe! Malchambalde reeled back in pain. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the shinigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was staggered by the immense force. The shinigami struck with its axiomatic scythe! The lion-hearted Malchambalde jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
+
+He pulls a pastel red potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+The shinigami struck with its axiomatic scythe! The terrifying shinigami failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses Malchambalde the valorousour hero. 
+
+The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
+
+The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
+
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! Although Malchambalde the guttyour hero's hit landed, shinigami is mostly unphased
+
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+The shinigami struck with its axiomatic scythe! He winces from the pain but continues fighting. Malchambalde the courageousour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
+
+The adventurer sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The gritty Malchambalde blocks the strike with his sword. 
+
+Malchambalde pulls a banana mania potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+He sneaked around to shinigami's blind spot. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a air force blue usaf potion from his pack and drinks it. He is reinvigorated. 
+
+The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He pulls a otter brown potion from his pack and drinks it. He is reinvigorated. 
+
+The shinigami struck with its axiomatic scythe! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+He pulls a french lilac potion from his pack and drinks it. He is reinvigorated. The shinigami leans low, ready to strike with its might. 
+
+The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. The fire-eating Malchambalde leaned on his sword to catch a moment's respite. The stand tall Malchambalde was worn out by the combat. The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. 
+
+The shinigami struck with its axiomatic scythe! He stunbles backward, gasping for breath. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from the bigger than life Malchambalde rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
+
+The shinigami struck with its axiomatic scythe! The disgusting shinigami failed to land its hit. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! The gutsy Malchambalde jumps out of the way. 
+
+The shinigami struck with its axiomatic scythe! Malchambalde jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! He landed a massive hit on shinigami! 
+
+The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+The shinigami struck with its axiomatic scythe! The lousy shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The terrible shinigami failed to land its hit. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
+
+The shinigami struck with its axiomatic scythe! The adventurer blocks the strike with his sword. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! The monster was stunned by the attack. He pulls a sinopia potion from his pack and drinks it. He is reinvigorated. 
+
+The shinigami struck with its axiomatic scythe! The adventurer jumps out of the way. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was struck by the blow! 
+
+The shinigami struck with its axiomatic scythe! The fearful shinigami failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! Malchambalde jumps out of the way. 
+
+Malchambalde sneaked around to shinigami's blind spot. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to shinigami's blind spot. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The shinigami was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+Malchambalde the doughtyour hero sneaked around to shinigami's blind spot. The shinigami struck with its axiomatic scythe! The unafraid Malchambalde stunbles backward, gasping for breath. 
+
+The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! Malchambalde stunbles backward, gasping for breath. 
+
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+The shinigami struck with its axiomatic scythe! The high-flown Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The shinigami struck with its axiomatic scythe! Malchambalde the intrepidour hero stunbles backward, gasping for breath. 
+
+The shinigami leans low, ready to strike with its might. The shinigami struck with its axiomatic scythe! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde the stand tallour hero sneaked around to shinigami's blind spot. Malchambalde lunged toward the shinigami, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
+
+Malchambalde lunged toward the shinigami, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. He sneaked around to shinigami's blind spot. 
+
+The shinigami leans low, ready to strike with its might. Malchambalde lunged toward the shinigami, his sword ready to strike! The slippery shinigami evaded Malchambalde's hit. 
+
+He was victorious! The shinigami menaced for no longer! 
+
+## <a name="chapter9"></a> Chapter 9: Blackneridne and the Popobala
+
+Malchambalde followed a dirt path into the village of Blackneridne. Nearby, a waterman slept in an alleyway. The musician sat by the side of the road with a thresher. Malchambalde continued down the path. The barrister scuttled out of his way with a quarryman.
+
+Eventually, Malchambalde arrived at the town square, where he found a canon. Malchambalde approached him, hoping for some advice.
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+While the beekeeper threw punches, a gunsmith finished an apple and tossed the core aside. The man eyed him thoughtfully, then finally responded.
+
+"Our village of Chridner will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Urai is down the street to the stables and right. You'll see a tavern. It's just a bit further down the street. It's just to the left. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"The armory is past the barn. Look for the large hanging sign that reads "Flore Fine Supplies". You'll find Flore, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Sumantes hurried towards the armory. While the pinmaker rushed by quickly, ignoring him, a maid loaded a market stall with wares. The wood seller threw punches with a quarryman. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. Two spice merchants eyed him suspiciously. Two joiners hawked fine imported goods from Stond-dÃ«. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
+Flore looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Urai grabbed a dusty book from the shelf and flipped through it. Pictures of mummy lords and vampires flew by. Eventually he settled on a page and started to explain.
+Flore grabbed a dusty book from the shelf and flipped through it. Pictures of contract devils and totenmaskes flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "A deathweb is the undead exoskeleton of a massive spider animated with the vilest necromancy. The spells that create this monstrosity bind to it thousands of normal spiders, which together form the mind of the undead beast like an arachnid hive. These smaller spiders live in and direct their exoskeleton home, working together to swarm around the deathweb and weave its web sheets."
+Flore returned to the book of monsters on the desk and pointed at the terrifying illustration. "The popobala is a much-feared shapeshifter that haunts and hunts warm coastal lands, roaming night and day to terrorize and spread anarchy and unrest while slaking its insatiable twin urges for violence and prurience. Shifting freely between bat, human, and its natural form, the popobala is most dreaded for its mesmeric charms, but it is more than capable of engaging in savage bloodletting against those who anger it. Popobalas are attracted to chaos, anarchy, and unrest, as the intensity of emotions and uncertainty inflames its already fierce urges. War, changes of government, and religious or ethnic strife or persecution—all of these excite a popobala, and if a society remains too settled and stable, the beast is never above fomenting unrest through its own predations."
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+"But my weapons may be too weak. Are there any other ways to defeat the popobala?" Malchambalde asked.
 
-Urai returned to the book of monsters on the desk and pointed at the terrifying illustration. "The exoskeleton of a deathweb is cracked and full of holes to allow the resident spiders easy passage into and out of it. Although the exoskeleton can be up to 10 feet long, the largest spiders within are only 6 inches in length. The variety in the sizes of the internal spiders allows them to ably move all parts of the exoskeleton, giving the massive carapace amazing dexterity and swiftness, as well as cleverness, perception, and presence."
+"A typical popobala is 5 feet tall with a 12 foot wingspan. It weighs only 100 pounds. " Flore explained.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+"I could handle that. Tell me again, what makes the popobala so bad?" Malchambalde responded.
 
-Urai returned to the book of monsters on the desk and pointed at the terrifying illustration. "These capabilities make deathwebs resourceful and frightening opponents, especially when adversaries mistake them for normal monstrous arachnids or mindless undead. Because of their ability to squeeze into tight surroundings, deathwebs may be found lurking in all manner of niches."
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde saw a repulsive popobala in the distance! Our hero fixed his gaze on the appalling sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The armorer sighed and continued. "Deathwebs lair where they can build webs to trap passersby, such as among thick trees or in caves or tunnels. The creatures don't actively collect valuables, but they kill indiscriminately to feed the multitude of spiders within. Webs in a deathweb's lair are thus likely to contain valuables despite the creature's lack of interest in wealth."
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
 
-Sumantes slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+The popobala struck with its bite! The fierce blow from the monster narrowly misses the undaunted Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala struck with its bite! Malchambalde reeled back in pain. 
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
+He pulls a purple munsell potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! Malchambalde jumps out of the way. 
 
-Sumantes saw a horrendous deathweb in the distance! Our hero fixed his gaze on the lousy sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. 
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-The deathweb leans low, ready to strike with its might. Sumantes lunged toward the deathweb, his sword ready to strike! That blow seemed like it could break some bones. 
+The popobala struck with its bite! He winces from the pain but continues fighting. Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
 
-The deathweb leans low, ready to strike with its might. The deathweb struck with its bite! He stunbles backward, gasping for breath. 
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The deathweb leans low, ready to strike with its might. The deathweb struck with its bite! The adventurer stunbles backward, gasping for breath. 
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! He landed a massive hit on popobala! 
 
-He pulls a pear potion from his pack and drinks it. He is reinvigorated. The deathweb struck with its bite! Sumantes reeled back in pain. 
+The popobala struck with its bite! The grisly popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. The deathweb struck with its bite! The grandiose Sumantes jumps out of the way. Sumantes lunged toward the deathweb, his sword ready to strike! The deathweb took a glancing blow. 
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! Although he's hit landed, popobala is mostly unphased
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the deathweb, his sword ready to strike! The deathweb was struck by the blow! 
+The popobala struck with its bite! The execrable popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-He pulls a gold web golden potion from his pack and drinks it. He is reinvigorated. The deathweb struck with its bite! The high-flown Sumantes blocks the strike with his sword. 
+Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-The deathweb struck with its bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The deathweb struck with its bite! The gritty Sumantes blocks the strike with his sword. 
+The popobala struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The popobala leans low, ready to strike with its might. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! Sumantes the lion-heartedour hero landed a massive hit on deathweb! The monster was stunned by the attack. He pulls a electric ultramarine potion from his pack and drinks it. He is reinvigorated. 
+The popobala struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala struck with its bite! The unafraid Malchambalde blocks the strike with his sword. 
 
-The deathweb leans low, ready to strike with its might. Sumantes lunged toward the deathweb, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! Malchambalde reeled back in pain. 
 
-Sumantes sneaked around to deathweb's blind spot. Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. 
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The deathweb was staggered by the immense force. The deathweb struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the deathweb, his sword ready to strike! The deathweb was struck by the blow! 
+The popobala struck with its bite! Malchambalde winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The popobala leans low, ready to strike with its might. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The slippery deathweb evaded Sumantes's hit. The monster was stunned by the attack. Sumantes pulls a rackley potion from his pack and drinks it. He is reinvigorated. 
+The popobala struck with its bite! The valiant Malchambalde winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
 
-Sumantes lunged toward the deathweb, his sword ready to strike! The deathweb was staggered by the immense force. The monster was stunned by the attack. Sumantes pulls a dark electric blue potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the popobala, his sword ready to strike! The attack from he surely left a impression. The popobala struck with its bite! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-Sumantes the guttyour hero was victorious! The deathweb menaced for no longer! 
+The popobala struck with its bite! The fairy popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
 
-## <a name="chapter10"></a> Chapter 10: Sterreedsenhend and the Xtabay
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! He stunbles backward, gasping for breath. 
 
-Sumantes followed a dirt path into the village of Sterreedsenhend. While the shepherd eyed him suspiciously, a girdler slept in an alleyway. Nearby, a panter eyed him suspiciously. Sumantes continued down the path. Nearby, a gunstocker rushed by quickly, ignoring him.
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! That blow seemed like it could break some bones. 
 
-Eventually, Sumantes arrived at the town square, where he found a summoner. Sumantes approached him, hoping for some advice.
+He pulls a coquelicot potion from his pack and drinks it. He is reinvigorated. The popobala leans low, ready to strike with its might. 
 
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+The popobala struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the popobala, his sword ready to strike! That blow seemed like it could break some bones. 
 
-Two parchmenters stood by a market stall, negotiating with the shoemaker. The man quietly reminised about the past, then finally responded.
+The popobala struck with its bite! The loathsome popobala failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
 
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
+
+The valiant Malchambalde pulls a blue pigment potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! He jumps out of the way. 
+
+The popobala struck with its bite! The appalling popobala failed to land its hit. The exhilarating combat made the hours seem like seconds. The popobala struck with its bite! He jumps out of the way. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! He stunbles backward, gasping for breath. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The bold Malchambalde pulls a flavescent potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! The grisly popobala failed to land its hit. 
+
+He pulls a honeydew potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the gallant Malchambalde surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+He sneaked around to popobala's blind spot. The popobala leans low, ready to strike with its might. 
+
+The adventurer pulls a thulian pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! The shocking popobala failed to land its hit. 
+
+The popobala struck with its bite! The fairy popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the valiant Malchambalde surely left a impression. 
+
+The popobala struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! Although he's hit landed, popobala is mostly unphased
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! The dreadful popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+Malchambalde the classicour hero sneaked around to popobala's blind spot. The popobala struck with its bite! The adventurer jumps out of the way. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! A sharp crack was heard as the strike left its mark. The popobala struck with its bite! The loathsome popobala failed to land its hit. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from he surely left a impression. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+He pulls a folly potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! Malchambalde reeled back in pain. 
+
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! He jumps out of the way. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The attack from the grandiose Malchambalde surely left a impression. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+Malchambalde the courageousour hero pulls a sap green potion from his pack and drinks it. He is reinvigorated. The popobala struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! He blocks the strike with his sword. 
+
+The popobala struck with its bite! The ghastly popobala failed to land its hit. The classic Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala leans low, ready to strike with its might. 
+
+The popobala struck with its bite! The adventurer blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The popobala struck with its bite! The scary popobala failed to land its hit. 
+
+The popobala struck with its bite! The repellent popobala failed to land its hit. the mythological Malchambalde stumbles to his knee, gasping for breath. The popobala leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. The gutsy Malchambalde pulls a mustard potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde pulls a copper penny potion from his pack and drinks it. He is reinvigorated. The popobala leans low, ready to strike with its might. 
+
+The adventurer sneaked around to popobala's blind spot. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala leans low, ready to strike with its might. The popobala struck with its bite! Malchambalde jumps out of the way. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. The popobala struck with its bite! He stunbles backward, gasping for breath. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The popobala leans low, ready to strike with its might. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
+
+The popobala struck with its bite! The abominable popobala failed to land its hit. he stumbles to his knee, gasping for breath. The popobala struck with its bite! The grisly popobala failed to land its hit. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was struck by the blow! The popobala struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala was staggered by the immense force. 
+
+Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the popobala, his sword ready to strike! The popobala took a glancing blow. 
+
+The popobala leans low, ready to strike with its might. Malchambalde lunged toward the popobala, his sword ready to strike! The slippery popobala evaded Malchambalde's hit. 
+
+He was victorious! The popobala menaced for no longer! 
+
+## <a name="chapter10"></a> Chapter 10: Milton and the Giant Frilled Lizard
+
+Malchambalde followed a dirt path into the village of Milton. Two saddlers talked excitedly with what appeared to be a saltboiler. Two bailiffs ran from person to person, asking if they had seen Goizelin. Malchambalde continued down the path. While the waterman talked excitedly with what appeared to be a fresco painter, a librarian rushed by quickly, ignoring him.
+
+Eventually, Malchambalde arrived at the town square, where he found a fishmonger. Malchambalde approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Otes took over?" Malchambalde asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Two hatmakers loaded a market stall with wares. The man sat in silence for a while, but eventually responded.
+
+"Our village of Fark will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Gusse is the best in town. His shop is down the street to the monastery and left. You'll see a tavern. It's past the monastery. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Brantios is down the street to the inn and right. You'll see a tavern. It's just a bit further down the street. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Sumantes hurried towards the armory. Nearby, a girdler slowly carried supplies. Two scholars talked excitedly with what appeared to be a baker. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. A nailmaker hawked fine imported goods from Suth EreenhamblesminnÃºninaullang. While the currier bit into an apple, a locksmith talked excitedly with what appeared to be a shipwright. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Gusse looked up from his work behind a counter at Sumantes.
+Brantios looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Gusse grabbed a dusty book from the shelf and flipped through it. Pictures of achaierais and bodaks flew by. Eventually he settled on a page and started to explain.
+Brantios lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant frilled lizard."
 
-The armorer sighed and continued. "Known for their potent—and ultimately deadly—scent, xtabays are a floral hazard to the unwary. As fast-spreading as ivy, a xtabay's vines are sturdy and adaptive, making the plant a potential threat nearly everywhere—from gardens to wells to forest groves."
+"This lizard is a true behemoth—an apex predator found in tropical regions. Many species of giant lizard exist—other species lack this lizard's intimidating charge special ability but might have other special attacks like grab, trip, constrict (with a bite), or pounce." Brantios explained.
 
-"But my weapons may be too weak. Are there any other ways to defeat the xtabay?" Sumantes asked.
+Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Gusse returned to the book of monsters on the desk and pointed at the terrifying illustration. "Attractive flowers blossom from the vines of xtabays, emitting the spores that mean a slow death for their victims. The strange, face-like patterns that grow on the petals are disturbing but seem to have no real function. Hermits or other reclusive types have been known to surround their territory with xtabays, warding off pesky creatures and adventurers alike. Instances of xtabays of larger-than-usual size have also been reported. These massive plants possess tendrils as thick as tree limbs and flowers that can fell even the hardiest of warriors with their overwhelming perfume. Underground, xtabays thrive in the wet, dark environment, covering the walls and floors of entire caverns and anesthetizing whole dens of subterranean creatures."
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde saw a loathsome giant frilled lizard in the distance! Our hero fixed his gaze on the horrendous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-"Nomadic plants, xtabays traverse large expanses of land until they sense nearby life, at which point they lie dormant and take on the guise of harmless flowers while releasing their deceptive aroma. Once a creature is subdued, the beast-like plant wastes no time in devouring it, disregarding creatures unaffected by its aroma. Because of their carnivorous nature, xtabays only rarely run short on nutrients, consuming the entirety of a victim's body over the course of several days following the initial process of draining its blood. Xtabays are able to devour creatures thanks to their lengthy roots, which produce a corrosive acid that breaks down and absorbs flesh and bone." Gusse explained.
+The stouthearted Malchambalde was victorious! The giant frilled lizard menaced for no longer! 
 
-"But my weapons may be too weak. Are there any other ways to defeat the xtabay?" Sumantes asked.
+## <a name="chapter11"></a> Chapter 11: Blaccadingsidge and the Contract Devil
 
-"That's all I can tell you."
+Malchambalde followed a dirt path into the village of Blaccadingsidge. While the baker eyed him suspiciously, a stewsman sat by the side of the road. Nearby, a engineer finished an apple and tossed the core aside. Malchambalde continued down the path. A curate finished an apple and tossed the core aside.
 
-Sumantes saw a fearful xtabay in the distance! The high-flown Sumantes readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Eventually, Malchambalde arrived at the town square, where he found a bricker. Malchambalde approached him, hoping for some advice.
 
-The xtabay struck with its stings! Sumantes winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The xtabay leans low, ready to strike with its might. 
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
 
-The xtabay struck with its stings! Sumantes reeled back in pain. Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. 
+Two curriers ran from person to person, asking if they had seen Kemene. The man sat in silence for a while, but eventually responded.
 
-He sneaked around to xtabay's blind spot. Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. 
-
-Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. The xtabay struck with its stings! He blocks the strike with his sword. Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. 
-
-Sumantes lunged toward the xtabay, his sword ready to strike! The xtabay was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. 
-
-Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to xtabay's blind spot. 
-
-Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Gusse was talking about."
-
-## <a name="chapter11"></a> Chapter 11: RÃ³menharenhalonet and the Monadic Deva
-
-Sumantes followed a dirt path into the village of RÃ³menharenhalonet. While the chancellor stood by a market stall, negotiating with the waterman, a brushbinder eyed him suspiciously. A buckle maker scuttled out of his way. Sumantes continued down the path. Nearby, a girdler gazed at him from an open window.
-
-Eventually, Sumantes arrived at the town square, where he found a engraver. The man, eying his strong forearms, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-A diplomat bit into an apple. The man quietly reminised about the past, then finally responded.
-
-"Our village of Gillip Gard will gladly help you on your quest. What do you need?"
+"Our village of Edhentok will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Ditman is the best in town. His shop is down the street to the barn and right. You'll see a monastery. It's into the market and towards the inn. Eventually you need to walk past the tavern. It's just to the right. I'd show you myself, but I have urgent matters to attend to here in the square."
+"The armory is just a bit further down the street. It's just to the left. You'll find Godefridurandus, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 3 small coins. "I want that Otes gone as much as anybody."
 
-Sumantes hurried towards the armory. While the priest slept in an alleyway, a beekeeper hawked fine imported goods from Embley Whighborock. While the monk gazed at him from an open window, a monk scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. Nearby, a joiner slowly carried supplies. Two pardoners gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Ditman looked up from his work behind a counter at Sumantes.
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the kodama, or perhaps even the bone golem, but that's nothing compared to the monadic deva we've got."
+Godefridurandus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The contract devil."
 
-Ditman returned to the book of monsters on the desk and pointed at the terrifying illustration. "Monadic devas are stoic watchers of the Ethereal Plane and the Elemental Planes. They search those planes for fiendish enclaves, battle evil planar monsters such as xills, and act as celestial liaisons to the genies and elementals. They have been known to broker temporary peace between warring elemental factions, often using their inherent magic to end hostilities long enough for negotiations to take place. In the armies of the good planes, they are leaders and officers, and after centuries of service to a deity, they may be transformed into astral devas."
+"A contract devil, also a called phistophilus, always appears handsome and confident, its chiseled features housing a perpetually smug grin. Contract devils have red skin and black hair and stand near 6-1/2 feet in height, not counting their horns. The thicket of horns around a contract devil's body increases its height to 7 feet and its weight to 350 pounds." Godefridurandus explained.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+"I could handle that. Tell me again, what makes the contract devil so bad?" Malchambalde responded.
 
-"Monadic devas like giving their maces names and proudly announcing them in battle with evil foes. Many of these weapons have seen battle for thousands of years and are quite battered. Younger devas may lend their weapons to good churches on the Material Plane so they can be used by great mortal heroes, though the angels eventually reclaim them after no more than a year and a day." Ditman explained.
+Godefridurandus returned to the book of monsters on the desk and pointed at the terrifying illustration. " They exist to keep track of the damned,  to manage Hell's endless ordinances, and, when time and opportunity permit, to coax mortals into damnation. Most phistophiluses spend their eternities in the various courts of Hell's nine layers, particularly in the maze-like fortress-libraries where all infernal laws and oaths are recorded. Occasionally they serve similar roles on the Material Plane when summoned by particularly desperate, arrogant, or foolish mortals."
 
-Sumantes slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the contract devil so bad?" Malchambalde responded.
 
-The armorer sighed and continued. "A monadic deva is 7 feet tall and weighs 220 pounds."
+"When one of the souls damned by a contract devil is restored to life (typically via powerful magic like a wish or miracle), the phistophilus immediately notices the transgression. Usually, the contract devil recruits the aid of more powerful allies to track down and punish such transgressors and to collect the escaped soul as quickly as possible." Godefridurandus explained.
 
-Sumantes slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Sumantes saw a beastly monadic deva in the distance! Our hero fixed his gaze on the detestable sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The monadic deva leans low, ready to strike with its might. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva was struck by the blow! The monadic deva struck with its morningstar! The hideous monadic deva failed to land its hit. Sumantes lunged toward the monadic deva, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The monadic deva struck with its morningstar! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The monadic deva struck with its morningstar! The fierce blow from the monster narrowly misses the adventurer. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-He sneaked around to monadic deva's blind spot. The monadic deva struck with its morningstar! Sumantes jumps out of the way. 
-
-Sumantes the daringour hero sneaked around to monadic deva's blind spot. Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva was staggered by the immense force. 
-
-The grand Sumantes sneaked around to monadic deva's blind spot. Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva was struck by the blow! 
-
-The monadic deva struck with its morningstar! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The monadic deva leans low, ready to strike with its might. 
-
-The monadic deva struck with its morningstar! He stunbles backward, gasping for breath. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The high-flown Sumantes sneaked around to monadic deva's blind spot. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes the fearlessour hero sneaked around to monadic deva's blind spot. The monadic deva struck with its morningstar! The fierce blow from the monster narrowly misses he. 
-
-The monadic deva leans low, ready to strike with its might. The monadic deva struck with its morningstar! The gutsy Sumantes blocks the strike with his sword. 
-
-He pulls a egyptian blue potion from his pack and drinks it. He is reinvigorated. The monadic deva leans low, ready to strike with its might. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Sumantes the boldour hero sneaked around to monadic deva's blind spot. 
-
-The monadic deva struck with its morningstar! The shameful monadic deva failed to land its hit. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The attack from he surely left a impression. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The monadic deva leans low, ready to strike with its might. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The monadic deva leans low, ready to strike with its might. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The monadic deva struck with its morningstar! The awful monadic deva failed to land its hit. he stumbles to his knee, gasping for breath. The monadic deva leans low, ready to strike with its might. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The attack from he surely left a impression. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva took a glancing blow. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! Although he's hit landed, monadic deva is mostly unphased
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monadic deva struck with its morningstar! Sumantes reeled back in pain. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monadic deva struck with its morningstar! He stunbles backward, gasping for breath. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The monadic deva leans low, ready to strike with its might. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! Although he's hit landed, monadic deva is mostly unphasedThe monster was stunned by the attack. Sumantes sneaked around to monadic deva's blind spot. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The monadic deva was staggered by the immense force. The monster was stunned by the attack. Sumantes pulls a honeydew potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the classicour hero sneaked around to monadic deva's blind spot. 
-
-The monadic deva struck with its morningstar! The gruesome monadic deva failed to land its hit. Sumantes leaned on his sword to catch a moment's respite. Sumantes the stand tallour hero was worn out by the combat. The monadic deva leans low, ready to strike with its might. 
-
-The monadic deva struck with its morningstar! The fierce blow from the monster narrowly misses Sumantes the valiantour hero. The exhilarating combat made the hours seem like seconds. The monadic deva leans low, ready to strike with its might. 
-
-Sumantes pulls a brink pink potion from his pack and drinks it. He is reinvigorated. The monadic deva struck with its morningstar! He jumps out of the way. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monadic deva struck with its morningstar! He jumps out of the way. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The noble Sumantes landed a massive hit on monadic deva! 
-
-The monadic deva struck with its morningstar! Sumantes the lion-heartedour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The monadic deva struck with its morningstar! He winces from the pain but continues fighting. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! Although Sumantes's hit landed, monadic deva is mostly unphasedThe monster was stunned by the attack. He pulls a gray asparagus potion from his pack and drinks it. He is reinvigorated. 
-
-The monadic deva struck with its morningstar! The ungodly monadic deva failed to land its hit. he stumbles to his knee, gasping for breath. The monadic deva leans low, ready to strike with its might. 
-
-The monadic deva leans low, ready to strike with its might. The monadic deva struck with its morningstar! Sumantes the daringour hero blocks the strike with his sword. 
-
-The monadic deva leans low, ready to strike with its might. The monadic deva struck with its morningstar! He jumps out of the way. 
-
-He pulls a feldgrau potion from his pack and drinks it. He is reinvigorated. The monadic deva leans low, ready to strike with its might. 
-
-He pulls a limerick potion from his pack and drinks it. He is reinvigorated. The monadic deva leans low, ready to strike with its might. 
-
-The monadic deva struck with its morningstar! The adventurer jumps out of the way. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-The monadic deva struck with its morningstar! Sumantes the grandioseour hero jumps out of the way. he stumbles to his knee, gasping for breath. The monadic deva leans low, ready to strike with its might. 
-
-Sumantes pulls a dark pastel blue potion from his pack and drinks it. He is reinvigorated. The monadic deva leans low, ready to strike with its might. 
-
-The valorous Sumantes sneaked around to monadic deva's blind spot. The monadic deva struck with its morningstar! He jumps out of the way. 
-
-Sumantes lunged toward the monadic deva, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the monadic deva, his sword ready to strike! The attack from he surely left a impression. 
-
-The monadic deva struck with its morningstar! The awful monadic deva failed to land its hit. he stumbles to his knee, gasping for breath. The monadic deva leans low, ready to strike with its might. 
-
-He pulls a pale plum potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the monadic deva, his sword ready to strike! The slippery monadic deva evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Ditman was talking about."
-
-## <a name="chapter12"></a> Chapter 12: Glow and the Spectre
-
-Sumantes followed a dirt path into the village of Glow. The quartermaster slowly carried supplies with a executioner. Nearby, a scrivener bit into an apple. Sumantes continued down the path. A turner sat by the side of the road.
-
-Eventually, Sumantes arrived at the town square, where he found a pardoner. The man, eying his foreboding cloak, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-While the pavior talked excitedly with what appeared to be a saltboiler, a quarryman threw punches. He still looked suspicious, then finally responded.
-
-"Our village of Warnest will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is down the street to the barn and right. You'll see a tavern. It's down the street to the monastery and right. You'll see a barn. It's just a bit further down the street. Look for the large hanging sign that reads "Aethuelippomes Fine Supplies". You'll find Aethuelippomes, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. A huntsman scuttled out of his way. While the fabricshearer gazed at him from an open window, a crofter stood by a market stall, negotiating with the skinner. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Aethuelippomes looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Aethuelippomes grabbed a dusty book from the shelf and flipped through it. Pictures of crucidaemons and pixies flew by. Eventually he settled on a page and started to explain.
-
-The armorer sighed and continued. "Spectres are evil undead that hate sunlight and living things. Most are the remnants of murdered or evil humans, their anger preventing them from entering the afterlife. Like ghosts, spectres haunt the places of their deaths, and seek to draw others into the lonely abyss of undeath."
-
-"But my weapons may be too weak. Are there any other ways to defeat the spectre?" Sumantes asked.
-
-The armorer sighed and continued. "A spectre looks much as it did in life and can be easily recognized by those who knew the individual or have seen the individual's face in paintings or drawings. Spectres retain a strong sense of identity, and even ancient, insane spectres generally remain coherent. Evil historians and necromancers often try to ally with spectres for the knowledge they held in life and retain in undeath."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"That's all I can tell you."
-
-Sumantes saw a horrendous spectre in the distance! Our hero fixed his gaze on the fearful sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-He sneaked around to spectre's blind spot. The spectre struck with its incorporeal touch! The abhorrent spectre failed to land its hit. 
-
-Sumantes lunged toward the spectre, his sword ready to strike! Although Sumantes's hit landed, spectre is mostly unphasedThe monster was stunned by the attack. Sumantes lunged toward the spectre, his sword ready to strike! The slippery spectre evaded Sumantes's hit. 
-
-Sumantes pulls a maroon crayola potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the spectre, his sword ready to strike! The spectre was staggered by the immense force. 
-
-Sumantes lunged toward the spectre, his sword ready to strike! Sumantes landed a massive hit on spectre! The monster was stunned by the attack. Sumantes lunged toward the spectre, his sword ready to strike! The slippery spectre evaded Sumantes's hit. 
-
-The spectre struck with its incorporeal touch! Sumantes reeled back in pain. Sumantes lunged toward the spectre, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Sumantes lunged toward the spectre, his sword ready to strike! The slippery spectre evaded Sumantes's hit. The spectre struck with its incorporeal touch! The eerie spectre failed to land its hit. Sumantes lunged toward the spectre, his sword ready to strike! The attack from Sumantes the unafraidour hero surely left a impression. 
-
-The spectre struck with its incorporeal touch! The adventurer stunbles backward, gasping for breath. The epic Sumantes leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The spectre leans low, ready to strike with its might. 
-
-He pulls a caf noir potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the spectre, his sword ready to strike! The slippery spectre evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Aethuelippomes was talking about."
-
-## <a name="chapter13"></a> Chapter 13: Brown and the Astradaemon
-
-Sumantes followed a dirt path into the village of Brown. Two shinglers talked excitedly with what appeared to be a poacher. Two woodcarvers hawked fine imported goods from Mingort. Sumantes continued down the path. Nearby, a terrazo grinder slept in an alleyway.
-
-Eventually, Sumantes arrived at the town square, where he found a summoner. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-A ferryman bit into an apple. He still looked suspicious, then finally responded.
-
-"Our village of Leich will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. There's a small door. You'll find Alec, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. Nearby, a spinster loaded a market stall with wares. Two fresco painters slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Alec looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the minotaur, or perhaps even the tendriculos, but that's nothing compared to the astradaemon we've got."
-
-The armorer sighed and continued. "Believed to be creations of the Four Horsemen, astradaemons live out their existence in search of souls to harvest. These deadly creatures are ravening planar predators, openly hunting throughout the void for souls on which to feed. These voracious creatures are the personifications of death resulting from negative energy or level drain. Their vile touch drains life force from their enemies, and even perishing near them sates their thirst for life and souls. "
-
-Sumantes slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Sumantes saw a menacing astradaemon in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the impavidour hero sneaked around to astradaemon's blind spot. 
-
-He sneaked around to astradaemon's blind spot. Sumantes lunged toward the astradaemon, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He pulls a han purple potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! Sumantes the grandour hero landed a massive hit on astradaemon! 
-
-The adventurer pulls a dark byzantium potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! Although he's hit landed, astradaemon is mostly unphased
-
-Sumantes pulls a light gray potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! Although he's hit landed, astradaemon is mostly unphased
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The astradaemon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! He winces from the pain but continues fighting. Sumantes the unafraidour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was staggered by the immense force. 
-
-Sumantes sneaked around to astradaemon's blind spot. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! The inflated Sumantes winces from the pain but continues fighting. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! He blocks the strike with his sword. Sumantes leaned on his sword to catch a moment's respite. The dauntless Sumantes was worn out by the combat. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! The appalling astradaemon failed to land its hit. Sumantes lunged toward the astradaemon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The astradaemon struck with its bite! The adventurer winces from the pain but continues fighting. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon took a glancing blow. The monster was stunned by the attack. Sumantes pulls a dark scarlet potion from his pack and drinks it. He is reinvigorated. 
-
-The astradaemon struck with its bite! Sumantes the exaggeratedour hero jumps out of the way. Sumantes the epicour hero leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The astradaemon struck with its bite! He winces from the pain but continues fighting. 
-
-The astradaemon struck with its bite! The evil astradaemon failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. Sumantes the undauntedour hero was worn out by the combat. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes pulls a flamingo pink potion from his pack and drinks it. He is reinvigorated. The astradaemon struck with its bite! He jumps out of the way. 
-
-The astradaemon struck with its bite! The high-flown Sumantes jumps out of the way. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was struck by the blow! 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! The unholy astradaemon failed to land its hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! Although Sumantes the unafraidour hero's hit landed, astradaemon is mostly unphasedThe astradaemon struck with its bite! The revolting astradaemon failed to land its hit. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-He sneaked around to astradaemon's blind spot. Sumantes lunged toward the astradaemon, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The astradaemon struck with its bite! Sumantes reeled back in pain. 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! He jumps out of the way. 
-
-The astradaemon struck with its bite! The disagreeable astradaemon failed to land its hit. the gallant Sumantes stumbles to his knee, gasping for breath. The astradaemon struck with its bite! He stunbles backward, gasping for breath. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to astradaemon's blind spot. 
-
-Sumantes sneaked around to astradaemon's blind spot. Sumantes lunged toward the astradaemon, his sword ready to strike! The attack from he surely left a impression. 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! He jumps out of the way. 
-
-Sumantes sneaked around to astradaemon's blind spot. The astradaemon leans low, ready to strike with its might. 
-
-He pulls a wild watermelon potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was staggered by the immense force. 
-
-The valiant Sumantes sneaked around to astradaemon's blind spot. The astradaemon struck with its bite! The mythological Sumantes jumps out of the way. 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! Sumantes reeled back in pain. 
-
-He sneaked around to astradaemon's blind spot. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was struck by the blow! 
-
-The astradaemon struck with its bite! He blocks the strike with his sword. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was struck by the blow! 
-
-The astradaemon leans low, ready to strike with its might. The astradaemon struck with its bite! Sumantes blocks the strike with his sword. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The astradaemon struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-He sneaked around to astradaemon's blind spot. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! Sumantes the fire-eatingour hero jumps out of the way. Sumantes stumbles to his knee, gasping for breath. The astradaemon leans low, ready to strike with its might. 
-
-Sumantes the bigger than lifeour hero pulls a forest green web potion from his pack and drinks it. He is reinvigorated. The astradaemon struck with its bite! The fierce blow from the monster narrowly misses Sumantes. 
-
-The astradaemon struck with its bite! He jumps out of the way. he stumbles to his knee, gasping for breath. The astradaemon leans low, ready to strike with its might. 
-
-He pulls a manatee potion from his pack and drinks it. He is reinvigorated. The astradaemon leans low, ready to strike with its might. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! Sumantes the lion-heartedour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses the adventurer. he stumbles to his knee, gasping for breath. The astradaemon struck with its bite! He jumps out of the way. 
-
-The adventurer sneaked around to astradaemon's blind spot. The astradaemon struck with its bite! Sumantes reeled back in pain. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses he. Sumantes the gallantour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The astradaemon struck with its bite! He jumps out of the way. 
-
-He pulls a cinnabar potion from his pack and drinks it. He is reinvigorated. The astradaemon leans low, ready to strike with its might. 
-
-He pulls a sandy taupe potion from his pack and drinks it. He is reinvigorated. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses Sumantes. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! The heinous astradaemon failed to land its hit. The exhilarating combat made the hours seem like seconds. The astradaemon struck with its bite! The offensive astradaemon failed to land its hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to astradaemon's blind spot. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses Sumantes. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! The repulsive astradaemon failed to land its hit. Sumantes lunged toward the astradaemon, his sword ready to strike! He landed a massive hit on astradaemon! 
-
-He pulls a cool grey potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon leans low, ready to strike with its might. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! Although the stand tall Sumantes's hit landed, astradaemon is mostly unphasedThe monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The astradaemon struck with its bite! The fierce blow from the monster narrowly misses Sumantes. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was staggered by the immense force. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon took a glancing blow. The monster was stunned by the attack. He sneaked around to astradaemon's blind spot. 
-
-Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the epicour hero sneaked around to astradaemon's blind spot. 
-
-The astradaemon struck with its bite! Sumantes blocks the strike with his sword. Sumantes lunged toward the astradaemon, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-He pulls a bright green potion from his pack and drinks it. He is reinvigorated. The astradaemon leans low, ready to strike with its might. 
-
-The astradaemon struck with its bite! The courageous Sumantes jumps out of the way. Sumantes lunged toward the astradaemon, his sword ready to strike! The astradaemon was struck by the blow! 
-
-He pulls a old mauve potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the astradaemon, his sword ready to strike! The slippery astradaemon evaded Sumantes's hit. 
-
-The astradaemon struck with its bite! He jumps out of the way. Sumantes the epicour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The astradaemon leans low, ready to strike with its might. 
-
-Sumantes was victorious! The astradaemon menaced for no longer! 
-
-## <a name="chapter14"></a> Chapter 14: Crow Royamblesmorton Par and the Hellcat
-
-Sumantes followed a dirt path into the village of Crow Royamblesmorton Par. Two cutlers loaded a market stall with wares. The stonecutter eyed him suspiciously with a plattner. Sumantes continued down the path. Nearby, a maid sat by the side of the road.
-
-Eventually, Sumantes arrived at the town square, where he found a nun. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-A sailor rushed by quickly, ignoring him. The man sat in silence for a while, then finally responded.
-
-"Our village of Grins Ders Huld Corieldge Harbrislest-ing will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Ailmyn is the best in town. His shop is just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. The pikeman gazed at him from an open window with a bellfounder. While the hobbler slept in an alleyway, a groom rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Ailmyn looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Ailmyn lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The hellcat."
-
-"The hellcat is a devious predator native to the fiery pits of Hell. While the hellcat is not a devil itself, it often acts as a guardian or mount for devils. Some might assume that hellcats serve devils as pets, but since hellcats are as intelligent as humans, they take offense to the idea that they might be anyone's pet." Ailmyn explained.
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"On its own, a hellcat prefers to spend its time hunting and stalking prey. While the hellcat, as an outsider, need not eat to survive, it does enjoy eating for pleasure, often leaving significant portions of its kills behind for others to find. A hellcat that enters into an alliance with a devil is often used as a sort of hunter as a result. Human mortals can use spells like planar ally or planar binding to conjure hellcats for similar purposes. Those who do so are well advised to treat the hellcat with respect, for should any master prove too haughty with his hellcat or treat it as a dumb animal, the hellcat nurtures a lasting grudge. In such instances, the hellcat goes to great lengths to plan and coordinate revenge on the spellcaster, hoping to satisfy its own pride and to provide a lesson and example to all those who would deal with their kind." Ailmyn explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the hellcat?" Sumantes asked.
-
-"Though incapable of speech themselves, hellcats understand the Infernal tongue of their home plane, and can communicate by telepathy with any creature capable of speech. Hellcats are quick to retreat if they are clearly overmatched or up against foes they cannot reach, but they never forget prey that escapes them, and will often track potential victims and try to lead allies (including other hellcats) to them in order to make coordinated attacks or ambushes." Ailmyn explained.
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"The hellcat is only clearly visible in dim light, at these times appearing as a skeletal dire tiger with hellish flames burning and flickering along the surface of its bones. Despite this eerie appearance, the hellcat is neither undead nor an elemental creature. The "fires" are actually its blood coursing through transparent flesh. In bright light, the hellcat's entire body fades away into obscurity, while in darkness its glowing blood is muted. " Ailmyn explained.
-
-"I could handle that. Tell me again, what makes the hellcat so bad?" Sumantes responded.
-
-The armorer sighed and continued. "Hellcats are as large as tigers, measuring 9 feet long and weighing 900 pounds."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"That's all I can tell you."
-
-Sumantes saw a mean hellcat in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The hellcat leans low, ready to strike with its might. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-The hellcat leans low, ready to strike with its might. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-He pulls a olivine potion from his pack and drinks it. He is reinvigorated. The hellcat leans low, ready to strike with its might. 
-
-He sneaked around to hellcat's blind spot. The hellcat leans low, ready to strike with its might. 
-
-The adventurer sneaked around to hellcat's blind spot. The hellcat struck with its bite! The awful hellcat failed to land its hit. 
-
-The adventurer sneaked around to hellcat's blind spot. The hellcat leans low, ready to strike with its might. 
-
-He pulls a tea rose rose potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the hellcat, his sword ready to strike! Although Sumantes the boldour hero's hit landed, hellcat is mostly unphased
-
-The hellcat leans low, ready to strike with its might. The hellcat struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Sumantes the bigger than lifeour hero pulls a mint potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-The hellcat leans low, ready to strike with its might. The hellcat struck with its bite! The classic Sumantes jumps out of the way. 
-
-He pulls a carolina blue potion from his pack and drinks it. He is reinvigorated. The hellcat struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The hellcat struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The hellcat leans low, ready to strike with its might. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the hellcat, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He sneaked around to hellcat's blind spot. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-He sneaked around to hellcat's blind spot. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-Sumantes pulls a rose potion from his pack and drinks it. He is reinvigorated. The hellcat leans low, ready to strike with its might. 
-
-The hellcat struck with its bite! He jumps out of the way. Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The hellcat struck with its bite! The lurid hellcat failed to land its hit. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the hellcat, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The hellcat struck with its bite! Sumantes reeled back in pain. The exhilarating combat made the hours seem like seconds. The hellcat struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The hellcat struck with its bite! The adventurer blocks the strike with his sword. he stumbles to his knee, gasping for breath. The hellcat struck with its bite! The unholy hellcat failed to land its hit. 
-
-The hellcat struck with its bite! The unkind hellcat failed to land its hit. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! The hellcat was struck by the blow! The hellcat struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the hellcat, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The hellcat leans low, ready to strike with its might. The hellcat struck with its bite! He winces from the pain but continues fighting. 
-
-The hellcat leans low, ready to strike with its might. Sumantes lunged toward the hellcat, his sword ready to strike! The hellcat was struck by the blow! 
-
-Sumantes pulls a copper rose potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the hellcat, his sword ready to strike! The attack from he surely left a impression. 
-
-He pulls a red ncs potion from his pack and drinks it. He is reinvigorated. The hellcat leans low, ready to strike with its might. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! Although the elevated Sumantes's hit landed, hellcat is mostly unphasedThe hellcat struck with its bite! The terrible hellcat failed to land its hit. Sumantes lunged toward the hellcat, his sword ready to strike! The hellcat took a glancing blow. 
-
-The hellcat struck with its bite! Sumantes jumps out of the way. Sumantes the elevatedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The hellcat struck with its bite! The grisly hellcat failed to land its hit. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. The hellcat struck with its bite! The loathsome hellcat failed to land its hit. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-The stand tall Sumantes pulls a bazaar potion from his pack and drinks it. He is reinvigorated. The hellcat leans low, ready to strike with its might. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! That blow seemed like it could break some bones. The hellcat struck with its bite! The adventurer jumps out of the way. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-Sumantes lunged toward the hellcat, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the hellcat, his sword ready to strike! Although he's hit landed, hellcat is mostly unphased
-
-He pulls a flamingo pink potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the hellcat, his sword ready to strike! The slippery hellcat evaded Sumantes's hit. 
-
-The epic Sumantes pulls a warm black potion from his pack and drinks it. He is reinvigorated. The hellcat leans low, ready to strike with its might. 
-
-He was victorious! The hellcat menaced for no longer! 
-
-## <a name="chapter15"></a> Chapter 15: Stamin-th and the Horn Caterpillar
-
-Sumantes followed a dirt path into the village of Stamin-th. The privycleaner ran from person to person, asking if they had seen Menolitus with a shingler. The potboy loaded a market stall with wares with a plattner. Sumantes continued down the path. Nearby, a goldsmith stood by a market stall, negotiating with the combmaker.
-
-Eventually, Sumantes arrived at the town square, where he found a miner. The man, eying his strong forearms, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-A mosaic layer rushed by quickly, ignoring him. The man sat in silence for a while, but eventually responded.
-
-"Our village of Watforpornembark will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Aesce is the best in town. His shop is past the stables. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. A wheelwright loaded a market stall with wares. The bodger eyed him suspiciously with a chaplain. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Aesce lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The horn caterpillar."
-
-Aesce returned to the book of monsters on the desk and pointed at the terrifying illustration. "Unlike normal caterpillars, voracious giant horn caterpillars don't pupate into butterflies. Instead, they remain in their worm-like forms for their entire life cycle, growing between each molt until they eventually reach the size of large dogs."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"Horn caterpillars feed on the hooves and horns of dead ungulates, which they usually scavenge from corpses. Their sharp mandibles allow them to effortlessly shear through tendon and bone." Aesce explained.
-
-"I could handle that. Tell me again, what makes the horn caterpillar so bad?" Sumantes responded.
+Malchambalde slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Sumantes saw a ruinous horn caterpillar in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a menacing contract devil in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The horn caterpillar struck with its bite! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. Sumantes the fearlessour hero was worn out by the combat. The horn caterpillar struck with its bite! He jumps out of the way. 
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the classicour hero blocks the strike with his sword. 
 
-Sumantes lunged toward the horn caterpillar, his sword ready to strike! The slippery horn caterpillar evaded Sumantes's hit. The monster was stunned by the attack. The adventurer pulls a rosewood potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the doughtyour hero sneaked around to contract devil's blind spot. 
 
-The adventurer sneaked around to horn caterpillar's blind spot. The horn caterpillar struck with its bite! He blocks the strike with his sword. 
+The contract devil struck with its binding contract! The unholy contract devil failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The grisly contract devil failed to land its hit. 
 
-Sumantes lunged toward the horn caterpillar, his sword ready to strike! He landed a massive hit on horn caterpillar! The horn caterpillar struck with its bite! He blocks the strike with his sword. Sumantes lunged toward the horn caterpillar, his sword ready to strike! The horn caterpillar took a glancing blow. 
+He sneaked around to contract devil's blind spot. The contract devil leans low, ready to strike with its might. 
 
-The horn caterpillar struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The horn caterpillar struck with its bite! The fierce blow from the monster narrowly misses he. 
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the dauntlessour hero jumps out of the way. 
 
-The horn caterpillar leans low, ready to strike with its might. The horn caterpillar struck with its bite! Sumantes jumps out of the way. 
+He pulls a lime green potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
 
-Sumantes says
+Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The contract devil struck with its binding contract! He blocks the strike with his sword. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
 
-"That didn't seem so hard, I don't know what Aesce was talking about."
+The contract devil struck with its binding contract! Malchambalde blocks the strike with his sword. Malchambalde the valiantour hero leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil leans low, ready to strike with its might. 
 
-## <a name="chapter16"></a> Chapter 16: Water Easte and the Megalania
+Malchambalde lunged toward the contract devil, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a cerulean frost potion from his pack and drinks it. He is reinvigorated. 
 
-Sumantes followed a dirt path into the village of Water Easte. While the founder stood by a market stall, negotiating with the fool, a gemcutter threw punches. Two ragpickers slowly carried supplies. Sumantes continued down the path. Nearby, a brewer ran from person to person, asking if they had seen Aimesias.
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! Malchambalde reeled back in pain. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from the adventurer surely left a impression. 
 
-Eventually, Sumantes arrived at the town square, where he found a diplomat. The man, eying his dangerous demeanor, beckoned him forward.
+The adventurer pulls a goldenrod potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! Malchambalde the undauntedour hero blocks the strike with his sword. 
+
+The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! Malchambalde the unafraidour hero jumps out of the way. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a green ryb potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was struck by the blow! The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
+
+Malchambalde pulls a glitter potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He blocks the strike with his sword. 
+
+The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. the undaunted Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The horrendous contract devil failed to land its hit. 
+
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the adventurer. 
+
+The adventurer pulls a cyan potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil struck with its binding contract! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! Malchambalde blocks the strike with his sword. 
+
+The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+
+The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The contract devil leans low, ready to strike with its might. 
+
+He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the grand Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! He jumps out of the way. 
+
+The contract devil struck with its binding contract! Malchambalde jumps out of the way. Malchambalde stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+
+The contract devil struck with its binding contract! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The contract devil struck with its binding contract! The adventurer winces from the pain but continues fighting. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde the boldour hero sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The contract devil struck with its binding contract! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
+
+Malchambalde pulls a carmine red potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He jumps out of the way. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
+
+He pulls a pale blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The bold Malchambalde pulls a vivid auburn potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! The smelly contract devil failed to land its hit. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+
+He sneaked around to contract devil's blind spot. The contract devil leans low, ready to strike with its might. 
+
+The contract devil struck with its binding contract! The lurid contract devil failed to land its hit. The exhilarating combat made the hours seem like seconds. The contract devil leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil took a glancing blow. 
+
+The contract devil struck with its binding contract! He stunbles backward, gasping for breath. Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil struck with its binding contract! The adventurer jumps out of the way. 
+
+The contract devil struck with its binding contract! The loathsome contract devil failed to land its hit. The high-flown Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses the valiant Malchambalde. 
+
+The contract devil struck with its binding contract! The terrible contract devil failed to land its hit. The doughty Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The contract devil leans low, ready to strike with its might. 
+
+The gutty Malchambalde sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! The epic Malchambalde winces from the pain but continues fighting. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde sneaked around to contract devil's blind spot. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! He blocks the strike with his sword. 
+
+The contract devil leans low, ready to strike with its might. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses Malchambalde the bigger than lifeour hero. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
+
+He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! Although he's hit landed, contract devil is mostly unphased
+
+The contract devil leans low, ready to strike with its might. The contract devil struck with its binding contract! He winces from the pain but continues fighting. 
+
+The adventurer sneaked around to contract devil's blind spot. The contract devil struck with its binding contract! He jumps out of the way. 
+
+The contract devil struck with its binding contract! The revolting contract devil failed to land its hit. he stumbles to his knee, gasping for breath. The contract devil struck with its binding contract! The shameful contract devil failed to land its hit. 
+
+He pulls a rust potion from his pack and drinks it. He is reinvigorated. The contract devil struck with its binding contract! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The adventurer jumps out of the way. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+He sneaked around to contract devil's blind spot. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+He pulls a medium tuscan red potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+The contract devil struck with its binding contract! Malchambalde reeled back in pain. Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from he surely left a impression. 
+
+The contract devil struck with its binding contract! The loathsome contract devil failed to land its hit. The exhilarating combat made the hours seem like seconds. The contract devil leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The contract devil was staggered by the immense force. The monster was stunned by the attack. He sneaked around to contract devil's blind spot. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. The contract devil struck with its binding contract! The dreadful contract devil failed to land its hit. Malchambalde lunged toward the contract devil, his sword ready to strike! The slippery contract devil evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the contract devil, his sword ready to strike! The attack from Malchambalde the valorousour hero surely left a impression. The monster was stunned by the attack. Malchambalde the elevatedour hero pulls a jade potion from his pack and drinks it. He is reinvigorated. 
+
+He was victorious! The contract devil menaced for no longer! 
+
+## <a name="chapter12"></a> Chapter 12: Ken and the Cerebric Fungus
+
+Malchambalde followed a dirt path into the village of Ken. While the sailor scuttled out of his way, a philosopher talked excitedly with what appeared to be a woodturner. Two armorers scuttled out of his way. Malchambalde continued down the path. A vintner rushed by quickly, ignoring him.
+
+Eventually, Malchambalde arrived at the town square, where he found a sawyer. The man, eying his strong forearms, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
 
-While the glasspainter rushed by quickly, ignoring him, a lawyer rushed by quickly, ignoring him. The man quietly reminised about the past, then finally responded.
+A cheesemaker talked excitedly with what appeared to be a saddler. The man eyed him thoughtfullyHe finally responded.
 
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
+"Our village of Fins Cove will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Alkie is down the street to the barn and right. You'll see a church. It's into the market and towards the church. Eventually you need to walk into the market and towards the barn. Eventually you need to walk just a bit further down the street. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 3 small coins. "I want that Euryllus gone as much as anybody."
+"Thurus is past the barn. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Otes gone as much as anybody."
 
-Sumantes hurried towards the armory. While the skinner slept in an alleyway, a parker bit into an apple. Two lacemakers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. Nearby, a emperor stood by a market stall, negotiating with the dean. While the bookprinter scuttled out of his way, a shipwright scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Alkie looked up from his work behind a counter at Sumantes.
+Thurus looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Alkie grabbed a dusty book from the shelf and flipped through it. Pictures of aghasuras and flytrap leshys flew by. Eventually he settled on a page and started to explain.
+Thurus lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The cerebric fungus."
 
-"The immense megalania is often mistaken for a dragon or dinosaur. Certainly the lizard's aggressive attitude and deep, rumbling roars only encourage such misidentifications. Large enough to catch and eat rhinos and elephants, a megalania prefers hunting much smaller prey that it can gulp down in one greedy swallow. Humanoids are among its favorite meals. " Alkie explained.
+Thurus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Cerebric fungi are a race of carnivorous, intelligent fungi native to a distant planet. Although they are one of the lowliest life forms on their homeworld, the fungi still possess an alien intellect far beyond that of most terrestrial creatures. Cerebric fungi display great curiosity about other races and species when they visit other worlds, asking endless, apparently senseless, questions and engaging in disturbing experiments. Some eccentric scholars claim to have learned unsettling secrets from these interrogations."
 
-"But my weapons may be too weak. Are there any other ways to defeat the megalania?" Sumantes asked.
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
 
-Alkie returned to the book of monsters on the desk and pointed at the terrifying illustration. "A megalania is 20 feet long and weighs 2,000 pounds."
+The armorer sighed and continued. "Although capable of fine manipulation with their prehensile filaments, cerebric fungi normally forgo the use of weapons in favor of their natural attacks."
 
-Sumantes slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the cerebric fungus so bad?" Malchambalde responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a unholy cerebric fungus in the distance! Our hero fixed his gaze on the mean sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+The cerebric fungus struck with its bite! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The cerebric fungus struck with its bite! Malchambalde the inflatedour hero blocks the strike with his sword. 
+
+The cerebric fungus leans low, ready to strike with its might. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The adventurer landed a massive hit on cerebric fungus! 
+
+Malchambalde pulls a true blue potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+Malchambalde the unafraidour hero sneaked around to cerebric fungus's blind spot. The cerebric fungus struck with its bite! The gutsy Malchambalde blocks the strike with his sword. 
+
+Malchambalde sneaked around to cerebric fungus's blind spot. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the cerebric fungus, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! Although Malchambalde's hit landed, cerebric fungus is mostly unphased
+
+The cerebric fungus struck with its bite! Malchambalde winces from the pain but continues fighting. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+The doughty Malchambalde sneaked around to cerebric fungus's blind spot. The cerebric fungus struck with its bite! The adventurer blocks the strike with his sword. 
+
+He pulls a isabelline potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+He sneaked around to cerebric fungus's blind spot. The cerebric fungus leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. The fire-eating Malchambalde sneaked around to cerebric fungus's blind spot. 
+
+Malchambalde lunged toward the cerebric fungus, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. The adventurer pulls a violet potion from his pack and drinks it. He is reinvigorated. 
+
+The cerebric fungus struck with its bite! He winces from the pain but continues fighting. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the cerebric fungus, his sword ready to strike! The slippery cerebric fungus evaded Malchambalde's hit. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Thurus was talking about."
+
+## <a name="chapter13"></a> Chapter 13: Strider and the Dvorovoi
+
+Malchambalde followed a dirt path into the village of Strider. While the fiddler scuttled out of his way, a oyster raker talked excitedly with what appeared to be a organist. While the reaper slowly carried supplies, a summoner loaded a market stall with wares. Malchambalde continued down the path. The saltboiler ran from person to person, asking if they had seen Liza with a fence.
+
+Eventually, Malchambalde arrived at the town square, where he found a salter. The man, eying his determined look, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+
+Nearby, a jew bit into an apple. The man quietly reminised about the pastHe finally responded.
+
+"Our village of Slon will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Dith is the best in town. His shop is past the monastery. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. A privycleaner ran from person to person, asking if they had seen Malapanett. Two braziers slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Dith looked up from his work behind a counter at Malchambalde.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Dith grabbed a dusty book from the shelf and flipped through it. Pictures of tophets and festering spirits flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "Just as domovoi protect the home, dvorovoi protect villagers' yards and pastures. Intrigued by tales of the creatures' guardianship, some farmers lure dvorovoi to their fields by leaving offerings of bread, sheep's wool, or shiny trinkets. When the owner of a farmstead with a dvorovoi purchases a new animal, he leads it through the yard to introduce it to the dvorovoi, hoping to gain the fey creature's approval of the new livestock."
+
+"But my weapons may be too weak. Are there any other ways to defeat the dvorovoi?" Malchambalde asked.
+
+The armorer sighed and continued. "Though undeniably useful to have around for feeding the cattle and keeping predators away from flocks, dvorovoi can be capricious. Dvorovoi despise any white animal, and will never tolerate a white-furred horse or cow in their presence. For unknown reasons, dvorovoi don't hold this same grudge toward white chickens."
+
+Malchambalde slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Sumantes saw a scandalous megalania in the distance! Our hero fixed his gaze on the sickie sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a execrable dvorovoi in the distance! Our hero fixed his gaze on the hideous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The megalania leans low, ready to strike with its might. The megalania struck with its bite! The adventurer jumps out of the way. 
+The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The megalania struck with its bite! The fierce blow from the monster narrowly misses the stouthearted Sumantes. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+He sneaked around to dvorovoi's blind spot. The dvorovoi leans low, ready to strike with its might. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! Although he's hit landed, megalania is mostly unphasedThe monster was stunned by the attack. He sneaked around to megalania's blind spot. 
+The dvorovoi struck with its pitchfork! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The monster was stunned by the attack. He pulls a fuchsia potion from his pack and drinks it. He is reinvigorated. 
+He pulls a rich brilliant lavender potion from his pack and drinks it. He is reinvigorated. The dvorovoi leans low, ready to strike with its might. 
 
-The adventurer sneaked around to megalania's blind spot. The megalania leans low, ready to strike with its might. 
+The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses the undaunted Malchambalde. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dvorovoi struck with its pitchfork! The grim dvorovoi failed to land its hit. 
 
-The megalania leans low, ready to strike with its might. The megalania struck with its bite! The shocking megalania failed to land its hit. 
+The dvorovoi struck with its pitchfork! The heinous dvorovoi failed to land its hit. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-The megalania struck with its bite! The fierce blow from the monster narrowly misses Sumantes the dauntlessour hero. Sumantes the exaggeratedour hero stumbles to his knee, gasping for breath. The megalania struck with its bite! He jumps out of the way. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! The dvorovoi took a glancing blow. The monster was stunned by the attack. He pulls a burnt sienna potion from his pack and drinks it. He is reinvigorated. 
 
-He pulls a rackley potion from his pack and drinks it. He is reinvigorated. The megalania struck with its bite! Sumantes blocks the strike with his sword. 
+The dvorovoi struck with its pitchfork! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dvorovoi leans low, ready to strike with its might. 
 
-He pulls a fuchsia crayola potion from his pack and drinks it. He is reinvigorated. The megalania struck with its bite! The fearless Sumantes jumps out of the way. 
+The dvorovoi struck with its pitchfork! Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The dvorovoi leans low, ready to strike with its might. 
 
-He sneaked around to megalania's blind spot. Sumantes lunged toward the megalania, his sword ready to strike! The megalania took a glancing blow. 
+The dvorovoi struck with its pitchfork! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The dvorovoi leans low, ready to strike with its might. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! That blow seemed like it could break some bones. The megalania struck with its bite! Sumantes the mythologicalour hero jumps out of the way. Sumantes lunged toward the megalania, his sword ready to strike! The megalania took a glancing blow. 
+The dvorovoi struck with its pitchfork! Malchambalde the nobleour hero jumps out of the way. Malchambalde lunged toward the dvorovoi, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The megalania struck with its bite! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The megalania leans low, ready to strike with its might. 
+The valorous Malchambalde sneaked around to dvorovoi's blind spot. The dvorovoi struck with its pitchfork! The terrible dvorovoi failed to land its hit. 
 
-The megalania struck with its bite! The fierce blow from the monster narrowly misses Sumantes the undauntedour hero. The exhilarating combat made the hours seem like seconds. The megalania leans low, ready to strike with its might. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The dvorovoi struck with its pitchfork! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The attack from Malchambalde the guttyour hero surely left a impression. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The monster was stunned by the attack. The adventurer sneaked around to megalania's blind spot. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The megalania was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! The dvorovoi was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although the courageous Malchambalde's hit landed, dvorovoi is mostly unphased
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The megalania struck with its bite! The fierce blow from the monster narrowly misses Sumantes. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-The megalania leans low, ready to strike with its might. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+The dvorovoi struck with its pitchfork! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The dvorovoi struck with its pitchfork! Malchambalde reeled back in pain. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Sumantes sneaked around to megalania's blind spot. 
+The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-Sumantes the mythologicalour hero pulls a persian blue potion from his pack and drinks it. He is reinvigorated. The megalania struck with its bite! He winces from the pain but continues fighting. 
+Malchambalde the stoutheartedour hero sneaked around to dvorovoi's blind spot. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-He sneaked around to megalania's blind spot. The megalania struck with its bite! The gutty Sumantes jumps out of the way. 
+Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although Malchambalde the exaggeratedour hero's hit landed, dvorovoi is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the dvorovoi, his sword ready to strike! The slippery dvorovoi evaded Malchambalde's hit. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The megalania took a glancing blow. The monster was stunned by the attack. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+The dvorovoi leans low, ready to strike with its might. Malchambalde lunged toward the dvorovoi, his sword ready to strike! Although Malchambalde the grandioseour hero's hit landed, dvorovoi is mostly unphased
 
-He pulls a anti flash white potion from his pack and drinks it. He is reinvigorated. The megalania struck with its bite! Sumantes winces from the pain but continues fighting. 
+The dvorovoi struck with its pitchfork! He winces from the pain but continues fighting. the intrepid Malchambalde stumbles to his knee, gasping for breath. The dvorovoi struck with its pitchfork! The fierce blow from the monster narrowly misses Malchambalde the classicour hero. 
 
-He pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. The megalania struck with its bite! He blocks the strike with his sword. 
+The dvorovoi struck with its pitchfork! The horrid dvorovoi failed to land its hit. Malchambalde lunged toward the dvorovoi, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The attack from he surely left a impression. The megalania struck with its bite! He stunbles backward, gasping for breath. Sumantes lunged toward the megalania, his sword ready to strike! The attack from he surely left a impression. 
+He was victorious! The dvorovoi menaced for no longer! 
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The megalania struck with its bite! He stunbles backward, gasping for breath. Sumantes lunged toward the megalania, his sword ready to strike! The megalania took a glancing blow. 
+## <a name="chapter14"></a> Chapter 14: Aber Breetton Pariddle and the Ghoran
 
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The megalania struck with its bite! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
+Malchambalde followed a dirt path into the village of Aber Breetton Pariddle. The bookprinter threw punches with a coiner. While the wattler stood by a market stall, negotiating with the rat catcher, a rat catcher slept in an alleyway. Malchambalde continued down the path. The limner bit into an apple with a outlaw.
 
-The megalania struck with its bite! He jumps out of the way. Sumantes lunged toward the megalania, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
-
-He sneaked around to megalania's blind spot. Sumantes lunged toward the megalania, his sword ready to strike! The slippery megalania evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Alkie was talking about."
-
-## <a name="chapter17"></a> Chapter 17: Uxbrincand and the Coloxus
-
-Sumantes followed a dirt path into the village of Uxbrincand. The chantry priest bit into an apple with a dyer. Two merchant taylors sat by the side of the road. Sumantes continued down the path. Nearby, a woolcomber rushed by quickly, ignoring him.
-
-Eventually, Sumantes arrived at the town square, where he found a emperor. The man, eying his dangerous demeanor, beckoned him forward.
+Eventually, Malchambalde arrived at the town square, where he found a roofer. The man, eying his dangerous demeanor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
 
-Nearby, a stewsman threw punches. The man eyed him thoughtfully, then finally responded.
+Nearby, a mercer ran from person to person, asking if they had seen Merius. The man sat in silence for a whileHe finally responded.
 
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
+"Our village of Hudbur will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Chlodo is the best in town. His shop is down the street to the warehouse and right. You'll see a warehouse. It's past the warehouse. Look for the large hanging sign that reads "Chlodo Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Gunzurinus is the best in town. His shop is into the market and towards the cattle barn. Eventually you need to walk just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Otes gone as much as anybody."
 
-Sumantes hurried towards the armory. While the engineer rushed by quickly, ignoring him, a swordsmith loaded a market stall with wares. Nearby, a peasant loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. While the shoemaker stood by a market stall, negotiating with the broderer, a bleacher slowly carried supplies. Nearby, a furrier slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Chlodo looked up from his work behind a counter at Sumantes.
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Chlodo grabbed a dusty book from the shelf and flipped through it. Pictures of giant skunks and emotion oozes flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the cave fisher, or perhaps even the mummified gynosphinx, but that's nothing compared to the ghoran we've got."
 
-The armorer sighed and continued. "Coloxus demons, known also as fly demons, resemble humans with the head of a fly and twin pairs of gossamer wings. Even their smallest movements and gestures seem infused with manic quickness and alertness. A coloxus prefers to wear opulent clothing and jewels that would rival the wealthiest nobility of any race. A coloxus is 6 feet tall and weighs 150 pounds."
+"Ghorans arose from plant life created by advanced druidic magic to be an especially hardy and adaptive food source for humans. Over the centuries, the plants evolved sentience and ambulatory bodies that mimicked the appearance of humanoids as a method to discourage their enemies from hunting them and improve their chances of survival. Their creators did not imbue them with the ability to create more of the ghorus seeds that give them life, so ghorans are fanatically protective of these seeds and consider destroying them the worst of crimes." Gunzurinus explained.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
 
-"Ironically—given their grotesque, insectile appearance—coloxus demons are demons of vanity. They are formed from the souls of narcissistic mortals responsible for disasters or tragedy through their careless self-absorption." Chlodo explained.
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-"But my weapons may be too weak. Are there any other ways to defeat the coloxus?" Sumantes asked.
+Malchambalde saw a awful ghoran in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-Chlodo returned to the book of monsters on the desk and pointed at the terrifying illustration. "Despite their foul appearance, coloxus demons consider themselves cultured and elite. They are unusually patient and well mannered for demons, and as a result are often used as emissaries, diplomats, and negotiators by marilith generals, balors, and even demon lords. Even when facing hated foes, coloxus demons are the epitome of courtesy, but such manners are always a deceitful veneer, masking the creatures' efforts to gain the upper hand."
+Malchambalde sneaked around to ghoran's blind spot. The ghoran leans low, ready to strike with its might. 
 
-"I could handle that. Tell me again, what makes the coloxus so bad?" Sumantes responded.
+The grandiose Malchambalde pulls a sea blue potion from his pack and drinks it. He is reinvigorated. The ghoran leans low, ready to strike with its might. 
 
-The armorer sighed and continued. "Evil mortal spellcasters are  fond of conjuring coloxus demons for similar roles, but the monsters also work well as assassins. Even in this role, a coloxus is dignified and polite. Only when presented with a reflection of itself does the normally civilized coloxus show its true demonic colors—any creature foolish enough to trick a coloxus into looking at a mirror finds herself the eternal foe of an insulted and scandalized demon."
+The ghoran struck with its rapier! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The ghoran leans low, ready to strike with its might. 
 
-"I could handle that. Tell me again, what makes the coloxus so bad?" Sumantes responded.
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! He stunbles backward, gasping for breath. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. The epic Malchambalde sneaked around to ghoran's blind spot. 
+
+The ghoran leans low, ready to strike with its might. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran struck with its rapier! He winces from the pain but continues fighting. Malchambalde lunged toward the ghoran, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. The grandiose Malchambalde sneaked around to ghoran's blind spot. 
+
+The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! He blocks the strike with his sword. 
+
+The ghoran struck with its rapier! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghoran struck with its rapier! Malchambalde the boldour hero blocks the strike with his sword. 
+
+The ghoran struck with its rapier! He blocks the strike with his sword. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran struck with its rapier! Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ghoran leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a dark green potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran struck with its rapier! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ghoran leans low, ready to strike with its might. 
+
+The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! The fierce blow from the monster narrowly misses he. 
+
+The ghoran struck with its rapier! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The ghoran leans low, ready to strike with its might. 
+
+He pulls a pale green potion from his pack and drinks it. He is reinvigorated. The ghoran struck with its rapier! Malchambalde the grittyour hero blocks the strike with his sword. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde the unafraidour hero jumps out of the way. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The ghoran took a glancing blow. The ghoran struck with its rapier! The fierce blow from the monster narrowly misses Malchambalde the fearlessour hero. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran leans low, ready to strike with its might. The ghoran struck with its rapier! He jumps out of the way. 
+
+Malchambalde sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The adventurer sneaked around to ghoran's blind spot. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+The ghoran struck with its rapier! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ghoran leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The ghoran took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to ghoran's blind spot. 
+
+He pulls a coral red potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. The ghoran struck with its rapier! Malchambalde reeled back in pain. Malchambalde lunged toward the ghoran, his sword ready to strike! The slippery ghoran evaded Malchambalde's hit. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Gunzurinus was talking about."
+
+## <a name="chapter15"></a> Chapter 15: Toottad and the Adlet
+
+Malchambalde followed a dirt path into the village of Toottad. Two restaurateurs threw punches. A glover scuttled out of his way. Malchambalde continued down the path. Two friars loaded a market stall with wares.
+
+Eventually, Malchambalde arrived at the town square, where he found a bookbinder. The man, eying his determined look, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+While the baker stood by a market stall, negotiating with the lawyer, a astronomer threw punches. The man quietly reminised about the past, but eventually responded.
+
+"Our village of Harderf will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. It's just to the left. You'll find Pyle, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Malchambalde hurried towards the armory. While the restaurateur threw punches, a constable sat by the side of the road. The crofter finished an apple and tossed the core aside with a dairymaid. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Pyle looked up from his work behind a counter at Malchambalde.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Pyle lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The adlet."
+
+The armorer sighed and continued. "Adlets are cunning hunters of the arctic wilds. Tall, sinewy, nimble, and very quick, they see themselves as the true heritors of untamed arctic lands, and are offended by any other humanoid species that attempts to settle in such regions. Although not normally evil, adlets are very aggressive and warlike. They also have no social taboo against cannibalism, and their practice of eating their dead rather than burying them only further builds misconceptions about their morality."
+
+"But my weapons may be too weak. Are there any other ways to defeat the adlet?" Malchambalde asked.
+
+"Deeply religious, adlets worship the power and cruelty of nature, seeing divinity in the lash of the blizzard's wind, the ferocity of the polar bear, and the immensity of the towering iceberg. Many become oracles or druids, but all adlets know their place in the natural world. One in every dozen adlets is a shaman: an adlet with the advanced creature template and the ability to summon a greater ice elemental or 1d4+1 large ice elementals (see Bestiary 2 114) and commune with nature once per day each as spell-like abilities. An adlet is 6 feet tall and weighs 250 pounds." Pyle explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the adlet?" Malchambalde asked.
 
 "That's all I can tell you."
 
-Sumantes saw a scary coloxus in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a grisly adlet in the distance! Our hero fixed his gaze on the hideous sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The stouthearted Sumantes pulls a wild strawberry potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the coloxus, his sword ready to strike! The gallant Sumantes landed a massive hit on coloxus! 
+The adlet struck with its spear! The mean adlet failed to land its hit. he stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
 
-The gutsy Sumantes pulls a scarlet potion from his pack and drinks it. He is reinvigorated. The coloxus struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
+Malchambalde the fearlessour hero sneaked around to adlet's blind spot. The adlet struck with its spear! The hideous adlet failed to land its hit. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+Malchambalde the boldour hero pulls a azure potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The stouthearted Malchambalde jumps out of the way. 
 
-The coloxus struck with its bite! Sumantes reeled back in pain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The coloxus struck with its bite! The fierce blow from the monster narrowly misses he. 
+The adlet struck with its spear! The fierce blow from the monster narrowly misses he. the grand Malchambalde stumbles to his knee, gasping for breath. The adlet struck with its spear! The dreadful adlet failed to land its hit. 
 
-He pulls a maroon x11 potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! He jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The elevated Malchambalde sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
 
-He pulls a deep lilac potion from his pack and drinks it. He is reinvigorated. The coloxus struck with its bite! Sumantes jumps out of the way. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! He stunbles backward, gasping for breath. 
 
-Sumantes sneaked around to coloxus's blind spot. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. 
 
-The valorous Sumantes sneaked around to coloxus's blind spot. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! He jumps out of the way. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The attack from he surely left a impression. 
+Malchambalde the gallantour hero pulls a lavender blue potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
 
-The coloxus struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! Malchambalde the high-flownour hero winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The repulsive adlet failed to land its hit. 
 
-The coloxus struck with its bite! The fierce blow from the monster narrowly misses Sumantes. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! The revolting adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
 
-The coloxus struck with its bite! Sumantes jumps out of the way. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+Malchambalde pulls a deep jungle green potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The ruinous adlet failed to land its hit. 
 
-Sumantes the mythologicalour hero sneaked around to coloxus's blind spot. The coloxus struck with its bite! Sumantes the nobleour hero blocks the strike with his sword. 
+The adlet struck with its spear! Malchambalde reeled back in pain. Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
 
-The coloxus struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The coloxus struck with its bite! The fierce blow from the monster narrowly misses the gutty Sumantes. 
+The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde the stoutheartedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde. 
 
-He pulls a cinnabar potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! The dauntless Sumantes winces from the pain but continues fighting. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The adventurer blocks the strike with his sword. 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! Sumantes reeled back in pain. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The adlet struck with its spear! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the adlet, his sword ready to strike! He landed a massive hit on adlet! 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! He stunbles backward, gasping for breath. 
+Malchambalde the exaggeratedour hero pulls a deep cerise potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! The attack from he surely left a impression. 
 
-Sumantes pulls a medium ruby potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! Malchambalde the nobleour hero blocks the strike with his sword. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The shattering blow from Sumantes rumbled through the ground. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+Malchambalde lunged toward the adlet, his sword ready to strike! Although he's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-The coloxus struck with its bite! The gruesome coloxus failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The coloxus leans low, ready to strike with its might. 
+Malchambalde lunged toward the adlet, his sword ready to strike! Although Malchambalde the elevatedour hero's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The attack from Malchambalde the intrepidour hero surely left a impression. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! Malchambalde the stand tallour hero jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The adventurer jumps out of the way. 
 
-The grand Sumantes pulls a light cyan potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! The shocking adlet failed to land its hit. The noble Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The adlet leans low, ready to strike with its might. 
 
-Sumantes pulls a dark slate blue potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+He pulls a majorelle blue potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! The daring Malchambalde blocks the strike with his sword. 
 
-The valorous Sumantes pulls a alizarin crimson potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the coloxus, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The adlet struck with its spear! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The adventurer pulls a magnolia potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! Malchambalde jumps out of the way. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus struck with its bite! The gritty Sumantes jumps out of the way. The exhilarating combat made the hours seem like seconds. The coloxus struck with its bite! He jumps out of the way. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to adlet's blind spot. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The coloxus struck with its bite! The noble Sumantes blocks the strike with his sword. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The fierce blow from the monster narrowly misses he. 
 
-Sumantes sneaked around to coloxus's blind spot. The coloxus leans low, ready to strike with its might. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. The adlet struck with its spear! The gruesome adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus struck with its bite! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The coloxus struck with its bite! The adventurer blocks the strike with his sword. 
+The adlet struck with its spear! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus took a glancing blow. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! The gruesome adlet failed to land its hit. he stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The attack from the stand tall Sumantes surely left a impression. The monster was stunned by the attack. He pulls a pink sherbet potion from his pack and drinks it. He is reinvigorated. 
+The adlet struck with its spear! He winces from the pain but continues fighting. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The doughty Sumantes pulls a english lavender potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+He pulls a pastel green potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
 
-The coloxus struck with its bite! He jumps out of the way. Sumantes the fearlessour hero stumbles to his knee, gasping for breath. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde the grandour hero. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! Malchambalde the elevatedour hero blocks the strike with his sword. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+He sneaked around to adlet's blind spot. The adlet struck with its spear! The abhorrent adlet failed to land its hit. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The coloxus struck with its bite! He stunbles backward, gasping for breath. Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus was staggered by the immense force. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The bold Malchambalde blocks the strike with his sword. 
 
-He sneaked around to coloxus's blind spot. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! Malchambalde stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. The elevated Malchambalde was worn out by the combat. The adlet struck with its spear! He jumps out of the way. 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! The fierce blow from the monster narrowly misses he. 
+The adlet struck with its spear! He blocks the strike with his sword. the unafraid Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The monster was stunned by the attack. He pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the adlet, his sword ready to strike! That blow seemed like it could break some bones. The adlet struck with its spear! The terrifying adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! Although he's hit landed, adlet is mostly unphased
 
-The mythological Sumantes pulls a fluorescent yellow potion from his pack and drinks it. He is reinvigorated. The coloxus struck with its bite! He blocks the strike with his sword. 
+Malchambalde the unafraidour hero sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
 
-The coloxus struck with its bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The coloxus struck with its bite! Sumantes blocks the strike with his sword. 
+The adlet struck with its spear! The terrible adlet failed to land its hit. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! The elevated Malchambalde winces from the pain but continues fighting. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet leans low, ready to strike with its might. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus struck with its bite! Sumantes blocks the strike with his sword. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The adlet took a glancing blow. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+He pulls a deep champagne potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! Malchambalde blocks the strike with his sword. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a chrome yellow potion from his pack and drinks it. He is reinvigorated. 
+The impavid Malchambalde sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! The eerie coloxus failed to land its hit. 
+Malchambalde the elevatedour hero pulls a shadow potion from his pack and drinks it. He is reinvigorated. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The attack from he surely left a impression. The coloxus struck with its bite! Sumantes the boldour hero blocks the strike with his sword. Sumantes lunged toward the coloxus, his sword ready to strike! Sumantes the fire-eatingour hero landed a massive hit on coloxus! 
+The adlet leans low, ready to strike with its might. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
 
-The coloxus struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The coloxus struck with its bite! He stunbles backward, gasping for breath. 
+Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! Although he's hit landed, coloxus is mostly unphasedThe monster was stunned by the attack. The adventurer pulls a kelly green potion from his pack and drinks it. He is reinvigorated. 
+The adlet struck with its spear! He jumps out of the way. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The adlet struck with its spear! The fierce blow from the monster narrowly misses the adventurer. 
 
-Sumantes pulls a lilac potion from his pack and drinks it. He is reinvigorated. The coloxus leans low, ready to strike with its might. 
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The awful adlet failed to land its hit. 
 
-The coloxus struck with its bite! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! The evil adlet failed to land its hit. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-Sumantes the courageousour hero sneaked around to coloxus's blind spot. The coloxus leans low, ready to strike with its might. 
+He sneaked around to adlet's blind spot. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the coloxus, his sword ready to strike! The slippery coloxus evaded Sumantes's hit. 
+The adlet struck with its spear! Malchambalde reeled back in pain. Malchambalde stumbles to his knee, gasping for breath. The adlet leans low, ready to strike with its might. 
 
-Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus was staggered by the immense force. The monster was stunned by the attack. Sumantes the fire-eatingour hero pulls a dollar bill potion from his pack and drinks it. He is reinvigorated. 
+The adventurer pulls a gold web golden potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The coloxus leans low, ready to strike with its might. The coloxus struck with its bite! The fierce blow from the monster narrowly misses he. 
+Malchambalde the impavidour hero sneaked around to adlet's blind spot. The adlet struck with its spear! The fierce blow from the monster narrowly misses Malchambalde. 
 
-The coloxus struck with its bite! Sumantes reeled back in pain. Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus was struck by the blow! 
+Malchambalde the courageousour hero pulls a phlox potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-The coloxus struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Sumantes lunged toward the coloxus, his sword ready to strike! The attack from Sumantes the undauntedour hero surely left a impression. 
+The adventurer pulls a cerise potion from his pack and drinks it. He is reinvigorated. The adlet struck with its spear! He stunbles backward, gasping for breath. 
 
-The coloxus struck with its bite! He stunbles backward, gasping for breath. The unafraid Sumantes leaned on his sword to catch a moment's respite. The classic Sumantes was worn out by the combat. The coloxus leans low, ready to strike with its might. 
+The adlet struck with its spear! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The adlet struck with its spear! Malchambalde blocks the strike with his sword. 
 
-The coloxus leans low, ready to strike with its might. Sumantes lunged toward the coloxus, his sword ready to strike! The coloxus was struck by the blow! 
+Malchambalde lunged toward the adlet, his sword ready to strike! Although the adventurer's hit landed, adlet is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the adlet, his sword ready to strike! The slippery adlet evaded Malchambalde's hit. 
 
-Sumantes says
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! Malchambalde the gutsyour hero stunbles backward, gasping for breath. 
 
-"That didn't seem so hard, I don't know what Chlodo was talking about."
+He sneaked around to adlet's blind spot. Malchambalde lunged toward the adlet, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-## <a name="chapter18"></a> Chapter 18: Dudledding Couth and the Lusca
+The adlet struck with its spear! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the adlet, his sword ready to strike! The adlet was struck by the blow! 
 
-Sumantes followed a dirt path into the village of Dudledding Couth. The scholar loaded a market stall with wares with a abbot. Two spinsters ran from person to person, asking if they had seen Roolio. Sumantes continued down the path. Two balancemakers gazed at him from an open window.
+The adlet leans low, ready to strike with its might. The adlet struck with its spear! The fierce blow from the monster narrowly misses the adventurer. 
 
-Eventually, Sumantes arrived at the town square, where he found a wattler. Sumantes approached him, hoping for some advice.
+The epic Malchambalde sneaked around to adlet's blind spot. The adlet struck with its spear! The eerie adlet failed to land its hit. 
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+Malchambalde says
 
-Nearby, a tapestrymaker sat by the side of the road. The man quietly reminised about the past, then finally responded.
+"That didn't seem so hard, I don't know what Pyle was talking about."
 
-"Our village of Road will gladly help you on your quest. What do you need?"
+## <a name="chapter16"></a> Chapter 16: War and the Woolly Rhinoceros
+
+Malchambalde followed a dirt path into the village of War. The cabinetmaker gazed at him from an open window with a bishop. While the master of hounds eyed him suspiciously, a bearleader slowly carried supplies. Malchambalde continued down the path. While the ditcher slowly carried supplies, a plowman threw punches.
+
+Eventually, Malchambalde arrived at the town square, where he found a king. The man, eying his unusual weapons, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+
+While the emperor talked excitedly with what appeared to be a master of hounds, a pavyler threw punches. The man eyed him thoughtfully, but eventually responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is down the street to the church and left. You'll see a monastery. It's just a bit further down the street. There's a small door. You'll find Amalvin, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Euryllus gone as much as anybody."
+"Sigion is just a bit further down the street. Look for the large hanging sign that reads "Sigion Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Sumantes hurried towards the armory. Nearby, a userer scuttled out of his way. A link boy scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. The grinder bit into an apple with a dwarf. Two hatmakers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Amalvin looked up from his work behind a counter at Sumantes.
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the ceratioidi, or perhaps even the babau, but that's nothing compared to the lusca we've got."
+Sigion grabbed a dusty book from the shelf and flipped through it. Pictures of scarab swarms and hyenas flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "Luscas are among the most feared predators in the open ocean—their snapping shark heads and writhing tentacles spell the end for many crews. A lusca's presence can first be felt in the air, as its body naturally conducts electricity. Sailors who have encountered the being and survived claim that thunderclouds seem to roll in alongside the creature and strange electrical fires dance in the air before it attacks, lending an eerie aura of foreboding to the oncoming assault. Ravenous and unpredictable, a lusca claims wide swaths of territory in order to maximize the number of ships it can sink and crews it can feast upon; luscas brook no other large predators in their claimed territory, and battle even mighty krakens for control. They are equally territorial with their own kind, and an encounter between two luscas, except to mate, almost always ends with one dead or driven off. While luscas prefer to make quick meals of the sailors onboard a ship, they will eat just about any aquatic creature, and even giant octopuses and whales know to steer clear of a hungry lusca's vicinity."
+The armorer sighed and continued. "The woolly rhinoceros is an herbivore, though unlike its non-woolly cousin it grazes for food rather than browsing on larger plants. The woolly rhino is legendary for its foul temper, and its size and huge horn give it a ferocious bravery. Any threat (real or perceived) to the rhino or its herd is met with loud bellows and the stomping of feet. Often, those who unwittingly anger a woolly rhino have no time to amend the intrusion before the beast attacks. "
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-The armorer sighed and continued. "The average lusca is 90 feet from tentacle to snout and weighs 3,800 pounds. Legends tell of even larger luscas that can sink Colossal ships."
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
 
-"But my weapons may be too weak. Are there any other ways to defeat the lusca?" Sumantes asked.
+Malchambalde saw a unkind woolly rhinoceros in the distance! Our hero fixed his gaze on the grisly sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+The woolly rhinoceros struck with its gore! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The woolly rhinoceros leans low, ready to strike with its might. 
+
+The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+He sneaked around to woolly rhinoceros's blind spot. The woolly rhinoceros struck with its gore! He jumps out of the way. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The shattering blow from the daring Malchambalde rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+He pulls a antique white potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+
+Malchambalde pulls a upsdell red potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+
+The woolly rhinoceros struck with its gore! He jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros struck with its gore! Malchambalde jumps out of the way. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros was struck by the blow! 
+
+The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+He pulls a hot magenta potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros struck with its gore! The fierce blow from the monster narrowly misses he. 
+
+The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros took a glancing blow. 
+
+The woolly rhinoceros struck with its gore! The gutsy Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
+
+The woolly rhinoceros struck with its gore! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros leans low, ready to strike with its might. 
+
+Malchambalde pulls a yellow potion from his pack and drinks it. He is reinvigorated. The woolly rhinoceros leans low, ready to strike with its might. 
+
+The woolly rhinoceros struck with its gore! The smelly woolly rhinoceros failed to land its hit. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+The woolly rhinoceros struck with its gore! The adventurer winces from the pain but continues fighting. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros struck with its gore! The valorous Malchambalde blocks the strike with his sword. 
+
+The woolly rhinoceros struck with its gore! The evil woolly rhinoceros failed to land its hit. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! Although he's hit landed, woolly rhinoceros is mostly unphased
+
+He sneaked around to woolly rhinoceros's blind spot. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+The woolly rhinoceros leans low, ready to strike with its might. The woolly rhinoceros struck with its gore! He jumps out of the way. 
+
+The adventurer pulls a royal fuchsia potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+The woolly rhinoceros struck with its gore! Malchambalde reeled back in pain. the adventurer stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
+
+The woolly rhinoceros leans low, ready to strike with its might. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a light gray potion from his pack and drinks it. He is reinvigorated. 
+
+The woolly rhinoceros struck with its gore! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros struck with its gore! He blocks the strike with his sword. 
+
+The woolly rhinoceros struck with its gore! The fierce blow from the monster narrowly misses Malchambalde the epicour hero. the bold Malchambalde stumbles to his knee, gasping for breath. The woolly rhinoceros leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The woolly rhinoceros was staggered by the immense force. 
+
+He sneaked around to woolly rhinoceros's blind spot. The woolly rhinoceros struck with its gore! The scary woolly rhinoceros failed to land its hit. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. The elevated Malchambalde pulls a orange web color potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde the courageousour hero pulls a magenta process potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+The woolly rhinoceros struck with its gore! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The woolly rhinoceros leans low, ready to strike with its might. 
+
+Malchambalde the fire-eatingour hero sneaked around to woolly rhinoceros's blind spot. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The slippery woolly rhinoceros evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the woolly rhinoceros, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to woolly rhinoceros's blind spot. 
+
+He was victorious! The woolly rhinoceros menaced for no longer! 
+
+## <a name="chapter17"></a> Chapter 17: Ald and the Intellect Devourer
+
+Malchambalde followed a dirt path into the village of Ald. Nearby, a crofter talked excitedly with what appeared to be a abbot. The currier hawked fine imported goods from RivinghganniÃ« with a grocer. Malchambalde continued down the path. Two jews stood by a market stall, negotiating with the master of hounds.
+
+Eventually, Malchambalde arrived at the town square, where he found a porter. The man, eying his foreboding cloak, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+Nearby, a mosaic layer talked excitedly with what appeared to be a goldsmith. The man quietly reminised about the pastHe finally responded.
+
+"Our village of Cal will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. Look for the large hanging sign that reads "Strai Fine Supplies". You'll find Strai, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 8 small coins. "I want that Otes gone as much as anybody."
+
+Malchambalde hurried towards the armory. While the ostler bit into an apple, a bailiff finished an apple and tossed the core aside. The oilmaker scuttled out of his way with a alewife. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the crag linnorm, or perhaps even the tatzlwyrm, but that's nothing compared to the intellect devourer we've got."
+
+Strai returned to the book of monsters on the desk and pointed at the terrifying illustration. "Thought by some to be invaders from another dimension or planet, the sinister intellect devourers are certainly one of the world's cruelest races. Incapable of experiencing emotions or wallowing in the sins of physical pleasure on their own, intellect devourers are forced to steal bodies in order to indulge their gluttony, lust, and cruelty. Stories tell of entire cities of these creatures deep underground, where host bodies are worn like clothes to hideous orgies and vile feasts. Lone intellect devourers often dwell in ruins or caves on the edge of a civilized region so they can make periodic forays into town to "shop" for an attractive new body."
+
+Malchambalde slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+The armorer sighed and continued. "An intellect devourer is 3 feet long and weighs about 60 pounds."
+
+"I could handle that. Tell me again, what makes the intellect devourer so bad?" Malchambalde responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
+
+Malchambalde saw a execrable intellect devourer in the distance! Our hero fixed his gaze on the eerie sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+Malchambalde the lion-heartedour hero sneaked around to intellect devourer's blind spot. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
+
+The adventurer pulls a green crayola potion from his pack and drinks it. He is reinvigorated. The intellect devourer leans low, ready to strike with its might. 
+
+The intellect devourer leans low, ready to strike with its might. The intellect devourer struck with its claws! Malchambalde the fearlessour hero jumps out of the way. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The intellect devourer struck with its claws! He stunbles backward, gasping for breath. Malchambalde lunged toward the intellect devourer, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Malchambalde the elevatedour hero pulls a ube potion from his pack and drinks it. He is reinvigorated. 
+
+The intellect devourer struck with its claws! Malchambalde stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses he. 
+
+The intellect devourer struck with its claws! Malchambalde the grandour hero jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer took a glancing blow. 
+
+Malchambalde the classicour hero pulls a yellow green potion from his pack and drinks it. He is reinvigorated. The intellect devourer leans low, ready to strike with its might. 
+
+The intellect devourer struck with its claws! The scary intellect devourer failed to land its hit. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! A sharp crack was heard as the strike left its mark. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was staggered by the immense force. 
+
+The intellect devourer struck with its claws! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The intellect devourer leans low, ready to strike with its might. 
+
+The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses Malchambalde. the doughty Malchambalde stumbles to his knee, gasping for breath. The intellect devourer struck with its claws! The fierce blow from the monster narrowly misses the adventurer. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was staggered by the immense force. The monster was stunned by the attack. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+
+The intellect devourer leans low, ready to strike with its might. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
+
+The intellect devourer struck with its claws! Malchambalde blocks the strike with his sword. The noble Malchambalde leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The intellect devourer struck with its claws! Malchambalde the epicour hero blocks the strike with his sword. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The attack from the adventurer surely left a impression. The intellect devourer struck with its claws! He jumps out of the way. Malchambalde lunged toward the intellect devourer, his sword ready to strike! The intellect devourer was struck by the blow! 
+
+The intellect devourer struck with its claws! The adventurer stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The intellect devourer struck with its claws! The adventurer blocks the strike with his sword. 
+
+Malchambalde lunged toward the intellect devourer, his sword ready to strike! The slippery intellect devourer evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a green ryb potion from his pack and drinks it. He is reinvigorated. 
+
+The adventurer was victorious! The intellect devourer menaced for no longer! 
+
+## <a name="chapter18"></a> Chapter 18: Wey-Bown and the Sea Cat
+
+Malchambalde followed a dirt path into the village of Wey-Bown. While the goatherd slept in an alleyway, a philosopher hawked fine imported goods from King Caminctingh. The piper hawked fine imported goods from Bouthortsburnt with a trapper. Malchambalde continued down the path. The belter slept in an alleyway with a ironmonger.
+
+Eventually, Malchambalde arrived at the town square, where he found a potboy. Malchambalde approached him, hoping for some advice.
+
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+
+Nearby, a shoemaker sat by the side of the road. The man quietly reminised about the past, but eventually responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is just a bit further down the street. There's a small door. You'll find Philkides, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Malchambalde hurried towards the armory. Two shoemakers slowly carried supplies. While the diplomat bit into an apple, a theologian gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Malchambalde cleared his throat and a man ran out from a backroom.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Philkides lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sea cat."
+
+The armorer sighed and continued. "The feral sea cat (sometimes referred to as the sea lion, sea tiger, or sea leopard) is among the most vicious and ubiquitous of coastal predators in tropical oceans. The upper body of a sea cat is that of a typical great cat—a lion, tiger, leopard, or cheetah—complete with a pair of clawed paws capable of rending the flesh from its prey. In place of back legs, however, the sea cat has a sleek and powerful tail that allows it to move quickly and silently through the water."
+
+"But my weapons may be too weak. Are there any other ways to defeat the sea cat?" Malchambalde asked.
+
+The armorer sighed and continued. "While only the back half of a sea cat looks fishlike, its entire body from the neck down is covered in fine scales and fins. Among individual sea cats, these scales vary greatly in color and pattern, often influenced by the primary habitat of a given specimen; the most common sea cats, have bright coloration in striped or spotted patterns. A typical sea cat is 12 feet long and weighs upward of 800 pounds."
+
+"I could handle that. Tell me again, what makes the sea cat so bad?" Malchambalde responded.
+
+The armorer sighed and continued. "Sea cats can survive in both fresh and salt water, though most live in the ocean, where they can hunt a varied and consistent supply of food. A sea cat's diet typically consists of fish, crustaceans, and aquatic mammals (including seals and otters), but the creature's overpowering predatory and territorial instincts often lead it to attack ocean birds, humanoids, and even other aquatic predators like sharks and crocodiles. Coastal fishermen in areas where sea cats are known to dwell watch vigilantly for the predators, because the beasts have learned that netted or hooked prey is easier to kill and steal from the line."
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Sea cats breathe air, not water. When not hunting they can be found on coastal rocks, coral islands, or even isolated beaches sunning themselves and digesting their most recent meals. Whether hunting or protecting its territory, a sea cat generally attacks immediately upon discovering a target, even when faced with a much larger or more dangerous foe." Philkides explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"The sea cat's low intelligence and high level of ferocity make it incredibly difficult to train or domesticate, though pirates and aquatic races have been known to try, with limited success." Philkides explained.
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+Malchambalde saw a menacing sea cat in the distance! Malchambalde the undauntedour hero readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
+
+He sneaked around to sea cat's blind spot. Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The sea cat struck with its bite! The shameful sea cat failed to land its hit. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. 
+
+The dauntless Malchambalde sneaked around to sea cat's blind spot. The sea cat leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The sea cat struck with its bite! The nasty sea cat failed to land its hit. Malchambalde lunged toward the sea cat, his sword ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to sea cat's blind spot. The sea cat leans low, ready to strike with its might. 
+
+The sea cat struck with its bite! The fairy sea cat failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The sea cat leans low, ready to strike with its might. 
+
+The sea cat struck with its bite! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The sea cat leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The slippery sea cat evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea cat, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+
+The adventurer pulls a dark raspberry potion from his pack and drinks it. He is reinvigorated. The sea cat leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the sea cat, his sword ready to strike! The bigger than life Malchambalde landed a massive hit on sea cat! The sea cat struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the sea cat, his sword ready to strike! The sea cat was struck by the blow! 
+
+He was victorious! The sea cat menaced for no longer! 
+
+## <a name="chapter19"></a> Chapter 19: Debrington Cith and the Pazuzu
+
+Malchambalde followed a dirt path into the village of Debrington Cith. While the porter finished an apple and tossed the core aside, a builder sat by the side of the road. The besom maker talked excitedly with what appeared to be a summoner with a glasspainter. Malchambalde continued down the path. Nearby, a blockcutter ran from person to person, asking if they had seen Renos.
+
+Eventually, Malchambalde arrived at the town square, where he found a scrivener. The man, eying his unusual weapons, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
+
+While the stonecarver hawked fine imported goods from Eas Paria, a pattenmaker rushed by quickly, ignoring him. The man eyed him thoughtfully, but eventually responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Nivelet is the best in town. His shop is into the market and towards the inn. Eventually you need to walk just a bit further down the street. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Malchambalde hurried towards the armory. While the crofter bit into an apple, a falconer slept in an alleyway. A bellmaker bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Nivelet looked up from his work behind a counter at Malchambalde.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Nivelet lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The pazuzu."
+
+Nivelet returned to the book of monsters on the desk and pointed at the terrifying illustration. "Pazuzu is among the oldest and most powerful of all demon lords. His Abyssal realm is located in one of that plane's greatest rifts. This vertical realm includes an immense city, at the heart of which can be found Shibaxet, Pazuzu's personal rookery and palace."
+
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+"Pazuzu appears as a four-winged, 15-foot-tall fiend. He takes great delight in corrupting mortals, particularly those of a pure heart and soul, offering them any one wish in return for nothing but their innocence." Nivelet explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the pazuzu?" Malchambalde asked.
 
 "That's all I can tell you."
 
-Sumantes saw a cruel lusca in the distance! Our hero fixed his gaze on the disagreeable sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a obnoxious pazuzu in the distance! He readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! The frightful lusca failed to land its hit. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes the grandour hero sneaked around to lusca's blind spot. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The repulsive lusca failed to land its hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the lion-heartedour hero winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The fairy lusca failed to land its hit. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He jumps out of the way. He leaned on his sword to catch a moment's respite. Sumantes the dauntlessour hero was worn out by the combat. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The fierce blow from the monster narrowly misses Sumantes. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The lusca leans low, ready to strike with its might. 
+The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! That blow seemed like it could break some bones. The lusca struck with its bites! He blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! Although he's hit landed, lusca is mostly unphased
+The gutty Malchambalde pulls a columbia blue potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The execrable lusca failed to land its hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The abhorrent lusca failed to land its hit. he stumbles to his knee, gasping for breath. The lusca struck with its bites! The fierce blow from the monster narrowly misses the adventurer. 
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to lusca's blind spot. 
+He pulls a congo pink potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The lusca was struck by the blow! The monster was stunned by the attack. Sumantes the grandour hero sneaked around to lusca's blind spot. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the impavidour hero blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from he rumbled through the ground. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. He pulls a stizza potion from his pack and drinks it. He is reinvigorated. 
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
 
-The lusca struck with its bites! The frightful lusca failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The lusca leans low, ready to strike with its might. 
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! Although he's hit landed, lusca is mostly unphased
+He pulls a midnight blue potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! That blow seemed like it could break some bones. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+He pulls a tractor red potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The daring Malchambalde blocks the strike with his sword. 
 
-The lusca struck with its bites! The lousy lusca failed to land its hit. The exaggerated Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The lusca struck with its bites! The fierce blow from the monster narrowly misses the impavid Sumantes. 
+The valiant Malchambalde pulls a sand potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-He sneaked around to lusca's blind spot. The lusca leans low, ready to strike with its might. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The adventurer blocks the strike with his sword. he stumbles to his knee, gasping for breath. The lusca leans low, ready to strike with its might. 
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the inflatedour hero sneaked around to lusca's blind spot. 
+He pulls a alabama crimson potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
 
-The lusca struck with its bites! Sumantes reeled back in pain. Sumantes lunged toward the lusca, his sword ready to strike! The lusca took a glancing blow. 
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the fire-eating Malchambalde. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! He blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! The attack from the adventurer surely left a impression. 
+The pazuzu struck with its anarchic keen unholy longsword! The heinous pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-The adventurer sneaked around to lusca's blind spot. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The grand Malchambalde pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! The adventurer winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde the courageousour hero was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
 
-Sumantes pulls a chestnut potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The adventurer pulls a dark chestnut potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The frightful pazuzu failed to land its hit. 
 
-The lusca struck with its bites! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The lusca struck with its bites! Sumantes reeled back in pain. 
+The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. The classic Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The sickie pazuzu failed to land its hit. 
 
-The lusca struck with its bites! Sumantes reeled back in pain. The exhilarating combat made the hours seem like seconds. The lusca struck with its bites! The ungodly lusca failed to land its hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. 
+The pazuzu struck with its anarchic keen unholy longsword! The evil pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! Sumantes the fire-eatingour hero landed a massive hit on lusca! The monster was stunned by the attack. He pulls a ruby red potion from his pack and drinks it. He is reinvigorated. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He stunbles backward, gasping for breath. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the lusca, his sword ready to strike! That blow seemed like it could break some bones. 
+The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-He sneaked around to lusca's blind spot. The lusca struck with its bites! He blocks the strike with his sword. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a banana yellow potion from his pack and drinks it. He is reinvigorated. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The inflated Sumantes pulls a turquoise blue potion from his pack and drinks it. He is reinvigorated. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. 
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the high-flownour hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! Sumantes the gutsyour hero blocks the strike with his sword. 
+Malchambalde the bigger than lifeour hero sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
 
-The lusca struck with its bites! The adventurer jumps out of the way. The daring Sumantes leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes the stand tallour hero sneaked around to lusca's blind spot. Sumantes lunged toward the lusca, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The epic Malchambalde pulls a red potion from his pack and drinks it. He is reinvigorated. 
 
-The lusca struck with its bites! Sumantes reeled back in pain. Sumantes lunged toward the lusca, his sword ready to strike! The lusca took a glancing blow. 
+The pazuzu struck with its anarchic keen unholy longsword! The evil pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the high-flownour hero blocks the strike with his sword. 
 
-The lusca struck with its bites! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The lusca leans low, ready to strike with its might. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The scandalous pazuzu failed to land its hit. 
 
-The lusca struck with its bites! The ruinous lusca failed to land its hit. The exhilarating combat made the hours seem like seconds. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. 
+He pulls a carnelian potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The lurid pazuzu failed to land its hit. 
 
-Sumantes pulls a fern green potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
 
-The lusca struck with its bites! The detestable lusca failed to land its hit. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
 
-The lusca struck with its bites! The menacing lusca failed to land its hit. the courageous Sumantes stumbles to his knee, gasping for breath. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. 
+The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The adventurer blocks the strike with his sword. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! He blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! The attack from the adventurer surely left a impression. 
+The noble Malchambalde pulls a veronica potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-He pulls a pumpkin potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The lusca was staggered by the immense force. 
+The epic Malchambalde pulls a bazaar potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-The lusca struck with its bites! He winces from the pain but continues fighting. The stouthearted Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde the high-flownour hero landed a massive hit on pazuzu! The monster was stunned by the attack. The adventurer pulls a lavender mist potion from his pack and drinks it. He is reinvigorated. 
 
-He pulls a international orange golden gate bridge potion from his pack and drinks it. He is reinvigorated. The lusca leans low, ready to strike with its might. 
+The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The fierce blow from the monster narrowly misses he. The mythological Sumantes leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The lusca leans low, ready to strike with its might. 
+The undaunted Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes pulls a tea rose orange potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although Malchambalde's hit landed, pazuzu is mostly unphased
 
-The adventurer sneaked around to lusca's blind spot. The lusca leans low, ready to strike with its might. 
+Malchambalde the unafraidour hero pulls a cadmium orange potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The lusca was struck by the blow! The lusca struck with its bites! The noble Sumantes blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The adventurer pulls a carmine m p potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
 
-The lusca struck with its bites! The shameful lusca failed to land its hit. he stumbles to his knee, gasping for breath. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! Sumantes reeled back in pain. 
+The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. Malchambalde the lion-heartedour hero was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The scary lusca failed to land its hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! Malchambalde winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from Malchambalde surely left a impression. 
 
-He sneaked around to lusca's blind spot. The lusca struck with its bites! He jumps out of the way. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. 
 
-The gritty Sumantes sneaked around to lusca's blind spot. The lusca struck with its bites! He jumps out of the way. 
+The exaggerated Malchambalde pulls a honeydew potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lusca, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. The pazuzu struck with its anarchic keen unholy longsword! The undaunted Malchambalde blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The fierce blow from the monster narrowly misses the undaunted Sumantes. The undaunted Sumantes leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The lusca leans low, ready to strike with its might. 
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
 
-He pulls a earth yellow potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The lusca took a glancing blow. The lusca struck with its bites! He jumps out of the way. Sumantes lunged toward the lusca, his sword ready to strike! That blow seemed like it could break some bones. 
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the unafraidour hero jumps out of the way. 
 
-He pulls a liver potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! He landed a massive hit on lusca! 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The lusca was struck by the blow! The lusca struck with its bites! He jumps out of the way. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The ghastly pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes sneaked around to lusca's blind spot. The lusca struck with its bites! The fire-eating Sumantes jumps out of the way. 
+The exaggerated Malchambalde sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes sneaked around to lusca's blind spot. The lusca struck with its bites! He blocks the strike with his sword. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! The adventurer winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the high-flownour hero. 
 
-The lusca struck with its bites! The abominable lusca failed to land its hit. he stumbles to his knee, gasping for breath. The lusca leans low, ready to strike with its might. 
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! Sumantes the grittyour hero stunbles backward, gasping for breath. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the undaunted Malchambalde. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
 
-He sneaked around to lusca's blind spot. The lusca struck with its bites! He blocks the strike with his sword. 
+The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! He jumps out of the way. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
 
-The lusca struck with its bites! He stunbles backward, gasping for breath. Sumantes the stand tallour hero stumbles to his knee, gasping for breath. The lusca struck with its bites! The awful lusca failed to land its hit. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-He pulls a ua red potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The fierce blow from the monster narrowly misses he. 
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The appalling pazuzu failed to land its hit. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the courageousour hero sneaked around to lusca's blind spot. 
+The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! The adventurer jumps out of the way. Sumantes lunged toward the lusca, his sword ready to strike! The lusca took a glancing blow. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The attack from Sumantes surely left a impression. 
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the fearlessour hero jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The lusca struck with its bites! He blocks the strike with his sword. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! Sumantes reeled back in pain. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. 
 
-He sneaked around to lusca's blind spot. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The gallant Sumantes jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The lusca leans low, ready to strike with its might. 
+The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The adventurer pulls a pale aqua potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The adventurer pulls a peach yellow potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lusca, his sword ready to strike! The adventurer landed a massive hit on lusca! 
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. 
 
-The bigger than life Sumantes pulls a moonstone blue potion from his pack and drinks it. He is reinvigorated. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. He pulls a olive potion from his pack and drinks it. He is reinvigorated. 
+The pazuzu struck with its anarchic keen unholy longsword! The execrable pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
 
-The lusca struck with its bites! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! He winces from the pain but continues fighting. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The stouthearted Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
 
-He sneaked around to lusca's blind spot. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although the impavid Malchambalde's hit landed, pazuzu is mostly unphased
 
-The lusca struck with its bites! The fierce blow from the monster narrowly misses he. Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The lusca leans low, ready to strike with its might. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! He blocks the strike with his sword. 
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He winces from the pain but continues fighting. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
 
-The lusca struck with its bites! The adventurer stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The evil lusca failed to land its hit. He leaned on his sword to catch a moment's respite. Sumantes the exaggeratedour hero was worn out by the combat. The lusca struck with its bites! The fierce blow from the monster narrowly misses the adventurer. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the grittyour hero. 
 
-He sneaked around to lusca's blind spot. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde the gallantour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The valiant Malchambalde winces from the pain but continues fighting. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the lion-heartedour hero jumps out of the way. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The attack from Sumantes surely left a impression. The monster was stunned by the attack. The grandiose Sumantes pulls a yellow potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The lusca struck with its bites! The bigger than life Sumantes jumps out of the way. 
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the valorous Malchambalde. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lusca, his sword ready to strike! The attack from he surely left a impression. 
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-He pulls a pastel gray potion from his pack and drinks it. He is reinvigorated. The lusca struck with its bites! The obnoxious lusca failed to land its hit. 
+The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! The dreadful lusca failed to land its hit. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fire-eating Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! Sumantes the gallantour hero jumps out of the way. The exhilarating combat made the hours seem like seconds. The lusca leans low, ready to strike with its might. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The exaggerated Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
 
-The lusca struck with its bites! The intrepid Sumantes blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! Although he's hit landed, lusca is mostly unphased
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
 
-The lusca leans low, ready to strike with its might. The lusca struck with its bites! Sumantes jumps out of the way. 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
 
-Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. The lusca struck with its bites! He blocks the strike with his sword. Sumantes lunged toward the lusca, his sword ready to strike! He landed a massive hit on lusca! 
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+Malchambalde the elevatedour hero pulls a sepia potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
 
-Sumantes the classicour hero sneaked around to lusca's blind spot. The lusca leans low, ready to strike with its might. 
+The adventurer sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
 
-The lusca struck with its bites! The shocking lusca failed to land its hit. Sumantes lunged toward the lusca, his sword ready to strike! Sumantes landed a massive hit on lusca! 
+The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-The lusca struck with its bites! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The lusca struck with its bites! The abominable lusca failed to land its hit. 
+Malchambalde the guttyour hero sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
 
-The lusca leans low, ready to strike with its might. Sumantes lunged toward the lusca, his sword ready to strike! The slippery lusca evaded Sumantes's hit. 
+The pazuzu struck with its anarchic keen unholy longsword! The terrible pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
 
-Sumantes says
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-"That didn't seem so hard, I don't know what Amalvin was talking about."
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. Malchambalde the doughtyour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The smelly pazuzu failed to land its hit. 
 
-## <a name="chapter19"></a> Chapter 19: Holchley and the Kaprosuchus
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
 
-Sumantes followed a dirt path into the village of Holchley. Nearby, a hobbler threw punches. A turner gazed at him from an open window. Sumantes continued down the path. Two miners gazed at him from an open window.
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
 
-Eventually, Sumantes arrived at the town square, where he found a broderer. The man, eying his dangerous demeanor, beckoned him forward.
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The unholy pazuzu failed to land its hit. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The shocking pazuzu failed to land its hit. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. Malchambalde leaned on his sword to catch a moment's respite. The exaggerated Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+He pulls a fern green potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The epic Malchambalde blocks the strike with his sword. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The epic Malchambalde blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the elevatedour hero blocks the strike with his sword. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The elevated Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although Malchambalde's hit landed, pazuzu is mostly unphased
+
+The pazuzu struck with its anarchic keen unholy longsword! The bold Malchambalde jumps out of the way. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The gutty Malchambalde blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde stunbles backward, gasping for breath. 
+
+He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The fearless Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from Malchambalde the fearlessour hero rumbled through the ground. 
+
+He pulls a dark salmon potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde the exaggeratedour hero landed a massive hit on pazuzu! 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the valiantour hero jumps out of the way. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The adventurer blocks the strike with his sword. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+
+He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Malchambalde the classicour hero was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The grand Malchambalde jumps out of the way. 
+
+Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although he's hit landed, pazuzu is mostly unphased
+
+The adventurer sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a copper red potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the doughtyour hero pulls a napier green potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! 
+
+He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! Malchambalde landed a massive hit on pazuzu! 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from Malchambalde surely left a impression. 
+
+He pulls a amber sae ece potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from Malchambalde rumbled through the ground. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. 
+
+The adventurer pulls a dark yellow potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+The fearless Malchambalde pulls a peach puff potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the impavidour hero. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The abhorrent pazuzu failed to land its hit. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The mythological Malchambalde jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde blocks the strike with his sword. Malchambalde the valiantour hero stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the valiantour hero. Malchambalde the classicour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The doughty Malchambalde stunbles backward, gasping for breath. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde sneaked around to pazuzu's blind spot. 
+
+The adventurer pulls a jade potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The grandiose Malchambalde pulls a purple mountain majesty potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde the gutsyour hero pulls a nadeshiko pink potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The revolting pazuzu failed to land its hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde pulls a puce potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde pulls a blue sapphire potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The detestable pazuzu failed to land its hit. 
+
+The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The gritty Malchambalde blocks the strike with his sword. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The frightful pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The impavid Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde the inflatedour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fearful pazuzu failed to land its hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. 
+
+He pulls a light slate gray potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. the adventurer stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+Malchambalde the doughtyour hero pulls a pistachio potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although he's hit landed, pazuzu is mostly unphased
+
+The pazuzu struck with its anarchic keen unholy longsword! The offensive pazuzu failed to land its hit. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a puce potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! The monster was stunned by the attack. The adventurer pulls a boysenberry potion from his pack and drinks it. He is reinvigorated. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+
+The adventurer sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde the undauntedour hero. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The nasty pazuzu failed to land its hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The sickie pazuzu failed to land its hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. Malchambalde stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+The adventurer pulls a orange peel potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. The adventurer leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the intrepidour hero blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The courageous Malchambalde stunbles backward, gasping for breath. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
+
+Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu took a glancing blow. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+He pulls a big dip o ruby potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The adventurer stunbles backward, gasping for breath. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! The loathsome pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was struck by the blow! The monster was stunned by the attack. Malchambalde pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+He pulls a tangerine potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The adventurer sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde the boldour hero stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. 
+
+Malchambalde the boldour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+He sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The pazuzu was staggered by the immense force. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+He pulls a asparagus potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! The repulsive pazuzu failed to land its hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde the high-flownour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu struck with its anarchic keen unholy longsword! The lion-hearted Malchambalde blocks the strike with his sword. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fire-eating Malchambalde blocks the strike with his sword. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The scandalous pazuzu failed to land its hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The shattering blow from he rumbled through the ground. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The scary pazuzu failed to land its hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The dauntless Malchambalde blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The cruel pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The attack from he surely left a impression. 
+
+The daring Malchambalde sneaked around to pazuzu's blind spot. Malchambalde lunged toward the pazuzu, his sword ready to strike! The adventurer landed a massive hit on pazuzu! 
+
+The adventurer pulls a dark taupe potion from his pack and drinks it. He is reinvigorated. The pazuzu leans low, ready to strike with its might. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. he stumbles to his knee, gasping for breath. The pazuzu leans low, ready to strike with its might. 
+
+He pulls a saffron potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the adventurer. Malchambalde stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The grisly pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! Malchambalde the stoutheartedour hero jumps out of the way. The doughty Malchambalde leaned on his sword to catch a moment's respite. Malchambalde was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer sneaked around to pazuzu's blind spot. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a dark yellow potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a maize potion from his pack and drinks it. He is reinvigorated. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde pulls a anti flash white potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! Although the adventurer's hit landed, pazuzu is mostly unphased
+
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The adventurer pulls a carmine red potion from his pack and drinks it. He is reinvigorated. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a american rose potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The pazuzu struck with its anarchic keen unholy longsword! The adventurer jumps out of the way. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! Malchambalde reeled back in pain. 
+
+He sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a han purple potion from his pack and drinks it. He is reinvigorated. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The gritty Malchambalde blocks the strike with his sword. Malchambalde the nobleour hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The pazuzu leans low, ready to strike with its might. 
+
+The stouthearted Malchambalde sneaked around to pazuzu's blind spot. The pazuzu leans low, ready to strike with its might. 
+
+The gritty Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The fierce blow from the monster narrowly misses the bigger than life Malchambalde. 
+
+Malchambalde sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The dreadful pazuzu failed to land its hit. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The pazuzu leans low, ready to strike with its might. 
+
+Malchambalde the nobleour hero sneaked around to pazuzu's blind spot. The pazuzu struck with its anarchic keen unholy longsword! The disagreeable pazuzu failed to land its hit. 
+
+The adventurer pulls a seashell potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! He stunbles backward, gasping for breath. 
+
+The pazuzu struck with its anarchic keen unholy longsword! He blocks the strike with his sword. Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The pazuzu struck with its anarchic keen unholy longsword! He winces from the pain but continues fighting. Malchambalde lunged toward the pazuzu, his sword ready to strike! That blow seemed like it could break some bones. 
+
+The pazuzu struck with its anarchic keen unholy longsword! The abominable pazuzu failed to land its hit. Malchambalde lunged toward the pazuzu, his sword ready to strike! He landed a massive hit on pazuzu! 
+
+Malchambalde lunged toward the pazuzu, his sword ready to strike! The slippery pazuzu evaded Malchambalde's hit. The monster was stunned by the attack. He sneaked around to pazuzu's blind spot. 
+
+The pazuzu leans low, ready to strike with its might. The pazuzu struck with its anarchic keen unholy longsword! The nasty pazuzu failed to land its hit. 
+
+Malchambalde says
+
+"That didn't seem so hard, I don't know what Nivelet was talking about."
+
+## <a name="chapter20"></a> Chapter 20: Linast and the Annis Hag
+
+Malchambalde followed a dirt path into the village of Linast. Nearby, a sailor threw punches. Two potters hawked fine imported goods from Blas oft. Malchambalde continued down the path. Two summoners slept in an alleyway.
+
+Eventually, Malchambalde arrived at the town square, where he found a buttonmaker. The man, eying his well-made boots, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
 
-A engineer finished an apple and tossed the core aside. The man sat in silence for a while, but eventually responded.
+Nearby, a executioner slowly carried supplies. The man quietly reminised about the past, then finally responded.
 
-"Our village of Oxfort will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. It's just to the left. You'll find Ernstafford, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. Two locksmiths rushed by quickly, ignoring him. The poacher talked excitedly with what appeared to be a ropemaker with a dog trainer. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Ernstafford looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the cuero, or perhaps even the moon giant, but that's nothing compared to the kaprosuchus we've got."
-
-Ernstafford returned to the book of monsters on the desk and pointed at the terrifying illustration. "Despite its close resemblance to other types of crocodilians, the kaprosuchus is a terrestrial predator, not an aquatic one. Squat and powerfully built, these creatures hunt for prey in forests. The adults can grow up to 20 feet long and weigh as much as 2,500 pounds."
-
-Sumantes slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a repulsive kaprosuchus in the distance! Our hero fixed his gaze on the shameful sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The adventurer pulls a corn potion from his pack and drinks it. He is reinvigorated. The kaprosuchus leans low, ready to strike with its might. 
-
-The kaprosuchus struck with its bite! He jumps out of the way. The doughty Sumantes leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The kaprosuchus leans low, ready to strike with its might. 
-
-He sneaked around to kaprosuchus's blind spot. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The kaprosuchus took a glancing blow. 
-
-The intrepid Sumantes pulls a harvard crimson potion from his pack and drinks it. He is reinvigorated. The kaprosuchus struck with its bite! The revolting kaprosuchus failed to land its hit. 
-
-He sneaked around to kaprosuchus's blind spot. The kaprosuchus struck with its bite! The adventurer jumps out of the way. 
-
-Sumantes sneaked around to kaprosuchus's blind spot. The kaprosuchus leans low, ready to strike with its might. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The shattering blow from the gallant Sumantes rumbled through the ground. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. The monster was stunned by the attack. He pulls a palatinate purple potion from his pack and drinks it. He is reinvigorated. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-He sneaked around to kaprosuchus's blind spot. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The kaprosuchus took a glancing blow. The monster was stunned by the attack. He pulls a aureolin potion from his pack and drinks it. He is reinvigorated. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The attack from the adventurer surely left a impression. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the kaprosuchus, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-The kaprosuchus struck with its bite! The unkind kaprosuchus failed to land its hit. Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The kaprosuchus struck with its bite! Sumantes reeled back in pain. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-The kaprosuchus leans low, ready to strike with its might. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-He sneaked around to kaprosuchus's blind spot. The kaprosuchus struck with its bite! The repellent kaprosuchus failed to land its hit. 
-
-He sneaked around to kaprosuchus's blind spot. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. The monster was stunned by the attack. The adventurer sneaked around to kaprosuchus's blind spot. 
-
-The kaprosuchus struck with its bite! The heinous kaprosuchus failed to land its hit. he stumbles to his knee, gasping for breath. The kaprosuchus leans low, ready to strike with its might. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The attack from Sumantes the fire-eatingour hero surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to kaprosuchus's blind spot. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. The monster was stunned by the attack. The impavid Sumantes pulls a celeste colour potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The kaprosuchus was staggered by the immense force. The monster was stunned by the attack. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-Sumantes sneaked around to kaprosuchus's blind spot. Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. 
-
-Sumantes lunged toward the kaprosuchus, his sword ready to strike! The slippery kaprosuchus evaded Sumantes's hit. The monster was stunned by the attack. The impavid Sumantes pulls a granny smith apple potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes the fearlessour hero was victorious! The kaprosuchus menaced for no longer! 
-
-## <a name="chapter20"></a> Chapter 20: Wemood and the Toad
-
-Sumantes followed a dirt path into the village of Wemood. The beer seller ran from person to person, asking if they had seen Osuuolduin with a pope. The tailor gazed at him from an open window with a prince. Sumantes continued down the path. Two chapmans slept in an alleyway.
-
-Eventually, Sumantes arrived at the town square, where he found a shepherd. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Nearby, a drywaller finished an apple and tossed the core aside. He still looked suspicious, but eventually responded.
-
-"Our village of Dunle will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Melet is down the street to the barn and right. You'll see a cattle barn. It's down the street to the warehouse and right. You'll see a tavern. It's down the street to the church and left. You'll see a inn. It's just a bit further down the street. Look for the large hanging sign that reads "Melet Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Rodberturridericus is the best in town. His shop is down the street to the cattle barn and right. You'll see a cattle barn. It's into the market and towards the monastery. Eventually you need to walk into the market and towards the barn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Rodberturridericus Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Sumantes hurried towards the armory. Nearby, a costermonger gazed at him from an open window. Nearby, a king gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. The scrivener rushed by quickly, ignoring him with a armorer. While the fool for money loaded a market stall with wares, a nailer bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Melet looked up from his work behind a counter at Sumantes.
+Rodberturridericus looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the crypt thing, or perhaps even the scarecrow, but that's nothing compared to the toad we've got."
+"Brave you say? You may have fought the glabrezu, or perhaps even the kraken, but that's nothing compared to the annis hag we've got."
 
-"Toads are harmless, rough-skinned amphibians." Melet explained.
+Rodberturridericus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Also known as black hags or iron hags, annis hags are the largest and most physically intimidating of their foul brood. Known for their iron-hard, wart-covered skin that varies from shades of deep blue to black and their claws like rusty blades, annis hags forgo much of the cunning and deceptiveness of their kind to revel in the more visceral evils of torture and slaughter. The typical annis hag stands just over 8 feet tall and weighs upward of 300 pounds."
 
-Sumantes slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
+
+The armorer sighed and continued. "Dwelling in dark caves, tangled hollows, and cursed ruins deep within frozen swamps or icy moors, annis hags stalk forth by night to sow fear and hunt the unwary. Although possessed of cunning minds, annis prove more decadent than most other hags, frequently indulging in their taste for living flesh and the music of pleading screams. Unlike green hags, they use their ability to assume humanoid form via alter self not to infiltrate societies but to lure victims into a false sense of security before attacking—often posing as travelers in need of aid or pilgrims seeking to share a camp."
+
+"I could handle that. Tell me again, what makes the annis hag so bad?" Malchambalde responded.
+
+"Annis hags find the flesh of children, young animals, and the pure of heart particularly pleasing, both for the tenderness of such meals and for the sorrow such murders spread. After gorging themselves, these hags delight in stripping the skin from their victims, often garbing themselves in the grisly trophies. They are also known to retain and even preserve identifiable portions of their victims (such as heads) for later use in spreading misery. An annis who eats the children of a local farmer might keep the heads (or at least the faces) handy to return to the victims' parents, for example—often in the guise of an anonymous gift. The most insidious of annis hags present these gifts in ways that implicate friends or family in the victim's death." Rodberturridericus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the annis hag?" Malchambalde asked.
+
+"Like most hags, annis sometimes join covens of their repulsive sisters, though many prove resistant to such cooperation. They are particularly unlikely to join covens that already include other annis, though groups of related annis—typically horrible triplets—are not unknown. A typical annis coven consists of one annis leader along with two green hags or sometimes even a witch or two. Annis covens often seek to recruit additional creatures as guardians and are particularly fond of trolls and ogres for such roles." Rodberturridericus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the annis hag?" Malchambalde asked.
 
 "That's all I can tell you."
 
-Sumantes saw a terrible toad in the distance! The adventurer readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a sickie annis hag in the distance! Our hero fixed his gaze on the lousy sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-toad lunged toward Sumantes! He jumps out of the way. Sumantes lunged toward the toad, his sword ready to strike! The slippery toad evaded Sumantes's hit. 
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a cerulean blue potion from his pack and drinks it. He is reinvigorated. 
 
-toad lunged toward Sumantes! The fierce blow from the monster narrowly misses he. Sumantes stumbles to his knee, gasping for breath. The toad leans low, ready to strike with its might. 
+Malchambalde lunged toward the annis hag, his sword ready to strike! Although he's hit landed, annis hag is mostly unphasedThe monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
 
-The toad leans low, ready to strike with its might. Sumantes lunged toward the toad, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+The annis hag struck with its bite! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
 
-The toad leans low, ready to strike with its might. toad lunged toward Sumantes! Sumantes reeled back in pain. 
+He pulls a rosy brown potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! The nasty annis hag failed to land its hit. 
 
-toad lunged toward Sumantes! Sumantes winces from the pain but continues fighting. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The toad leans low, ready to strike with its might. 
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde the classicour hero sneaked around to annis hag's blind spot. 
 
-The impavid Sumantes was victorious! The toad menaced for no longer! 
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a royal purple potion from his pack and drinks it. He is reinvigorated. 
 
-## <a name="chapter21"></a> Chapter 21: Cheld and the Wyrmwraith
+The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
 
-Sumantes followed a dirt path into the village of Cheld. While the sawyer gazed at him from an open window, a cantor rushed by quickly, ignoring him. Nearby, a midwife bit into an apple. Sumantes continued down the path. Nearby, a thresher finished an apple and tossed the core aside.
+The annis hag struck with its bite! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The annis hag struck with its bite! The adventurer blocks the strike with his sword. 
 
-Eventually, Sumantes arrived at the town square, where he found a canon. The man, eying his impressive armor, beckoned him forward.
+The annis hag struck with its bite! He stunbles backward, gasping for breath. Malchambalde the dauntlessour hero leaned on his sword to catch a moment's respite. Malchambalde the impavidour hero was worn out by the combat. The annis hag leans low, ready to strike with its might. 
+
+The annis hag struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The annis hag struck with its bite! He winces from the pain but continues fighting. 
+
+The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! The ruinous annis hag failed to land its hit. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The unafraid Malchambalde was worn out by the combat. The annis hag struck with its bite! He blocks the strike with his sword. 
+
+The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! Malchambalde the stand tallour hero blocks the strike with his sword. The undaunted Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The annis hag struck with its bite! He blocks the strike with his sword. 
+
+The annis hag struck with its bite! Malchambalde reeled back in pain. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! The fierce blow from the monster narrowly misses Malchambalde. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! He blocks the strike with his sword. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! That blow seemed like it could break some bones. The annis hag struck with its bite! Malchambalde the fire-eatingour hero blocks the strike with his sword. Malchambalde lunged toward the annis hag, his sword ready to strike! The annis hag took a glancing blow. 
+
+He pulls a iris potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The fire-eating Malchambalde sneaked around to annis hag's blind spot. The annis hag struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
+
+He pulls a khaki x11 light khaki potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! The lurid annis hag failed to land its hit. he stumbles to his knee, gasping for breath. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The bold Malchambalde pulls a blue ryb potion from his pack and drinks it. He is reinvigorated. The annis hag struck with its bite! He blocks the strike with his sword. 
+
+He pulls a yellow process potion from his pack and drinks it. He is reinvigorated. The annis hag leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! He jumps out of the way. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+He sneaked around to annis hag's blind spot. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! The terrifying annis hag failed to land its hit. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. The intrepid Malchambalde pulls a magenta potion from his pack and drinks it. He is reinvigorated. 
+
+The annis hag leans low, ready to strike with its might. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The dauntless Malchambalde sneaked around to annis hag's blind spot. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag leans low, ready to strike with its might. The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The monster was stunned by the attack. The adventurer pulls a non photo blue potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He sneaked around to annis hag's blind spot. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! The nasty annis hag failed to land its hit. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+The annis hag struck with its bite! The fierce blow from the monster narrowly misses he. the impavid Malchambalde stumbles to his knee, gasping for breath. The annis hag struck with its bite! The gutty Malchambalde blocks the strike with his sword. 
+
+The annis hag struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
+
+Malchambalde the exaggeratedour hero sneaked around to annis hag's blind spot. The annis hag struck with its bite! He jumps out of the way. 
+
+The annis hag struck with its bite! The nasty annis hag failed to land its hit. The stouthearted Malchambalde leaned on his sword to catch a moment's respite. He was worn out by the combat. The annis hag leans low, ready to strike with its might. 
+
+The annis hag struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The annis hag leans low, ready to strike with its might. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. The annis hag struck with its bite! The dreadful annis hag failed to land its hit. Malchambalde lunged toward the annis hag, his sword ready to strike! The attack from he surely left a impression. 
+
+Malchambalde lunged toward the annis hag, his sword ready to strike! The annis hag was staggered by the immense force. The annis hag struck with its bite! He blocks the strike with his sword. Malchambalde lunged toward the annis hag, his sword ready to strike! Although he's hit landed, annis hag is mostly unphased
+
+The annis hag struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Malchambalde lunged toward the annis hag, his sword ready to strike! He landed a massive hit on annis hag! 
+
+Malchambalde sneaked around to annis hag's blind spot. Malchambalde lunged toward the annis hag, his sword ready to strike! The slippery annis hag evaded Malchambalde's hit. 
+
+He was victorious! The annis hag menaced for no longer! 
+
+## <a name="chapter21"></a> Chapter 21: Streen and the Sea Drake
+
+Malchambalde followed a dirt path into the village of Streen. The thimbler threw punches with a nurse. Nearby, a buffoon scuttled out of his way. Malchambalde continued down the path. Nearby, a milliner gazed at him from an open window.
+
+Eventually, Malchambalde arrived at the town square, where he found a crofter. The man, eying his strong forearms, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
+"The evil wizard Otes has terrorized these lands for far too long. I Malchambalde have come to destroy him!" Malchambalde exclaimed.
 
-The cutler sat by the side of the road with a ditcher. The man quietly reminised about the past, but eventually responded.
+The vintner finished an apple and tossed the core aside with a milliner. He still looked suspiciousHe finally responded.
 
-"Our village of Widgenham will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is past the barn. Look for the large hanging sign that reads "Sisyphon Fine Supplies". You'll find Sisyphon, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+"Airoclepiodorostrand is just a bit further down the street. It's just to the right. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Sumantes hurried towards the armory. The scabbard maker slept in an alleyway with a restaurateur. While the halberdier talked excitedly with what appeared to be a canaller, a watchman sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Malchambalde hurried towards the armory. Nearby, a singer sat by the side of the road. A engraver hawked fine imported goods from Ders. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
+Airoclepiodorostrand looked up from his work behind a counter at Malchambalde.
 
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
 
-Sisyphon grabbed a dusty book from the shelf and flipped through it. Pictures of dimorphodons and boggards flew by. Eventually he settled on a page and started to explain.
+Airoclepiodorostrand lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sea drake."
 
-The armorer sighed and continued. "Wyrmwraiths arise from the souls of powerful dragons who refuse to accept death or have an irrational fear of moving on to an afterlife. No longer concerned with amassing wealth and power, wyrmwraiths instead brood with an unrelenting hatred of all living things. They hate other dragons above all else, seeing the existence of those living creatures as a mockery of their own."
+Airoclepiodorostrand returned to the book of monsters on the desk and pointed at the terrifying illustration. "While obviously the product of draconic inbreeding, the heritage of sea drakes is less clear than that of other drakes. Among the strongest of the drakes, sea drakes still lack the mental acuity of their true dragon forebears, though they remain as brutally cunning as other drakes. Although amphibious, sea drakes spend the majority of their time in shallow coastal waters."
 
-Sumantes slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Malchambalde slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Sisyphon returned to the book of monsters on the desk and pointed at the terrifying illustration. "Wyrmwraiths typically haunt their former lairs or some other location where they can hide from the sunlight. They are drawn toward ancient ruins, forgotten catacombs, and other places associated with death. Litter, detritus and bones lie heaped in areas controlled by a wyrmwraith instead of the coins and gems. In the rare instances when a wyrmwraith is away from its den, the malice of its presence still lingers palpably in the cold air. Still displaying the draconic instinct to protect their homes from would-be thieves, wyrmwraiths will often create and leave behind undead guardians."
+"Sea drakes are up to 14 feet long from their noses to the tips of their powerful tails. They weigh 2,000 pounds." Airoclepiodorostrand explained.
 
-Sumantes slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
 
-Sisyphon returned to the book of monsters on the desk and pointed at the terrifying illustration. "Wyrmwraiths slay those who venture near their lairs, surrounding themselves with their newly created dread wraiths and any other undead they can create or control, carving out small fiefdoms populated by undead servitors. They send their minions to collect anything and anyone with knowledge or power they believe can aid them in their dark endeavors. Captured individuals who please the wyrmwraith can expect to be reborn as powerful undead while those that fail wallow in eternal torment as dread wraiths."
+Airoclepiodorostrand returned to the book of monsters on the desk and pointed at the terrifying illustration. "The most solitary of all drakes, sea drakes prefer to hunt alone. Occasionally, however, they band together in packs to hunt larger prey. Such rampages can be a significant danger to coastal shipping."
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde looked surprised. "Incredible! Is there anything else I should know?"
 
-"On rare occasions throughout history, powerful necromancers or dark cults have managed to entice or coerce a wyrmwraith into an alliance. These collaborations are fleeting, as wyrmwraiths still retain a twisted shadow of their draconic pride, seeing all other creatures as beneath them. Unless compelled to work with others, a wyrmwraith turns on its allies once they are no longer useful to it." Sisyphon explained.
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Malchambalde.
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+Malchambalde saw a scary sea drake in the distance! Malchambalde the grandioseour hero readied his sword. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-The armorer sighed and continued. "Finding a way to gain a wyrmwraith's attention is difficult because it is no longer interested in wealth or other mundane material possessions. Instead, wyrmwraiths seek knowledge or items to reverse or improve their undead condition. Their own loathing of what they have become is the only thing as strong as their hatred of the living. Yet, despite their predicament, they still fear ultimate death."
+Malchambalde the lion-heartedour hero pulls a platinum potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! Malchambalde reeled back in pain. 
 
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
+The adventurer sneaked around to sea drake's blind spot. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
 
-"A wyrmwraith blights the land with its very presence, a slowly spreading stain tainting anything it touches. Undead activity inevitably increases in any area a wyrmwraith inhabits. Unless a wyrmwraith is destroyed, its territory often becomes a lifeless wasteland for miles." Sisyphon explained.
+He pulls a bright pink potion from his pack and drinks it. He is reinvigorated. The sea drake leans low, ready to strike with its might. 
 
-Sumantes slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
 
-"Wyrmwraiths are very dangerous opponents in combat. They prefer to soften up enemies with their breath weapon and spells before closing in for melee. Wyrmwraiths target clerics, paladins, and other spellcasters wielding divine magic, both because they know divine magic possesses the greatest threat to them and because they see it as a chance to strike back against the gods for their accursed state. Wyrmwraiths care little about how many of their undead minions are destroyed in combat. They are merely pawns to the wyrmwraiths, who have the means at their disposal to create more." Sisyphon explained.
+Malchambalde sneaked around to sea drake's blind spot. The sea drake struck with its bite! The shocking sea drake failed to land its hit. 
 
-"I could handle that. Tell me again, what makes the wyrmwraith so bad?" Sumantes responded.
+Malchambalde lunged toward the sea drake, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. The adventurer pulls a seal brown potion from his pack and drinks it. He is reinvigorated. 
 
-"Wyrmwraiths appear as skeletal, ghostly versions of their former selves, their features warped by malice. No matter the size they once possessed, wyrmwraiths measure roughly 50 ft. from snout to tail. Unencumbered by flesh, they move with a silent, effortless, and deadly grace. Even wyrmwraiths' minds become changed in undeath. Already long-lived creatures when they were dragons, some wyrmwraiths have spent an even longer time as undead. Brooding and nurturing brutal hatred for the living for so long drives these wyrmwraiths insane, causing them to become reckless—or self-destructive—and to venture out into the night to rain down destruction on a nearby settlement or even an entire kingdom, knowing that they will eventually be hunted down and destroyed." Sisyphon explained.
+The sea drake struck with its bite! He jumps out of the way. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
 
-"I could handle that. Tell me again, what makes the wyrmwraith so bad?" Sumantes responded.
+He pulls a ghost white potion from his pack and drinks it. He is reinvigorated. Malchambalde lunged toward the sea drake, his sword ready to strike! The sea drake took a glancing blow. 
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a green ncs potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Malchambalde pulls a dandelion potion from his pack and drinks it. He is reinvigorated. 
+
+He sneaked around to sea drake's blind spot. The sea drake struck with its bite! Malchambalde blocks the strike with his sword. 
+
+He pulls a rajah potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! Malchambalde reeled back in pain. 
+
+Malchambalde the intrepidour hero sneaked around to sea drake's blind spot. Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. 
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a kelly green potion from his pack and drinks it. He is reinvigorated. 
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. The monster was stunned by the attack. The unafraid Malchambalde sneaked around to sea drake's blind spot. 
+
+The sea drake struck with its bite! The epic Malchambalde blocks the strike with his sword. Malchambalde lunged toward the sea drake, his sword ready to strike! Although Malchambalde's hit landed, sea drake is mostly unphased
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The sea drake was struck by the blow! 
+
+Malchambalde lunged toward the sea drake, his sword ready to strike! The shattering blow from the adventurer rumbled through the ground. The monster was stunned by the attack. Malchambalde lunged toward the sea drake, his sword ready to strike! The slippery sea drake evaded Malchambalde's hit. 
+
+He pulls a cinnabar potion from his pack and drinks it. He is reinvigorated. The sea drake struck with its bite! He jumps out of the way. 
+
+The inflated Malchambalde was victorious! The sea drake menaced for no longer! 
+
+## <a name="chapter22"></a> Chapter 22: Eweridersmiton and the Dragon Horse
+
+Malchambalde followed a dirt path into the village of Eweridersmiton. A goldsmith gazed at him from an open window. A pastrycook sat by the side of the road. Malchambalde continued down the path. The cartier scuttled out of his way with a lorimer.
+
+Eventually, Malchambalde arrived at the town square, where he found a professor. Malchambalde approached him, hoping for some advice.
+
+"My name is Malchambalde, and it is my quest to defeat the evil wizard Otes." Malchambalde announced.
+
+Two footpads slept in an alleyway. He still looked suspicious, but eventually responded.
+
+"We have waited for your arrival for many years, Malchambalde. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Gaylos is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Gaylos Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Malchambalde hurried towards the armory. The confectioner finished an apple and tossed the core aside with a plattner. While the begger ran from person to person, asking if they had seen Pagos, a beekeeper scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Gaylos looked up from his work behind a counter at Malchambalde.
+
+"I'm Malchambalde, a brave adventurer seeking to destroy Otes. What dangers lurk nearby?" he asked.
+
+Gaylos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The dragon horse."
+
+The armorer sighed and continued. "Despite their name, dragon horses are not related to dragons. These noble creatures gain their name from their ability to fly through the air without wings and to create different effects with their misty breath."
+
+Malchambalde slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Dragon horses are solitary creatures, spending most of their time up among the clouds and rarely setting hoof to solid ground. A mated pair of dragon horses remains together to raise its young, but otherwise individuals prefer to be on their own. They are fierce and reclusive, but peaceful and even playful under the right circumstances. Dragon horses sometimes offer aid and assistance to decent folk in need, taking care to use their ability to know alignment to avoid accidentally providing aid to evil creatures, whom they despise." Gaylos explained.
+
+"I could handle that. Tell me again, what makes the dragon horse so bad?" Malchambalde responded.
+
+The armorer sighed and continued. "Dragon horse foals are highly prized as potential steeds, but as dragon horses are highly intelligent creatures, they cannot be trained as if they were animals. Instead, one who seeks a dragon horse mount must use diplomacy to secure the creature's aid."
+
+"I could handle that. Tell me again, what makes the dragon horse so bad?" Malchambalde responded.
+
+The armorer sighed and continued. "Peaceful creatures by nature, dragon horses prefer to avoid combat by flying away. When they are forced to fight (often in response to an evil creature's mayhem), they attempt to deal nonlethal damage to all but evil-aligned foes, leaving any unconscious opponents unharmed. Those who have chosen evil ways may sometimes receive the same mercy, in the hope that it helps them see the light, but innately evil foes are dispatched as quickly and cleanly as possible."
+
+Malchambalde slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Sumantes saw a fairy wyrmwraith in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
+Malchambalde saw a shocking dragon horse in the distance! Our hero fixed his gaze on the ungodly sight. Malchambalde hurried towards the enemy, ready to strike it down with all his might! 
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was staggered by the immense force. The monster was stunned by the attack. The adventurer pulls a persian blue potion from his pack and drinks it. He is reinvigorated. 
+The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The ungodly dragon horse failed to land its hit. 
 
-He pulls a up maroon potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. 
 
-The wyrmwraith leans low, ready to strike with its might. Sumantes lunged toward the wyrmwraith, his sword ready to strike! Although Sumantes the grittyour hero's hit landed, wyrmwraith is mostly unphased
+The dragon horse struck with its hooves! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The dragon horse struck with its hooves! He jumps out of the way. 
 
-The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! Although Malchambalde's hit landed, dragon horse is mostly unphasedThe monster was stunned by the attack. He sneaked around to dragon horse's blind spot. 
 
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+The adventurer sneaked around to dragon horse's blind spot. Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-The wyrmwraith struck with its incorporeal bite! The gritty Sumantes jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was staggered by the immense force. The dragon horse struck with its hooves! He stunbles backward, gasping for breath. Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. 
 
-The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! He stunbles backward, gasping for breath. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The monster was stunned by the attack. He pulls a pale cornflower blue potion from his pack and drinks it. He is reinvigorated. 
 
-The epic Sumantes sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! The terrible wyrmwraith failed to land its hit. 
+The dragon horse struck with its hooves! The offensive dragon horse failed to land its hit. The exhilarating combat made the hours seem like seconds. The dragon horse struck with its hooves! The adventurer winces from the pain but continues fighting. 
 
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! The adventurer stunbles backward, gasping for breath. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Malchambalde sneaked around to dragon horse's blind spot. 
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. He pulls a dark spring green potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The dragon horse struck with its hooves! The fierce blow from the monster narrowly misses Malchambalde the grandioseour hero. Malchambalde lunged toward the dragon horse, his sword ready to strike! The attack from Malchambalde surely left a impression. 
 
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The revolting dragon horse failed to land its hit. 
 
-Sumantes the boldour hero sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. 
+He pulls a lavender pink potion from his pack and drinks it. He is reinvigorated. The dragon horse leans low, ready to strike with its might. 
 
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
+The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! The fierce blow from the monster narrowly misses the adventurer. 
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
+The dragon horse leans low, ready to strike with its might. Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. 
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The wyrmwraith struck with its incorporeal bite! The frightful wyrmwraith failed to land its hit. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
+The dragon horse struck with its hooves! The adventurer jumps out of the way. Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was struck by the blow! 
 
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the noble Sumantes. he stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses Sumantes. 
+The dragon horse leans low, ready to strike with its might. Malchambalde lunged toward the dragon horse, his sword ready to strike! Although he's hit landed, dragon horse is mostly unphased
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was staggered by the immense force. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The attack from Sumantes surely left a impression. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The attack from he surely left a impression. The dragon horse struck with its hooves! The disgusting dragon horse failed to land its hit. Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was struck by the blow! 
 
-The wyrmwraith leans low, ready to strike with its might. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith took a glancing blow. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The dragon horse was staggered by the immense force. The monster was stunned by the attack. Malchambalde the courageousour hero sneaked around to dragon horse's blind spot. 
 
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! The valiant Sumantes winces from the pain but continues fighting. 
+Malchambalde the grittyour hero pulls a light thulian pink potion from his pack and drinks it. He is reinvigorated. The dragon horse struck with its hooves! The abhorrent dragon horse failed to land its hit. 
 
-The wyrmwraith struck with its incorporeal bite! Sumantes stunbles backward, gasping for breath. the adventurer stumbles to his knee, gasping for breath. The wyrmwraith leans low, ready to strike with its might. 
+Malchambalde lunged toward the dragon horse, his sword ready to strike! The slippery dragon horse evaded Malchambalde's hit. The monster was stunned by the attack. Malchambalde lunged toward the dragon horse, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. The adventurer pulls a black potion from his pack and drinks it. He is reinvigorated. 
+Malchambalde says
 
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. The adventurer pulls a pastel magenta potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. Sumantes the exaggeratedour hero sneaked around to wyrmwraith's blind spot. 
-
-Sumantes the courageousour hero sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
-
-The exaggerated Sumantes sneaked around to wyrmwraith's blind spot. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith struck with its incorporeal bite! Sumantes jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. 
-
-The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! Sumantes the doughtyour hero blocks the strike with his sword. 
-
-The wyrmwraith struck with its incorporeal bite! Sumantes jumps out of the way. The exhilarating combat made the hours seem like seconds. The wyrmwraith struck with its incorporeal bite! The ghastly wyrmwraith failed to land its hit. 
-
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
-
-The wyrmwraith struck with its incorporeal bite! Sumantes stunbles backward, gasping for breath. Sumantes stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! The awful wyrmwraith failed to land its hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The wyrmwraith struck with its incorporeal bite! Sumantes winces from the pain but continues fighting. Sumantes lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The wyrmwraith struck with its incorporeal bite! Sumantes the bigger than lifeour hero blocks the strike with his sword. Sumantes leaned on his sword to catch a moment's respite. The gritty Sumantes was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. He pulls a baby pink potion from his pack and drinks it. He is reinvigorated. 
-
-The wyrmwraith struck with its incorporeal bite! The disgusting wyrmwraith failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith struck with its incorporeal bite! The disagreeable wyrmwraith failed to land its hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was staggered by the immense force. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! Sumantes blocks the strike with his sword. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith struck with its incorporeal bite! The adventurer jumps out of the way. Sumantes lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was struck by the blow! 
-
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! Sumantes the elevatedour hero stunbles backward, gasping for breath. 
-
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the stand tall Sumantes. Sumantes the valiantour hero leaned on his sword to catch a moment's respite. Sumantes the gutsyour hero was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-He pulls a cadmium yellow potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
-
-The grand Sumantes sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! The adventurer winces from the pain but continues fighting. 
-
-The adventurer pulls a byzantium potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. The gutsy Sumantes pulls a anti flash white potion from his pack and drinks it. He is reinvigorated. 
-
-The wyrmwraith struck with its incorporeal bite! The unkind wyrmwraith failed to land its hit. The exhilarating combat made the hours seem like seconds. The wyrmwraith struck with its incorporeal bite! The adventurer jumps out of the way. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! That blow seemed like it could break some bones. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphasedThe monster was stunned by the attack. The adventurer sneaked around to wyrmwraith's blind spot. 
-
-The adventurer sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! The nasty wyrmwraith failed to land its hit. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith leans low, ready to strike with its might. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The attack from Sumantes surely left a impression. 
-
-He pulls a blond potion from his pack and drinks it. He is reinvigorated. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
-
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! The gallant Sumantes blocks the strike with his sword. 
-
-He pulls a dark brown potion from his pack and drinks it. He is reinvigorated. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! The grim wyrmwraith failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith struck with its incorporeal bite! He jumps out of the way. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. The adventurer pulls a red potion from his pack and drinks it. He is reinvigorated. 
-
-The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The wyrmwraith struck with its incorporeal bite! The eerie wyrmwraith failed to land its hit. 
-
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The attack from he surely left a impression. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was struck by the blow! 
-
-The wyrmwraith struck with its incorporeal bite! The adventurer jumps out of the way. Sumantes lunged toward the wyrmwraith, his sword ready to strike! Sumantes landed a massive hit on wyrmwraith! 
-
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! Sumantes winces from the pain but continues fighting. 
-
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The wyrmwraith struck with its incorporeal bite! The scary wyrmwraith failed to land its hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! Sumantes landed a massive hit on wyrmwraith! The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The attack from the elevated Sumantes surely left a impression. 
-
-The wyrmwraith struck with its incorporeal bite! The lurid wyrmwraith failed to land its hit. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! A sharp crack was heard as the strike left its mark. The wyrmwraith struck with its incorporeal bite! The undaunted Sumantes blocks the strike with his sword. Sumantes lunged toward the wyrmwraith, his sword ready to strike! Although he's hit landed, wyrmwraith is mostly unphased
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was struck by the blow! The wyrmwraith struck with its incorporeal bite! He stunbles backward, gasping for breath. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith struck with its incorporeal bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith struck with its incorporeal bite! Sumantes reeled back in pain. 
-
-The wyrmwraith leans low, ready to strike with its might. The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. 
-
-The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-He sneaked around to wyrmwraith's blind spot. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith leans low, ready to strike with its might. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-The wyrmwraith struck with its incorporeal bite! He jumps out of the way. The adventurer leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! The adventurer blocks the strike with his sword. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The slippery wyrmwraith evaded Sumantes's hit. 
-
-Sumantes lunged toward the wyrmwraith, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Sumantes lunged toward the wyrmwraith, his sword ready to strike! The wyrmwraith was staggered by the immense force. 
-
-The wyrmwraith struck with its incorporeal bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The wyrmwraith leans low, ready to strike with its might. 
-
-The wyrmwraith struck with its incorporeal bite! He blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The wyrmwraith leans low, ready to strike with its might. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Sisyphon was talking about."
-
-## <a name="chapter22"></a> Chapter 22: Ruill and the Dark Dancer
-
-Sumantes followed a dirt path into the village of Ruill. Nearby, a ship's captain finished an apple and tossed the core aside. Nearby, a lady sat by the side of the road. Sumantes continued down the path. A tanner bit into an apple.
-
-Eventually, Sumantes arrived at the town square, where he found a cowherd. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-While the silkmaid threw punches, a farrier scuttled out of his way. He still looked suspiciousHe finally responded.
-
-"Our village of Ningtone will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Gutxinous is down the street to the warehouse and right. You'll see a church. It's down the street to the church and right. You'll see a monastery. It's down the street to the stables and right. You'll see a barn. It's just a bit further down the street. Look for the large hanging sign that reads "Gutxinous Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. Nearby, a wiredrawer finished an apple and tossed the core aside. A scabbard maker eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Gutxinous lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The dark dancer."
-
-"Though still clad in the tattered dark clothing worn by other dark folk, dark dancers appear to be the most decorated and festive of these strange humanoids. They are intermediaries between clans and factions, and thus clans can't restrict the actions of dark dancers in their realms. Dark dancers answer only to dark stalkers and dark callers." Gutxinous explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the dark dancer?" Sumantes asked.
-
-"Though fickle and erratic, dark dancers are well liked and usually welcome among clans for as long as they wish to stay. Yet they rarely stay long, instead insinuating themselves into dozens of underground communities over the course of a year. They serve as storytellers, entertainers, and messengers. One of their favorite stories to share is about the relationship between their kind and the owbs." Gutxinous explained.
-
-"I could handle that. Tell me again, what makes the dark dancer so bad?" Sumantes responded.
-
-"Though dark dancers are rare and weak, they are highly appreciated by dark folk society. Dark folk consider it a bad omen when a dark dancer dies. Dark dancers stand just under 4 feet tall and weigh 60 pounds." Gutxinous explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the dark dancer?" Sumantes asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a hideous dark dancer in the distance! Our hero fixed his gaze on the ruinous sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The dark dancer struck with its club! He stunbles backward, gasping for breath. Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. 
-
-The dark dancer leans low, ready to strike with its might. The dark dancer struck with its club! He jumps out of the way. 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to dark dancer's blind spot. 
-
-He pulls a mellow apricot potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to dark dancer's blind spot. 
-
-The dark dancer struck with its club! He jumps out of the way. the adventurer stumbles to his knee, gasping for breath. The dark dancer struck with its club! The inflated Sumantes blocks the strike with his sword. 
-
-The dark dancer leans low, ready to strike with its might. Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The dark dancer struck with its club! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. 
-
-The dark dancer struck with its club! Sumantes jumps out of the way. he stumbles to his knee, gasping for breath. The dark dancer leans low, ready to strike with its might. 
-
-He pulls a gold web golden potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the dark dancer, his sword ready to strike! The attack from he surely left a impression. 
-
-Sumantes lunged toward the dark dancer, his sword ready to strike! The slippery dark dancer evaded Sumantes's hit. The monster was stunned by the attack. Sumantes pulls a light cyan potion from his pack and drinks it. He is reinvigorated. 
-
-The stand tall Sumantes sneaked around to dark dancer's blind spot. The dark dancer leans low, ready to strike with its might. 
-
-The epic Sumantes was victorious! The dark dancer menaced for no longer! 
-
-## <a name="chapter23"></a> Chapter 23: Chat Pard's Amermen and the Tengu
-
-Sumantes followed a dirt path into the village of Chat Pard's Amermen. Two hay merchants hawked fine imported goods from Shiss. Two furriers talked excitedly with what appeared to be a woodturner. Sumantes continued down the path. The prostitute talked excitedly with what appeared to be a lapidary with a nailer.
-
-Eventually, Sumantes arrived at the town square, where he found a stonecarver. Sumantes approached him, hoping for some advice.
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-A oyster raker rushed by quickly, ignoring him. He still looked suspicious, but eventually responded.
-
-"Our village of Eastentre will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Feran is the best in town. His shop is past the tavern. Look for the large hanging sign that reads "Feran Fine Supplies". And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. The terrazo grinder bit into an apple with a ropemaker. A merchant rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Feran grabbed a dusty book from the shelf and flipped through it. Pictures of tigers and thunder behemoths flew by. Eventually he settled on a page and started to explain.
-
-Feran returned to the book of monsters on the desk and pointed at the terrifying illustration. "Tengus are a race of avian humanoids that resemble crows or ravens, and often bear much of the same stigma. Though they frequently choose to live among other races in densely populated cities, their society is tight and closed, and they rarely allow others to see its inner workings. Tengus often band together in small groups to create roosts in vacant warehouses or condemned buildings, and these raucous gathering places are generally assumed to be thieves' guilds by outsiders—an assumption that's correct roughly half the time."
-
-"But my weapons may be too weak. Are there any other ways to defeat the tengu?" Sumantes asked.
-
-The armorer sighed and continued. "Like the crows they share physical traits with, tengus are naturally covetous, especially of shiny or colorful items, and prone to bouts of good-natured kleptomania if they don't carefully keep themselves in check. Vain and prideful creatures, they are easily persuaded with flattery."
-
-"But my weapons may be too weak. Are there any other ways to defeat the tengu?" Sumantes asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a horrendous tengu in the distance! Our hero fixed his gaze on the ungodly sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes the lion-heartedour hero pulls a up maroon potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the tengu, his sword ready to strike! The slippery tengu evaded Sumantes's hit. 
-
-Sumantes lunged toward the tengu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The tengu struck with its dagger! He jumps out of the way. Sumantes lunged toward the tengu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The tengu leans low, ready to strike with its might. The tengu struck with its dagger! The fierce blow from the monster narrowly misses the gutty Sumantes. 
-
-He pulls a lemon potion from his pack and drinks it. He is reinvigorated. The tengu struck with its dagger! The gritty Sumantes jumps out of the way. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Feran was talking about."
-
-## <a name="chapter24"></a> Chapter 24: Haventreen and the Lizardfolk
-
-Sumantes followed a dirt path into the village of Haventreen. Nearby, a sculptor slept in an alleyway. While the tallowchandler eyed him suspiciously, a begger ran from person to person, asking if they had seen Turstanesinus. Sumantes continued down the path. The drywaller slept in an alleyway with a camp follower.
-
-Eventually, Sumantes arrived at the town square, where he found a stonecarver. The man, eying his foreboding cloak, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-While the king gazed at him from an open window, a stainer slept in an alleyway. The man quietly reminised about the past, but eventually responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Pagal is past the monastery. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. The broderer scuttled out of his way with a builder. While the linenspinner eyed him suspiciously, a stillroom maid threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Pagal lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The lizardfolk."
-
-Pagal returned to the book of monsters on the desk and pointed at the terrifying illustration. "Lizardfolk are proud and powerful reptilian predators that make their communal homes in scattered villages deep within swamps and marshes. Uninterested in colonization of the dry lands and content with the simple weapons and rituals that have served them well for millennia, lizardfolk are viewed by many other races as backwater savages, but within their isolated communities lizardfolk are actually a vibrant people filled with tradition and an oral history stretching back to before humans walked upright."
-
-Sumantes slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Pagal returned to the book of monsters on the desk and pointed at the terrifying illustration. "Most lizardfolk stand 6 to 7 feet tall and weigh 200 to 250 pounds, their powerful muscles covered in scales of gray, green, or brown. Some breeds have short dorsal spikes or brightly colored frills, and all swim well by moving with flicks of their powerful 4-foot-long tails. While completely at home in the water, they breathe air and return to their clustered mound-dwellings to breed and sleep. As their reptilian blood makes them sluggish in the cold, most lizardfolk hunt and work during the day and retreat to their homes at night to curl up with other tribesmen in the shared warmth of large peat fires."
-
-"I could handle that. Tell me again, what makes the lizardfolk so bad?" Sumantes responded.
-
-"Though generally neutral, lizardfolks' standoffish demeanor, staunch rejection of civilization's "gifts," and legendary ferocity in battle cause them to be viewed negatively by most humanoids. These traits stem from good reasons, however, as their own slow rate of reproduction is no match for warm-blooded humanoids, and those tribes who don't defend their wetland territories to the last breath quickly find themselves overwhelmed by the mammalian hordes. As for their tendency to consume the bodies of dead friends and enemies alike, the practical lizardfolk are quick to point out that life is hard in the swamp, and nothing should go to waste." Pagal explained.
-
-"I could handle that. Tell me again, what makes the lizardfolk so bad?" Sumantes responded.
-
-The armorer sighed and continued. "The lizardfolk presented here dwell in a swampy environment. Lizardfolk tribes can exist in other environments as well, but they lose their swim speed and instead gain a climb speed of 15 feet."
-
-"I could handle that. Tell me again, what makes the lizardfolk so bad?" Sumantes responded.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Sumantes saw a mean lizardfolk in the distance! Our hero fixed his gaze on the nasty sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-He pulls a urobilin potion from his pack and drinks it. He is reinvigorated. The lizardfolk struck with its morningstar! Sumantes jumps out of the way. 
-
-The lizardfolk struck with its morningstar! The horrid lizardfolk failed to land its hit. he stumbles to his knee, gasping for breath. The lizardfolk leans low, ready to strike with its might. 
-
-The lizardfolk leans low, ready to strike with its might. The lizardfolk struck with its morningstar! Sumantes blocks the strike with his sword. 
-
-The lizardfolk struck with its morningstar! Sumantes reeled back in pain. The fearless Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The lizardfolk leans low, ready to strike with its might. 
-
-The lizardfolk struck with its morningstar! The grandiose Sumantes jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The lizardfolk struck with its morningstar! The exaggerated Sumantes blocks the strike with his sword. 
-
-Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. 
-
-Sumantes the lion-heartedour hero pulls a china pink potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. 
-
-Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. 
-
-The lizardfolk struck with its morningstar! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The lizardfolk leans low, ready to strike with its might. 
-
-Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. The lizardfolk struck with its morningstar! He jumps out of the way. Sumantes lunged toward the lizardfolk, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Sumantes lunged toward the lizardfolk, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. 
-
-Sumantes lunged toward the lizardfolk, his sword ready to strike! The slippery lizardfolk evaded Sumantes's hit. The lizardfolk struck with its morningstar! He blocks the strike with his sword. Sumantes lunged toward the lizardfolk, his sword ready to strike! He landed a massive hit on lizardfolk! 
-
-The lizardfolk struck with its morningstar! The nasty lizardfolk failed to land its hit. the bold Sumantes stumbles to his knee, gasping for breath. The lizardfolk leans low, ready to strike with its might. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Pagal was talking about."
-
-## <a name="chapter25"></a> Chapter 25: Ellymon and the Monkey Swarm
-
-Sumantes followed a dirt path into the village of Ellymon. While the carter threw punches, a architect slowly carried supplies. A horner gazed at him from an open window. Sumantes continued down the path. The wattler bit into an apple with a bishop.
-
-Eventually, Sumantes arrived at the town square, where he found a prince. The man, eying his well-made boots, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-While the oilmaker slept in an alleyway, a guardsman ran from person to person, asking if they had seen Hunas. The man sat in silence for a whileHe finally responded.
-
-"Our village of Alburch will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Domismeneos is just a bit further down the street. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. The waferer slept in an alleyway with a ferryman. Nearby, a wiredrawer talked excitedly with what appeared to be a harberdasher. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Domismeneos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The monkey swarm."
-
-"Monkeys sometimes travel in huge colonies of hundreds of individuals. In such quantities, these primates can become quite dangerous, capable of overwhelming many foes by their sheer numbers." Domismeneos explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the monkey swarm?" Sumantes asked.
-
-The armorer sighed and continued. "Unlike most swarms, monkey swarms work well together. A swarm of monkeys does not possess a true hive mind, but it is capable of working in tandem with other swarms to make basic tactical decisions in combat."
-
-"I could handle that. Tell me again, what makes the monkey swarm so bad?" Sumantes responded.
-
-"That's all I can tell you."
-
-Sumantes saw a abominable monkey swarm in the distance! Our hero fixed his gaze on the fairy sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the monkey swarm, his sword ready to strike! The slippery monkey swarm evaded Sumantes's hit. The monster was stunned by the attack. The exaggerated Sumantes pulls a rose pink potion from his pack and drinks it. He is reinvigorated. 
-
-The adventurer pulls a venetian red potion from his pack and drinks it. He is reinvigorated. The monkey swarm leans low, ready to strike with its might. 
-
-The monkey swarm leans low, ready to strike with its might. Sumantes lunged toward the monkey swarm, his sword ready to strike! The monkey swarm took a glancing blow. 
-
-The adventurer sneaked around to monkey swarm's blind spot. The monkey swarm struck with its swarm! He blocks the strike with his sword. 
-
-The doughty Sumantes sneaked around to monkey swarm's blind spot. Sumantes lunged toward the monkey swarm, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-He pulls a little boy blue potion from his pack and drinks it. He is reinvigorated. The monkey swarm struck with its swarm! The beastly monkey swarm failed to land its hit. 
-
-The monkey swarm struck with its swarm! He blocks the strike with his sword. Sumantes lunged toward the monkey swarm, his sword ready to strike! The slippery monkey swarm evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Domismeneos was talking about."
-
-## <a name="chapter26"></a> Chapter 26: Knigwe and the Retriever
-
-Sumantes followed a dirt path into the village of Knigwe. The cannoneer scuttled out of his way with a chainmaker. While the tailor ran from person to person, asking if they had seen Zaratheus, a waxchandler slowly carried supplies. Sumantes continued down the path. While the gunsmith rushed by quickly, ignoring him, a burglar finished an apple and tossed the core aside.
-
-Eventually, Sumantes arrived at the town square, where he found a brushbinder. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-Two blacksmiths hawked fine imported goods from Toth East Oak. The man eyed him thoughtfullyHe finally responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Lovet is into the market and towards the barn. Eventually you need to walk past the inn. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. Two tinsmiths finished an apple and tossed the core aside. A ragpicker finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Lovet looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Lovet lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The retriever."
-
-Lovet returned to the book of monsters on the desk and pointed at the terrifying illustration. "Not all constructs are formed from unliving matter like stone, wood, metal, or dead flesh. In the darkest corners of the Great Beyond, certain powerful demon lords have mastered the art of shaping the raw, protoplasmic flesh of the Abyss into hideous monstrosities devoid of life, emotion, and the will to resist control. The monstrous retriever is the best-known of such constructs, a huge spider-like creation capable of unleashing potent energy upon those it has been ordered to seek."
-
-Sumantes slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Demon lords use retrievers to seek out those who dare abandon their loyalties or flee from servitude. Often, the presence of a retriever in a demon's den is enough in and of itself to ensure the loyalty of the lesser demons. The constructs also excel in tracking down specific objects and returning them to their masters—their intelligence is just enough to allow them to focus on their ordered tasks but not quite enough for them to form ideas of rebellion and longings for freedom." Lovet explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the retriever?" Sumantes asked.
-
-The armorer sighed and continued. "A retriever's body is the size of an elephant, and its legspan is nearly 30 feet. It weighs 6,500 pounds."
-
-Sumantes slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a horrendous retriever in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-He pulls a outer space potion from his pack and drinks it. He is reinvigorated. The retriever struck with its bite! The lurid retriever failed to land its hit. 
-
-The retriever struck with its bite! The fierce blow from the monster narrowly misses he. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-The retriever struck with its bite! The intrepid Sumantes jumps out of the way. Sumantes lunged toward the retriever, his sword ready to strike! The retriever was staggered by the immense force. 
-
-The retriever struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The retriever struck with its bite! He stunbles backward, gasping for breath. 
-
-The retriever struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The retriever leans low, ready to strike with its might. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! The fierce blow from the monster narrowly misses Sumantes the exaggeratedour hero. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the retriever, his sword ready to strike! The retriever was staggered by the immense force. 
-
-The lion-hearted Sumantes pulls a light slate gray potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the retriever, his sword ready to strike! The attack from he surely left a impression. 
-
-The adventurer sneaked around to retriever's blind spot. Sumantes lunged toward the retriever, his sword ready to strike! The retriever was struck by the blow! 
-
-He sneaked around to retriever's blind spot. The retriever struck with its bite! He stunbles backward, gasping for breath. 
-
-Sumantes the valiantour hero sneaked around to retriever's blind spot. The retriever leans low, ready to strike with its might. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! The menacing retriever failed to land its hit. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! He jumps out of the way. 
-
-The retriever struck with its bite! Sumantes jumps out of the way. the elevated Sumantes stumbles to his knee, gasping for breath. The retriever leans low, ready to strike with its might. 
-
-Sumantes pulls a icterine potion from his pack and drinks it. He is reinvigorated. The retriever struck with its bite! The fierce blow from the monster narrowly misses Sumantes the mythologicalour hero. 
-
-He pulls a caribbean green potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the retriever, his sword ready to strike! The retriever was struck by the blow! 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to retriever's blind spot. 
-
-He sneaked around to retriever's blind spot. The retriever leans low, ready to strike with its might. 
-
-The retriever struck with its bite! The gritty Sumantes winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The retriever struck with its bite! He stunbles backward, gasping for breath. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the retriever, his sword ready to strike! The shattering blow from the stand tall Sumantes rumbled through the ground. 
-
-Sumantes the fearlessour hero sneaked around to retriever's blind spot. The retriever struck with its bite! The gutsy Sumantes jumps out of the way. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! Sumantes winces from the pain but continues fighting. 
-
-He sneaked around to retriever's blind spot. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-He sneaked around to retriever's blind spot. The retriever struck with its bite! The adventurer blocks the strike with his sword. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
-
-The retriever leans low, ready to strike with its might. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-The retriever struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The retriever struck with its bite! He winces from the pain but continues fighting. Sumantes lunged toward the retriever, his sword ready to strike! The retriever took a glancing blow. 
-
-The retriever struck with its bite! The beastly retriever failed to land its hit. Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The retriever leans low, ready to strike with its might. 
-
-The retriever leans low, ready to strike with its might. The retriever struck with its bite! The disgusting retriever failed to land its hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! A sharp crack was heard as the strike left its mark. The retriever struck with its bite! The terrifying retriever failed to land its hit. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. The adventurer sneaked around to retriever's blind spot. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes sneaked around to retriever's blind spot. Sumantes lunged toward the retriever, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He pulls a seal brown potion from his pack and drinks it. He is reinvigorated. The retriever struck with its bite! He jumps out of the way. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! That blow seemed like it could break some bones. The retriever struck with its bite! The terrifying retriever failed to land its hit. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. The retriever struck with its bite! He stunbles backward, gasping for breath. Sumantes lunged toward the retriever, his sword ready to strike! The shattering blow from Sumantes the classicour hero rumbled through the ground. 
-
-The retriever struck with its bite! Sumantes the fire-eatingour hero winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The retriever struck with its bite! The fierce blow from the monster narrowly misses Sumantes the intrepidour hero. 
-
-The adventurer sneaked around to retriever's blind spot. Sumantes lunged toward the retriever, his sword ready to strike! The slippery retriever evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Lovet was talking about."
-
-## <a name="chapter27"></a> Chapter 27: Ondon Roadforneywareethnark and the Giant Stag Beetle
-
-Sumantes followed a dirt path into the village of Ondon Roadforneywareethnark. While the pattenmaker finished an apple and tossed the core aside, a silversmith eyed him suspiciously. A prostitute rushed by quickly, ignoring him. Sumantes continued down the path. A summoner hawked fine imported goods from Newbur.
-
-Eventually, Sumantes arrived at the town square, where he found a alewife. The man, eying his foreboding cloak, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Euryllus has terrorized these lands for far too long. I Sumantes have come to destroy him!" Sumantes exclaimed.
-
-Nearby, a reaper finished an apple and tossed the core aside. The man sat in silence for a while, but eventually responded.
-
-"Our village of Bow will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Kyros is the best in town. His shop is into the market and towards the stables. Eventually you need to walk past the cattle barn. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. Nearby, a bather loaded a market stall with wares. Two gardners hawked fine imported goods from Tunbriss. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Kyros lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant stag beetle."
-
-"Nearly 10 feet long, giant stag beetles become serious dangers when they wander into logging camps due to their appetite for decaying wood. Called stag beetles because of their large, antler-like mandibles, they use these appendages to wrestle competing suitors and quickly put down enemy threats." Kyros explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the giant stag beetle?" Sumantes asked.
-
-The armorer sighed and continued. "Variant species of these giant beetles exist as well. The two detailed below are the ones most commonly encountered."
-
-Sumantes slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Kyros returned to the book of monsters on the desk and pointed at the terrifying illustration. "Bombardier Beetle (CR 2): This giant stag beetle has only 2 Hit Dice and is Medium sized, but can spray acid once per round in a 10-foot cone. Those in the cone must make a DC 11 Fortitude save or take 1d4+2 points of acid damage. The save DC is Constitution-based."
-
-"But my weapons may be too weak. Are there any other ways to defeat the giant stag beetle?" Sumantes asked.
-
-The armorer sighed and continued. "Goliath Beetle (CR 8): The immense goliath beetle is a Huge stag beetle with 12 HD and the trample special ability."
-
-Sumantes slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Sumantes saw a abhorrent giant stag beetle in the distance! Our hero fixed his gaze on the lousy sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes sneaked around to giant stag beetle's blind spot. The giant stag beetle struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. The giant stag beetle struck with its bite! He jumps out of the way. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-Sumantes lunged toward the giant stag beetle, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-Sumantes pulls a amaranth potion from his pack and drinks it. He is reinvigorated. The giant stag beetle struck with its bite! He jumps out of the way. 
-
-The giant stag beetle leans low, ready to strike with its might. The giant stag beetle struck with its bite! He blocks the strike with his sword. 
-
-The giant stag beetle leans low, ready to strike with its might. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-The giant stag beetle struck with its bite! Sumantes reeled back in pain. The exhilarating combat made the hours seem like seconds. The giant stag beetle leans low, ready to strike with its might. 
-
-Sumantes the grandioseour hero sneaked around to giant stag beetle's blind spot. The giant stag beetle leans low, ready to strike with its might. 
-
-The giant stag beetle struck with its bite! The daring Sumantes blocks the strike with his sword. he stumbles to his knee, gasping for breath. The giant stag beetle struck with its bite! The fierce blow from the monster narrowly misses Sumantes the doughtyour hero. 
-
-Sumantes pulls a ebony potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the giant stag beetle, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The giant stag beetle leans low, ready to strike with its might. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-The giant stag beetle leans low, ready to strike with its might. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-The giant stag beetle leans low, ready to strike with its might. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-The giant stag beetle struck with its bite! Sumantes stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The giant stag beetle struck with its bite! He blocks the strike with his sword. 
-
-He sneaked around to giant stag beetle's blind spot. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-The giant stag beetle struck with its bite! He jumps out of the way. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. The giant stag beetle struck with its bite! The fierce blow from the monster narrowly misses the bold Sumantes. Sumantes lunged toward the giant stag beetle, his sword ready to strike! Although the dauntless Sumantes's hit landed, giant stag beetle is mostly unphased
-
-Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The giant stag beetle was staggered by the immense force. 
-
-The giant stag beetle leans low, ready to strike with its might. The giant stag beetle struck with its bite! The repulsive giant stag beetle failed to land its hit. 
-
-Sumantes the grandour hero sneaked around to giant stag beetle's blind spot. The giant stag beetle leans low, ready to strike with its might. 
-
-Sumantes lunged toward the giant stag beetle, his sword ready to strike! Although the adventurer's hit landed, giant stag beetle is mostly unphasedThe monster was stunned by the attack. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The giant stag beetle was staggered by the immense force. 
-
-The giant stag beetle struck with its bite! The impavid Sumantes stunbles backward, gasping for breath. Sumantes the doughtyour hero stumbles to his knee, gasping for breath. The giant stag beetle leans low, ready to strike with its might. 
-
-The giant stag beetle leans low, ready to strike with its might. Sumantes lunged toward the giant stag beetle, his sword ready to strike! The slippery giant stag beetle evaded Sumantes's hit. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Kyros was talking about."
-
-## <a name="chapter28"></a> Chapter 28: Lead and the Gargoyle
-
-Sumantes followed a dirt path into the village of Lead. A chicken butcher sat by the side of the road. A footpad eyed him suspiciously. Sumantes continued down the path. Nearby, a glasspainter hawked fine imported goods from Southwichlonder Ston Squayneldbrimeston Park.
-
-Eventually, Sumantes arrived at the town square, where he found a privycleaner. Sumantes approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The fuller bit into an apple with a roper. He still looked suspiciousHe finally responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Asbaducolandrandir is the best in town. His shop is down the street to the inn and right. You'll see a church. It's down the street to the monastery and right. You'll see a barn. It's past the inn. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 10 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. While the troubadour rushed by quickly, ignoring him, a scabbard maker loaded a market stall with wares. Nearby, a shoemaker finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Asbaducolandrandir looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Asbaducolandrandir grabbed a dusty book from the shelf and flipped through it. Pictures of antelopes and muses flew by. Eventually he settled on a page and started to explain.
-
-Asbaducolandrandir returned to the book of monsters on the desk and pointed at the terrifying illustration. "Gargoyles often appear to be winged stone statues, for they can perch indefinitely without moving, allowing them to surprise their foes. Gargoyles tend toward obsessive-compulsive behaviors that are as varied as their kind is plentiful. Books, stolen trinkets, weapons, and grisly trophies harvested from fallen foes are just a few examples of the types of things a gargoyle might collect to decorate its lair and territory. Gargoyles tend toward a solitary lifestyle, though they sometimes form fearsome groups called "wings" for protection and sport. In certain conditions, a tribe of gargoyles might even ally with other creatures, but even the most stable alliances with a gargoyle tribe can collapse for the smallest of reasons—gargoyles are nothing if not treacherous, petty, and vindictive. Gargoyles have been known to dwell in the heart of the largest of cities, crouching amid the decorations of stone cathedrals and buildings where they hide in plain sight by day and swoop down to feed on vagabonds, beggars, and other unfortunates at night."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"The longer a tribe of gargoyles abides in a region of ruins or buildings, the more its members come to resemble that region's architectural styles. The changes a gargoyle's appearance undergoes are slow and subtle, but over the course of years, it can shift radically." Asbaducolandrandir explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the gargoyle?" Sumantes asked.
-
-Asbaducolandrandir returned to the book of monsters on the desk and pointed at the terrifying illustration. "One unusual variant of gargoyle dwells not amid buildings and ruins but under the waves of the sea. These creatures are known as kapoacinths—they have the same basic statistics as normal gargoyles, save that they have the aquatic subtype and their wings grant them a swim speed of 60 feet (but are useless for actual flight). Kapoacinths dwell in shallow, coastal regions where they can shamble up from the surf to prey on those that reside there. They are more likely to form wings, as kapoacinths prefer group living to a solitary lifestyle."
-
-"I could handle that. Tell me again, what makes the gargoyle so bad?" Sumantes responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a hideous gargoyle in the distance! He readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The gargoyle leans low, ready to strike with its might. The gargoyle struck with its claws! He winces from the pain but continues fighting. 
-
-He sneaked around to gargoyle's blind spot. The gargoyle struck with its claws! He jumps out of the way. 
-
-The gargoyle struck with its claws! The fearful gargoyle failed to land its hit. The exhilarating combat made the hours seem like seconds. The gargoyle struck with its claws! The fierce blow from the monster narrowly misses he. 
-
-The adventurer pulls a guppie green potion from his pack and drinks it. He is reinvigorated. The gargoyle leans low, ready to strike with its might. 
-
-He pulls a tiger s eye potion from his pack and drinks it. He is reinvigorated. The gargoyle struck with its claws! The intrepid Sumantes jumps out of the way. 
-
-Sumantes lunged toward the gargoyle, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes the grandioseour hero pulls a vegas gold potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the gargoyle, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to gargoyle's blind spot. 
-
-He sneaked around to gargoyle's blind spot. The gargoyle leans low, ready to strike with its might. 
-
-The gargoyle struck with its claws! He blocks the strike with his sword. The unafraid Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The gargoyle struck with its claws! The mean gargoyle failed to land its hit. 
-
-The gargoyle leans low, ready to strike with its might. Sumantes lunged toward the gargoyle, his sword ready to strike! The gargoyle took a glancing blow. 
-
-The adventurer sneaked around to gargoyle's blind spot. The gargoyle leans low, ready to strike with its might. 
-
-The gargoyle leans low, ready to strike with its might. Sumantes lunged toward the gargoyle, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The gargoyle leans low, ready to strike with its might. The gargoyle struck with its claws! The gallant Sumantes stunbles backward, gasping for breath. 
-
-Sumantes lunged toward the gargoyle, his sword ready to strike! The slippery gargoyle evaded Sumantes's hit. The monster was stunned by the attack. Sumantes pulls a medium aquamarine potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Asbaducolandrandir was talking about."
-
-## <a name="chapter29"></a> Chapter 29: Wesdenharey and the Giant Owl
-
-Sumantes followed a dirt path into the village of Wesdenharey. While the bookbinder talked excitedly with what appeared to be a singer, a stainer ran from person to person, asking if they had seen Stalert. Two lighter mans sat by the side of the road. Sumantes continued down the path. Two executioners ran from person to person, asking if they had seen Pard.
-
-Eventually, Sumantes arrived at the town square, where he found a cardinal. Sumantes approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The abbot slept in an alleyway with a summoner. The man eyed him thoughtfully, then finally responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Fraudin is the best in town. His shop is into the market and towards the barn. Eventually you need to walk just a bit further down the street. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. Two shipwrights gazed at him from an open window. A tanner rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Fraudin grabbed a dusty book from the shelf and flipped through it. Pictures of plesiosauruss and iron cobras flew by. Eventually he settled on a page and started to explain.
-
-The armorer sighed and continued. "The noble giant owl roosts in the tallest trees or in high caves near its forest home. No mere animals, giant owls pride themselves as intellectuals and keen judges of character. Little passes a giant owl's notice in its home forest. What it doesn't observe directly, it learns from its wide network of animal informants. Giant owls view themselves more as watchers than participants, rarely interfering in the affairs of others barring a threat to their homes. Giant owls stand 18 feet tall and have 30-foot wingspans, yet they rarely weigh over 600 pounds."
-
-"But my weapons may be too weak. Are there any other ways to defeat the giant owl?" Sumantes asked.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Sumantes saw a menacing giant owl in the distance! Sumantes readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. The giant owl struck with its claws! He winces from the pain but continues fighting. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl struck with its claws! Sumantes the boldour hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The giant owl struck with its claws! Sumantes reeled back in pain. 
-
-The giant owl struck with its claws! Sumantes stunbles backward, gasping for breath. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl struck with its claws! He jumps out of the way. Sumantes lunged toward the giant owl, his sword ready to strike! Although he's hit landed, giant owl is mostly unphased
-
-The giant owl struck with its claws! He jumps out of the way. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-He sneaked around to giant owl's blind spot. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. The monster was stunned by the attack. The adventurer sneaked around to giant owl's blind spot. 
-
-The giant owl struck with its claws! The doughty Sumantes blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The giant owl leans low, ready to strike with its might. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The giant owl was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl struck with its claws! The undaunted Sumantes jumps out of the way. he stumbles to his knee, gasping for breath. The giant owl struck with its claws! He stunbles backward, gasping for breath. 
-
-The undaunted Sumantes sneaked around to giant owl's blind spot. The giant owl struck with its claws! The repellent giant owl failed to land its hit. 
-
-The giant owl struck with its claws! He jumps out of the way. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The giant owl was struck by the blow! The monster was stunned by the attack. The gutty Sumantes sneaked around to giant owl's blind spot. 
-
-The giant owl struck with its claws! Sumantes reeled back in pain. Sumantes stumbles to his knee, gasping for breath. The giant owl leans low, ready to strike with its might. 
-
-The giant owl struck with its claws! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The giant owl leans low, ready to strike with its might. 
-
-The giant owl struck with its claws! The beastly giant owl failed to land its hit. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl struck with its claws! Sumantes blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The giant owl leans low, ready to strike with its might. 
-
-The giant owl struck with its claws! Sumantes blocks the strike with his sword. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl struck with its claws! The terrible giant owl failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The giant owl struck with its claws! The adventurer jumps out of the way. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The giant owl took a glancing blow. The monster was stunned by the attack. Sumantes lunged toward the giant owl, his sword ready to strike! The slippery giant owl evaded Sumantes's hit. 
-
-The giant owl leans low, ready to strike with its might. The giant owl struck with its claws! Sumantes the dauntlessour hero blocks the strike with his sword. 
-
-Sumantes lunged toward the giant owl, his sword ready to strike! The attack from Sumantes surely left a impression. The monster was stunned by the attack. Sumantes lunged toward the giant owl, his sword ready to strike! He landed a massive hit on giant owl! 
-
-The giant owl struck with its claws! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The giant owl leans low, ready to strike with its might. 
-
-The giant owl leans low, ready to strike with its might. The giant owl struck with its claws! He stunbles backward, gasping for breath. 
-
-Sumantes the daringour hero was victorious! The giant owl menaced for no longer! 
-
-## <a name="chapter30"></a> Chapter 30: Southnaul and the Juggernaut
-
-Sumantes followed a dirt path into the village of Southnaul. While the organist finished an apple and tossed the core aside, a chandler stood by a market stall, negotiating with the engraver. Nearby, a nobleman threw punches. Sumantes continued down the path. The peasant ran from person to person, asking if they had seen Inge with a midwife.
-
-Eventually, Sumantes arrived at the town square, where he found a librarian. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The joiner eyed him suspiciously with a thonger. The man eyed him thoughtfully, but eventually responded.
-
-"Our village of Runburtinswichledoss will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the tavern. Eventually you need to walk past the stables. It's just to the right. You'll find Recces, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Euryllus gone as much as anybody."
-
-Sumantes hurried towards the armory. The shipwright eyed him suspiciously with a bailiff. Nearby, a chantry priest sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Recces lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The juggernaut."
-
-Recces returned to the book of monsters on the desk and pointed at the terrifying illustration. "Juggernauts protect locations dedicated to a particular faith, their massive forms infused with divine energy that animates them and infuses them with their deity's power. Some faiths use a juggernaut as a mobile shrine, anointing it with sacred materials and offering prayers to the divine."
-
-"I could handle that. Tell me again, what makes the juggernaut so bad?" Sumantes responded.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Sumantes saw a awful juggernaut in the distance! Our hero fixed his gaze on the appalling sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a school bus yellow potion from his pack and drinks it. He is reinvigorated. 
-
-The juggernaut leans low, ready to strike with its might. Sumantes lunged toward the juggernaut, his sword ready to strike! The gritty Sumantes landed a massive hit on juggernaut! 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. The gallant Sumantes pulls a icterine potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. The unafraid Sumantes pulls a classic rose potion from his pack and drinks it. He is reinvigorated. 
-
-The juggernaut struck with its slam! He blocks the strike with his sword. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to juggernaut's blind spot. 
-
-The adventurer sneaked around to juggernaut's blind spot. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. He pulls a deep ruby potion from his pack and drinks it. He is reinvigorated. 
-
-The juggernaut struck with its slam! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-The adventurer sneaked around to juggernaut's blind spot. The juggernaut leans low, ready to strike with its might. 
-
-He pulls a hansa yellow potion from his pack and drinks it. He is reinvigorated. The juggernaut leans low, ready to strike with its might. 
-
-The dauntless Sumantes sneaked around to juggernaut's blind spot. The juggernaut struck with its slam! Sumantes the bigger than lifeour hero jumps out of the way. 
-
-The juggernaut leans low, ready to strike with its might. Sumantes lunged toward the juggernaut, his sword ready to strike! He landed a massive hit on juggernaut! 
-
-The juggernaut struck with its slam! The fierce blow from the monster narrowly misses the adventurer. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The juggernaut struck with its slam! The awful juggernaut failed to land its hit. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! The horrendous juggernaut failed to land its hit. Sumantes leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The juggernaut was struck by the blow! The monster was stunned by the attack. Sumantes lunged toward the juggernaut, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The juggernaut struck with its slam! The grim juggernaut failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The juggernaut struck with its slam! The mythological Sumantes jumps out of the way. 
-
-The adventurer sneaked around to juggernaut's blind spot. The juggernaut leans low, ready to strike with its might. 
-
-The adventurer pulls a lavender magenta potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut leans low, ready to strike with its might. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the juggernaut, his sword ready to strike! The juggernaut was staggered by the immense force. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the juggernaut, his sword ready to strike! Although he's hit landed, juggernaut is mostly unphased
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut leans low, ready to strike with its might. The juggernaut struck with its slam! The fearless Sumantes jumps out of the way. 
-
-He pulls a olive potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! The fierce blow from the monster narrowly misses Sumantes the doughtyour hero. He leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The juggernaut struck with its slam! He blocks the strike with his sword. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. The doughty Sumantes pulls a han blue potion from his pack and drinks it. He is reinvigorated. 
-
-The juggernaut struck with its slam! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The juggernaut leans low, ready to strike with its might. 
-
-He sneaked around to juggernaut's blind spot. The juggernaut struck with its slam! He winces from the pain but continues fighting. 
-
-The juggernaut struck with its slam! He jumps out of the way. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! The fearless Sumantes winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. The gutty Sumantes was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-The juggernaut leans low, ready to strike with its might. The juggernaut struck with its slam! Sumantes the inflatedour hero blocks the strike with his sword. 
-
-The juggernaut struck with its slam! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-He sneaked around to juggernaut's blind spot. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The juggernaut struck with its slam! He jumps out of the way. Sumantes lunged toward the juggernaut, his sword ready to strike! The attack from he surely left a impression. 
-
-He pulls a vivid violet potion from his pack and drinks it. He is reinvigorated. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! Sumantes jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The juggernaut leans low, ready to strike with its might. 
-
-The juggernaut leans low, ready to strike with its might. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! The fierce blow from the monster narrowly misses the noble Sumantes. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut struck with its slam! He winces from the pain but continues fighting. Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. 
-
-The juggernaut leans low, ready to strike with its might. Sumantes lunged toward the juggernaut, his sword ready to strike! The mythological Sumantes landed a massive hit on juggernaut! 
-
-Sumantes lunged toward the juggernaut, his sword ready to strike! The slippery juggernaut evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to juggernaut's blind spot. 
-
-The doughty Sumantes pulls a banana yellow potion from his pack and drinks it. He is reinvigorated. The juggernaut leans low, ready to strike with its might. 
-
-Sumantes the lion-heartedour hero was victorious! The juggernaut menaced for no longer! 
-
-## <a name="chapter31"></a> Chapter 31: Ere and the Half-celestial Unicorn
-
-Sumantes followed a dirt path into the village of Ere. Two nakerers finished an apple and tossed the core aside. While the jester bit into an apple, a joiner hawked fine imported goods from Slown. Sumantes continued down the path. A weirkeeper eyed him suspiciously.
-
-Eventually, Sumantes arrived at the town square, where he found a shoemaker. The man, eying his determined look, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-The copyist loaded a market stall with wares with a groom. The man eyed him thoughtfully, but eventually responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Pylewynes is the best in town. His shop is past the monastery. Look for the large hanging sign that reads "Pylewynes Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. Nearby, a carter stood by a market stall, negotiating with the pioneer. Nearby, a skinner slept in an alleyway. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Pylewynes looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Pylewynes lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The half-celestial unicorn."
-
-"Most half-celestials are born of a mortal who loved a good outsider, but powerful holy magic can also create one." Pylewynes explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the half-celestial unicorn?" Sumantes asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a loathsome half-celestial unicorn in the distance! Our hero fixed his gaze on the lousy sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to half-celestial unicorn's blind spot. 
-
-Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The half-celestial unicorn took a glancing blow. 
-
-The half-celestial unicorn leans low, ready to strike with its might. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. 
-
-The half-celestial unicorn leans low, ready to strike with its might. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. 
-
-Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. The monster was stunned by the attack. He pulls a dark khaki potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes pulls a waterspout potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The attack from Sumantes surely left a impression. 
-
-Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! He landed a massive hit on half-celestial unicorn! The monster was stunned by the attack. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. 
-
-The half-celestial unicorn leans low, ready to strike with its might. The half-celestial unicorn struck with its gore! The classic Sumantes blocks the strike with his sword. 
-
-The half-celestial unicorn struck with its gore! The ghastly half-celestial unicorn failed to land its hit. He leaned on his sword to catch a moment's respite. The elevated Sumantes was worn out by the combat. The half-celestial unicorn leans low, ready to strike with its might. 
-
-The half-celestial unicorn struck with its gore! The appalling half-celestial unicorn failed to land its hit. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! The slippery half-celestial unicorn evaded Sumantes's hit. The monster was stunned by the attack. The daring Sumantes sneaked around to half-celestial unicorn's blind spot. 
-
-The half-celestial unicorn leans low, ready to strike with its might. Sumantes lunged toward the half-celestial unicorn, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Pylewynes was talking about."
-
-## <a name="chapter32"></a> Chapter 32: Slowester and the Slime Mold
-
-Sumantes followed a dirt path into the village of Slowester. Two basketmakers slept in an alleyway. Two farriers threw punches. Sumantes continued down the path. Two lawyers sat by the side of the road.
-
-Eventually, Sumantes arrived at the town square, where he found a doctor. Sumantes approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Euryllus took over?" Sumantes asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The lawyer sat by the side of the road with a blacksmith. The man sat in silence for a while, then finally responded.
-
-"Our village of Shinchlos will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the tavern. Eventually you need to walk just a bit further down the street. There's a small door. You'll find Gilopos, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Sumantes hurried towards the armory. Nearby, a molecatcher slowly carried supplies. Two bowyers sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Gilopos looked up from his work behind a counter at Sumantes.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-Gilopos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The slime mold."
-
-Gilopos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Slime molds are revolting oozes that wallow in rot and decay. A perfect example of symbiosis, each slime mold is covered in a thick garden of fungi, mildew, and toadstools, which helps it blend in with the surroundings. As ambush hunters, they can lie silently in wait for days at a time, surging into frenzied movement as soon as prey comes within reach. Most commonly encountered in deep forests, variations have adapted to life in caverns and sewers as well. They lack any ability to digest food, and rely entirely on their symbiotic fungal gardens to break down any organic matter they find into easily absorbed compost and decay. The molds and mushrooms that coat the ooze in turn receive ample food supplies, and over countless generations, many have developed into deadly variations of the forest or cave fungi from which they evolved. This fungal breakdown is in many ways akin to a disease—known as fungal rot, it can kill if allowed to progress for long. Those who succumb to fungal rot become tired and listless. Eventually, paralysis sets in and the victim's flesh begins to blacken and decay, running from the body in liquid streams that the slime mold can easily absorb. In a somewhat nauseating turnabout, certain creatures find the unusual fungus that grows upon a slime mold to be quite tasty, and these creatures actively hunt slime molds to devour their gardens—although they take care to avoid actual contact with the mold itself unless they happen to be immune to disease."
-
-"But my weapons may be too weak. Are there any other ways to defeat the slime mold?" Sumantes asked.
-
-The armorer sighed and continued. "Slime molds are ovoid in shape, growing up to 12 feet in length and weighing more than 600 pounds. Their substance is normally a sickly greenish-brown, with the coloration varying depending on their environment and how recently they've fed. They instinctually keep their coating of fungus and other vegetable detritus exposed above them, granting the slime mold a distinctive, undulating gait rather than the fluid movement of most oozes."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "To reproduce, slime molds split off small patches of their bodies whenever they encounter thick beds of fungi or mold. Over several months, these tiny blobs acclimate to the rot and absorb each another, until a single slime mold (with the young creature simple template) sprouts its own garden and begins hunting live prey."
-
-Sumantes looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Sumantes.
-
-Sumantes saw a obnoxious slime mold in the distance! Our hero fixed his gaze on the loathsome sight. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-He sneaked around to slime mold's blind spot. Sumantes lunged toward the slime mold, his sword ready to strike! The slime mold was struck by the blow! 
-
-The slime mold struck with its slam! The appalling slime mold failed to land its hit. The exhilarating combat made the hours seem like seconds. The slime mold struck with its slam! He blocks the strike with his sword. 
-
-The slime mold struck with its slam! He blocks the strike with his sword. Sumantes lunged toward the slime mold, his sword ready to strike! Although he's hit landed, slime mold is mostly unphased
-
-Sumantes the daringour hero pulls a kelly green potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the slime mold, his sword ready to strike! The slippery slime mold evaded Sumantes's hit. 
-
-Sumantes lunged toward the slime mold, his sword ready to strike! The slippery slime mold evaded Sumantes's hit. The slime mold struck with its slam! Sumantes the classicour hero blocks the strike with his sword. Sumantes lunged toward the slime mold, his sword ready to strike! The adventurer landed a massive hit on slime mold! 
-
-The slime mold leans low, ready to strike with its might. The slime mold struck with its slam! The grim slime mold failed to land its hit. 
-
-Sumantes the fearlessour hero pulls a royal fuchsia potion from his pack and drinks it. He is reinvigorated. The slime mold leans low, ready to strike with its might. 
-
-He was victorious! The slime mold menaced for no longer! 
-
-## <a name="chapter33"></a> Chapter 33: Easgot and the Ash Giant
-
-Sumantes followed a dirt path into the village of Easgot. Two wattlers sat by the side of the road. Nearby, a fiddler stood by a market stall, negotiating with the scabbard maker. Sumantes continued down the path. Two broderers stood by a market stall, negotiating with the cartwright.
-
-Eventually, Sumantes arrived at the town square, where he found a mirrorer. Sumantes approached him, hoping for some advice.
-
-"My name is Sumantes, and it is my quest to defeat the evil wizard Euryllus." Sumantes announced.
-
-While the bowman ran from person to person, asking if they had seen Frand, a woodturner sat by the side of the road. He still looked suspicious, then finally responded.
-
-"We have waited for your arrival for many years, Sumantes. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Gotzstaz is the best in town. His shop is into the market and towards the barn. Eventually you need to walk into the market and towards the warehouse. Eventually you need to walk down the street to the cattle barn and left. You'll see a tavern. It's into the market and towards the tavern. Eventually you need to walk just a bit further down the street. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Sumantes hurried towards the armory. The fletcher stood by a market stall, negotiating with the pavior with a exchequer. The falconer rushed by quickly, ignoring him with a paperer. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Sumantes cleared his throat and a man ran out from a backroom.
-
-"I'm Sumantes, a brave adventurer seeking to destroy Euryllus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the half-celestial unicorn, or perhaps even the vescavor queen, but that's nothing compared to the ash giant we've got."
-
-Gotzstaz returned to the book of monsters on the desk and pointed at the terrifying illustration. "Whether because of disruptive magic, unearthed deep elements, or alien technology that fell calamitously from the sky, ash giants are victims of their barren terrains. Yet they somehow survive and even thrive in these desperate lands. Ash giants have an uncanny ability to bond with the enormous and often mutated vermin they share the landscape with, and sometimes use the largest of these creatures as mounts."
-
-"I could handle that. Tell me again, what makes the ash giant so bad?" Sumantes responded.
-
-"Ash giants are brash and violent, and their humor is incredibly dark. Killing someone through a prank is just as funny as tripping a friend while on a hunt. While not inherently evil, lifetimes of being antagonized by other tribes have practically bred violence into their minds." Gotzstaz explained.
-
-Sumantes slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Ash giants are 10 feet tall and weigh 1,200 pounds." Gotzstaz explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the ash giant?" Sumantes asked.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Sumantes saw a terrifying ash giant in the distance! Sumantes the doughtyour hero readied his sword. Sumantes hurried towards the enemy, ready to strike it down with all his might! 
-
-The ash giant leans low, ready to strike with its might. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the ash giant, his sword ready to strike! The ash giant took a glancing blow. 
-
-Sumantes pulls a french blue potion from his pack and drinks it. He is reinvigorated. The ash giant struck with its Huge club! The eerie ash giant failed to land its hit. 
-
-The ash giant struck with its Huge club! Sumantes blocks the strike with his sword. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-The ash giant struck with its Huge club! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ash giant leans low, ready to strike with its might. 
-
-He sneaked around to ash giant's blind spot. The ash giant struck with its Huge club! He blocks the strike with his sword. 
-
-The ash giant struck with its Huge club! Sumantes the grandour hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The ash giant struck with its Huge club! The gritty Sumantes jumps out of the way. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The ash giant struck with its Huge club! The detestable ash giant failed to land its hit. Sumantes lunged toward the ash giant, his sword ready to strike! He landed a massive hit on ash giant! 
-
-The ash giant leans low, ready to strike with its might. The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses Sumantes. 
-
-The ash giant struck with its Huge club! Sumantes blocks the strike with his sword. Sumantes stumbles to his knee, gasping for breath. The ash giant leans low, ready to strike with its might. 
-
-The ash giant leans low, ready to strike with its might. Sumantes lunged toward the ash giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ash giant struck with its Huge club! The courageous Sumantes jumps out of the way. The exhilarating combat made the hours seem like seconds. The ash giant leans low, ready to strike with its might. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. He pulls a coquelicot potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The ash giant struck with its Huge club! The adventurer stunbles backward, gasping for breath. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-The ash giant leans low, ready to strike with its might. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a flamingo pink potion from his pack and drinks it. He is reinvigorated. 
-
-The ash giant struck with its Huge club! Sumantes reeled back in pain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The ash giant leans low, ready to strike with its might. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses Sumantes. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-The ash giant struck with its Huge club! The shameful ash giant failed to land its hit. Sumantes lunged toward the ash giant, his sword ready to strike! The ash giant was struck by the blow! 
-
-The ash giant leans low, ready to strike with its might. The ash giant struck with its Huge club! He jumps out of the way. 
-
-The ash giant struck with its Huge club! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. The exaggerated Sumantes was worn out by the combat. The ash giant leans low, ready to strike with its might. 
-
-The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses Sumantes the undauntedour hero. 
-
-The ash giant struck with its Huge club! The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The ash giant leans low, ready to strike with its might. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Sumantes the inflatedour hero pulls a dark coral potion from his pack and drinks it. He is reinvigorated. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The ash giant struck with its Huge club! Sumantes winces from the pain but continues fighting. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-He sneaked around to ash giant's blind spot. The ash giant leans low, ready to strike with its might. 
-
-Sumantes pulls a zinnwaldite brown potion from his pack and drinks it. He is reinvigorated. The ash giant leans low, ready to strike with its might. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to ash giant's blind spot. 
-
-He pulls a medium blue potion from his pack and drinks it. He is reinvigorated. The ash giant leans low, ready to strike with its might. 
-
-He pulls a mint potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-He sneaked around to ash giant's blind spot. The ash giant leans low, ready to strike with its might. 
-
-Sumantes the intrepidour hero sneaked around to ash giant's blind spot. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-The ash giant leans low, ready to strike with its might. The ash giant struck with its Huge club! The grim ash giant failed to land its hit. 
-
-Sumantes the fire-eatingour hero pulls a mustard potion from his pack and drinks it. He is reinvigorated. The ash giant struck with its Huge club! Sumantes reeled back in pain. 
-
-The ash giant struck with its Huge club! Sumantes reeled back in pain. Sumantes lunged toward the ash giant, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to ash giant's blind spot. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The shattering blow from he rumbled through the ground. The monster was stunned by the attack. Sumantes lunged toward the ash giant, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses Sumantes. The elevated Sumantes leaned on his sword to catch a moment's respite. Sumantes was worn out by the combat. The ash giant struck with its Huge club! He blocks the strike with his sword. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The ash giant struck with its Huge club! The adventurer winces from the pain but continues fighting. Sumantes lunged toward the ash giant, his sword ready to strike! Although he's hit landed, ash giant is mostly unphased
-
-The adventurer pulls a mellow apricot potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-Sumantes the daringour hero sneaked around to ash giant's blind spot. Sumantes lunged toward the ash giant, his sword ready to strike! The ash giant took a glancing blow. 
-
-The ash giant struck with its Huge club! He winces from the pain but continues fighting. The mythological Sumantes leaned on his sword to catch a moment's respite. The stand tall Sumantes was worn out by the combat. The ash giant struck with its Huge club! Sumantes the classicour hero blocks the strike with his sword. 
-
-The ash giant struck with its Huge club! He jumps out of the way. The undaunted Sumantes leaned on his sword to catch a moment's respite. He was worn out by the combat. The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses he. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. He sneaked around to ash giant's blind spot. 
-
-He pulls a light goldenrod yellow potion from his pack and drinks it. He is reinvigorated. Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The slippery ash giant evaded Sumantes's hit. The monster was stunned by the attack. Sumantes lunged toward the ash giant, his sword ready to strike! He landed a massive hit on ash giant! 
-
-The ash giant leans low, ready to strike with its might. The ash giant struck with its Huge club! He jumps out of the way. 
-
-The ash giant struck with its Huge club! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The ash giant struck with its Huge club! The noble Sumantes jumps out of the way. 
-
-Sumantes lunged toward the ash giant, his sword ready to strike! The ash giant was staggered by the immense force. The ash giant struck with its Huge club! He blocks the strike with his sword. Sumantes lunged toward the ash giant, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The ash giant leans low, ready to strike with its might. The ash giant struck with its Huge club! He jumps out of the way. 
-
-The ash giant struck with its Huge club! Sumantes the doughtyour hero jumps out of the way. he stumbles to his knee, gasping for breath. The ash giant leans low, ready to strike with its might. 
-
-Sumantes says
-
-"That didn't seem so hard, I don't know what Gotzstaz was talking about."
+"That didn't seem so hard, I don't know what Gaylos was talking about."
 
 
