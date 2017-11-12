@@ -189,7 +189,7 @@ def pc_name():
     return random.choice([
         '<!pc_name>',
         'the <positive_trait> <!pc_name>',
-        '<!pc_name> the <positive_trait>'
+        '<!pc_name> the <positive_trait>',
         'our hero',
         'the adventurer',
         'he',
