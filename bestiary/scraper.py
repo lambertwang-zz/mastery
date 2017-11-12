@@ -12,15 +12,27 @@ from fractions import Fraction
 import re
 import json
 
-baseUrl = 'http://paizo.com/pathfinderRPG/prd/bestiary/'
+baseUrl = 'http://paizo.com'
+bestiaries = [
+    'http://paizo.com/pathfinderRPG/prd/bestiary/',
+    'http://paizo.com/pathfinderRPG/prd/bestiary2/',
+    'http://paizo.com/pathfinderRPG/prd/bestiary3/',
+    'http://paizo.com/pathfinderRPG/prd/bestiary4/',
+    'http://paizo.com/pathfinderRPG/prd/bestiary5/'
+]
 
 def init_driver():
     driver = webdriver.Firefox()
     driver.wait = WebDriverWait(driver, 5)
     return driver
 
-def lookup(driver, query):
-    driver.get(baseUrl + 'monsterIndex.html')
+def lookup(driver, url):
+    if url == bestiaries[1]:
+        driver.get(url + 'additionalMonsterIndex.html')
+    elif url == bestiaries[4]:
+        driver.get(url + 'index.html')
+    else:
+        driver.get(url + 'monsterIndex.html')
 
     try:
         table = driver.wait.until(EC.presence_of_element_located((By.ID, 'monster-index-wrapper'))).get_attribute('innerHTML')
@@ -41,7 +53,8 @@ def get_monster(index, all_stats, flavor = None):
             if index >= len(all_stats):
                 break
             try:
-                if all_stats[index]['class'][0] == 'flavor-text':
+                if all_stats[index].name == 'p':
+                # if all_stats[index]['class'][0] == 'flavor-text':
                     print('Found flavor')
                     print(all_stats[index])
                     break
@@ -62,9 +75,23 @@ def get_monster(index, all_stats, flavor = None):
         monster['flavor'] = flavor
 
     # print(all_stats[index])
-    monster['name'] = all_stats[index].b.contents[0].lower()
+    namestr_contents = []
+    if type(all_stats[index].contents[0]) == bs4.element.NavigableString:
+        namestr_contents = all_stats[index].contents
+    else:
+        try:
+            namestr_contents = all_stats[index].b.contents
+        except:
+            monster['challenge'] = None
+            return (monster, index)
+
+    if type(all_stats[index].contents[0]) == bs4.element.NavigableString:
+        monster['name'] = namestr_contents[0].string.lower()
+    else:
+        monster['name'] = namestr_contents[0].lower()
+
     try:
-        monster['challenge'] = float(Fraction(all_stats[index].b.contents[1].string.split()[1].lower()))
+        monster['challenge'] = float(Fraction(namestr_contents[1].string.split()[1].lower()))
     except:
         monster['challenge'] = None
         return (monster, index)
@@ -114,10 +141,11 @@ def get_monster(index, all_stats, flavor = None):
     monster['ac'] = int(all_stats[index].text.split()[1].replace(',', ' '))
     index += 1
     while True:
-        if all_stats[index].name != 'p':
-            index += 1
-        else:
-            break
+        if all_stats[index].name == 'p':
+            if all_stats[index].text.split()[0].lower() == 'hp':
+                break
+        index += 1
+
     monster['hitpoints'] = int(all_stats[index].contents[1].split()[0])
     
     index += 1
@@ -217,9 +245,9 @@ def extract_monster_data(driver, link):
     if len(link.split('#')) > 1:
         id = link.split('#')[1]
 
-    driver.get(baseUrl + link)
+    driver.get(link)
     
-    monster_html = driver.wait.until(EC.presence_of_element_located((By.CLASS_NAME, 'body'))).get_attribute('innerHTML')
+    monster_html = driver.wait.until(EC.presence_of_element_located((By.TAG_NAME, 'body'))).get_attribute('innerHTML')
     soup = BeautifulSoup(monster_html, 'html.parser')
     # all_stats = soup.VypfindAll('p')
     all_stats = soup.findChildren()
@@ -231,11 +259,11 @@ def extract_monster_data(driver, link):
             return
         try:
             if all_stats[index].name == 'h1':
-                # print('Checking id')
-                # print(id)
-                # print(all_stats[index])
+                print('Checking id')
+                print(id)
+                print(all_stats[index])
                 try:
-                    # print(all_stats[index]['id'])
+                    print(all_stats[index]['id'])
                     if all_stats[index]['id'] == id:
                         break
                 except:
@@ -251,7 +279,8 @@ def extract_monster_data(driver, link):
         index += 1
     
     try:
-        if all_stats[index + 1]['class'] == 'flavor-text':
+        # if all_stats[index + 1]['class'] == 'flavor-text':
+        if all_stats[index + 1].name == 'p':
             pass
     except:
         print('No flavor for ' + link)
@@ -286,27 +315,27 @@ def extract_monster_data(driver, link):
             continue
         sub_monster = get_monster(index, all_stats, monster[0]['flavor'])
         index = sub_monster[1]
-        print(sub_monster)
+        print(sub_monster[0])
         if sub_monster[0]['challenge']:
             monster_data.append(sub_monster[0])
         else:
             # pass
             index += 1
 
-
 monster_urls = []
 
 if __name__ == "__main__":
     driver = init_driver()
-    soup = lookup(driver, "Selenium")
 
-    if soup == None:
-        exit()
+    for url in bestiaries:
+        soup = lookup(driver, url)
+        monster_links = soup.findAll('a')
 
-    monster_links = soup.findAll('a')
-
-    for a in monster_links:
-        monster_urls.append(a['href'])
+        for a in monster_links:
+            if a['href'][0] == '/':
+                monster_urls.append(baseUrl + a['href'])
+            else:
+                monster_urls.append(url + a['href'])
 
     url_index = 0
     for link in monster_urls:
