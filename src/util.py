@@ -59,6 +59,12 @@ def expand(sentence, **kwargs):
                 replacement = globals()[key]()
             sentence = sentence[:match.start(0)] + replacement + sentence[match.end(0):]
 
+def book_title():
+    return '# <!pc_name>\'s Journey to Defeat the Evil Wizard <!wiz_name> _(and his many battles along the way)_\n\n'
+
+def chapter_title():
+    return '## Chapter <!chapter_number>: <!town_name> and the <!monster_name>\n\n'
+
 def town():
     return town_generator.generate()
 
@@ -147,19 +153,19 @@ def in_town_directions():
 
 def town_intro():
     return (
-        '<!pc_name> followed a dirt path into the village. <town_people_sentence> <town_people_sentence> '
-        '<!pc_name> continued down the path. <town_people_sentence>\n'
+        '<!pc_name> followed a dirt path into the village of <!town_name>. <town_people_sentence> <town_people_sentence> '
+        '<!pc_name> continued down the path. <town_people_sentence>\n\n'
         'Eventually, <!pc_name> arrived at the town square, where he found a <occupation>. ' +
         random.choice([
-            'The man, eying his <character_attribute>, beckoned him forward.\n'
-            '"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"\n',
-            '<!pc_name> approached him, hoping for some advice.\n'
+            'The man, eying his <character_attribute>, beckoned him forward.\n\n'
+            '"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"\n\n',
+            '<!pc_name> approached him, hoping for some advice.\n\n'
         ]) +
         random.choice([
-            '"My name is <!pc_name>, and it is my quest to defeat the evil wizard <!wiz_name>." <!pc_name> announced.\n',
-            '"The evil wizard <!wiz_name> has terrorized these lands for far too long. I <!pc_name> have come to destroy him!" <!pc_name> exclaimed.\n',
+            '"My name is <!pc_name>, and it is my quest to defeat the evil wizard <!wiz_name>." <!pc_name> announced.\n\n',
+            '"The evil wizard <!wiz_name> has terrorized these lands for far too long. I <!pc_name> have come to destroy him!" <!pc_name> exclaimed.\n\n',
             '"Do you remember the glory days before the evil wizard <!wiz_name> took over?" <!pc_name> asked. '
-            '"I seek to destroy him and restore this kingdom\'s rightful rule!"\n'
+            '"I seek to destroy him and restore this kingdom\'s rightful rule!"\n\n'
         ]) +
         '<town_people_sentence> ' +
         random.choice([
@@ -169,15 +175,15 @@ def town_intro():
             'The man quietly reminised about the past'
         ]) +
         random.choice([
-            ', then finally responded.\n',
-            ', but eventually responded.\n',
-            'He finally responded.\n'
+            ', then finally responded.\n\n',
+            ', but eventually responded.\n\n',
+            'He finally responded.\n\n'
         ]) +
         random.choice([
-            '"We have waited for your arrival for many years, <!pc_name>. Is there any way I can be of help?"\n',
-            '"Our village of <town> will gladly help you on your quest. What do you need?"\n'
+            '"We have waited for your arrival for many years, <!pc_name>. Is there any way I can be of help?"\n\n',
+            '"Our village of <town> will gladly help you on your quest. What do you need?"\n\n'
         ]) +
-        '"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"\n' +
+        '"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"\n\n' +
         random.choice([
             '"<!armor_name> is the best in town. His shop is <in_town_directions> ',
             '"Go <in_town_directions> You\'ll find <!armor_name>, the best weapons expert we\'ve got. ',
@@ -185,12 +191,12 @@ def town_intro():
         ]) +
         random.choice([
             'And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out <number> small coins. '
-            '"I want that <!wiz_name> gone as much as anybody."\n',
-            'Be careful out there. You\'re not the first to try this adventure. Men stronger than you have vanished or worse."\n',
-            'I\'d show you myself, but I have urgent matters to attend to here in the square."\n'
+            '"I want that <!wiz_name> gone as much as anybody."\n\n',
+            'Be careful out there. You\'re not the first to try this adventure. Men stronger than you have vanished or worse."\n\n',
+            'I\'d show you myself, but I have urgent matters to attend to here in the square."\n\n'
         ]) +
         '<!pc_name> hurried towards the armory. <town_people_sentence> <town_people_sentence> '
-        'Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.\n'
+        'Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.\n\n'
     )
 
 def monster_name():
@@ -206,36 +212,36 @@ def monster_description(name):
 def armory_intro():
     return (
         random.choice([
-            '<!armor_name> looked up from his work behind a counter at <!pc_name>.\n',
-            'There was no one there. <!pc_name> cleared his throat and a man ran out from a backroom.\n'
+            '<!armor_name> looked up from his work behind a counter at <!pc_name>.\n\n',
+            'There was no one there. <!pc_name> cleared his throat and a man ran out from a backroom.\n\n'
         ]) +
-        '"I\'m <!pc_name>, a brave adventurer seeking to destroy <!wiz_name>. What dangers lurk nearby?" he asked.\n' +
+        '"I\'m <!pc_name>, a brave adventurer seeking to destroy <!wiz_name>. What dangers lurk nearby?" he asked.\n\n' +
         random.choice([
             '<!armor_name> grabbed a dusty book from the shelf and flipped through it. Pictures of <monster_name>s and <monster_name>s flew by.'
-            'Eventually he settled on a page and started to explain.\n',
-            '<!armor_name> lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The <!monster_name>."\n',
-            '"Brave you say? You may have fought the <monster_name>, or perhaps even the <monster_name>, but that\'s nothing compared to the <!monster_name> we\'ve got."\n'
+            'Eventually he settled on a page and started to explain.\n\n',
+            '<!armor_name> lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The <!monster_name>."\n\n',
+            '"Brave you say? You may have fought the <monster_name>, or perhaps even the <monster_name>, but that\'s nothing compared to the <!monster_name> we\'ve got."\n\n'
         ])
     )
 
 def armory_explanation():
     return random.choice([
-        '"<!description>" <!armor_name> explained.\n',
-        'The armorer sighed and continued. "<!description>"\n',
-        '<!armor_name> returned to the book of monsters on the desk and pointed at the terrifying illustration. "<!description>"\n'
+        '"<!description>" <!armor_name> explained.\n\n',
+        'The armorer sighed and continued. "<!description>"\n\n',
+        '<!armor_name> returned to the book of monsters on the desk and pointed at the terrifying illustration. "<!description>"\n\n'
     ])
 
 def armory_more():
     return random.choice([
-        '<!pc_name> looked surprised. "Incredible! Is there anything else I should know?"\n',
-        '"But my weapons may be too weak. Are there any other ways to defeat the <!monster_name>?" <!pc_name> asked.\n',
-        '<!pc_name> slipped the man <number> coins. "I get the feeling you\'ve been here for a while. Surely you know more than that."\n',
-        '"I could handle that. Tell me again, what makes the <!monster_name> so bad?" <!pc_name> responded.\n'
+        '<!pc_name> looked surprised. "Incredible! Is there anything else I should know?"\n\n',
+        '"But my weapons may be too weak. Are there any other ways to defeat the <!monster_name>?" <!pc_name> asked.\n\n',
+        '<!pc_name> slipped the man <number> coins. "I get the feeling you\'ve been here for a while. Surely you know more than that."\n\n',
+        '"I could handle that. Tell me again, what makes the <!monster_name> so bad?" <!pc_name> responded.\n\n'
     ])
 
 def armory_no_more():
     return random.choice([
-        '"That\'s all I can tell you."\n',
-        '"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to <!pc_name>.\n',
-        '"Look I\'ve got other things to attend to. Do you need weapons or not?" His frusturation was visible.'
+        '"That\'s all I can tell you."\n\n',
+        '"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to <!pc_name>.\n\n',
+        '"Look I\'ve got other things to attend to. Do you need weapons or not?" His frusturation was visible.\n\n'
     ])
