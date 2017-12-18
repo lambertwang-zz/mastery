@@ -21,13 +21,17 @@ def combat_intro(name = None):
             '<pc_name:sentence> readied his sword. ',
             'Our hero fixed his gaze on the <negative_trait> sight. '
         ]) +
-        '<!pc_name> hurried towards the enemy, ready to strike it down with all his might! '
+        random.choice([
+            '<!pc_name> hurried towards the enemy, ready to strike it down with all his might! ',
+            '<pc_name:sentence> approched the <!monster_name> cautiously, careful not to rush to an untimely death. '
+        ]) +
         '\n\n'
     )
 
 def combat():
     if monster['hitpoints'] <= 0:
-        return '<pc_attack><monster_dead>'
+        final_blow = pc_attack(True)
+        return final_blow + '\n\n<monster_dead>'
     return (
         random.choice([
             '<monster_attack><pc_attack>',
@@ -45,13 +49,18 @@ def combat():
         '\n\n<combat>'
     )
 
-def pc_attack():
-    hit = False
-    if random.random() < 0.40:
+def pc_attack(hit = False):
+    if random.random() < 0.60:
         hit = True
 
     return (
-        '<!pc_name> lunged toward the <!monster_name>, his <!pc_weapon> ready to strike! ' +
+        random.choice([
+            '<!pc_name> lunged toward the <!monster_name>, his <!pc_weapon> ready to strike! ',
+            '<pc_name:sentence> made a mighty swing at the <!monster_name> with this <!pc_weapon>. ',
+            '<!pc_name> took a deep breath and swung toward the <negative_trait> <!monster_name>. ',
+            'The <!pc_weapon> of <!pc_name> was raised high only to be brought down onto the <!monster_name> moments later. ',
+            'A <positive_trait> attack suddenly came from <!pc_name>, its intent to silence the <negative_trait> beast once and for all. '
+        ]) +
         ('<pc_hit>' if hit else '<pc_miss>')
     )
 
@@ -64,7 +73,11 @@ def monster_attack():
     try:
         weapon = monster['melee']
         return (
-            'The <!monster_name> struck with its ' + weapon['name'] + '! ' +
+            random.choice([
+                'The <!monster_name> struck with its ' + weapon['name'] + '! ',
+                'The <negative_trait> monster took a swipe at <!pc_name>. ',
+                'A powerful swing came from the <!monster_name> with very deadly intent. ',
+            ]) +
             ('<monster_hit>' if hit else '<monster_miss>')
         )
     except:
@@ -96,7 +109,9 @@ def pc_passing():
     return (
         random.choice([
             '<pc_name:sentence> sneaked around to <!monster_name>\'s blind spot. ',
-            '<pc_name:sentence> pulls a <color> potion from his pack and drinks it. He is reinvigorated. '
+            '<pc_name:sentence> pulled a <color> potion from his pack and drinks it. He is reinvigorated. ',
+            '<pc_name:sentence> held his <!pc_weapon> tightly, ready to block any attack. ',
+            '<!pc_name> cleared his mind, preparing himself for the combat to come.'
         ])
     )
 
@@ -108,19 +123,23 @@ def pc_hit():
     )
 
 def pc_miss():
-    return (
-        'The slippery <!monster_name> evaded <!pc_name>\'s hit. '
-    )
+    return random.choice([
+        'The slippery <!monster_name> evaded <!pc_name>\'s hit. ',
+        '<!pc_name>\'s strike glanced off of the <!monster_name>\'s hide. ',
+        'The <negative_trait> <!monster_name> was too quick to be hit. '
+    ])
 
 def monster_stunned():
     return random.choice([
-            'The monster was stunned by the attack. '
+        'The monster was stunned by the attack. ',
+        'Struck by the hefty blow, the <!monster_name> needed a second to recover its footing. '
     ])
 
 def monster_passing():
     return (
         random.choice([
-            'The <!monster_name> leans low, ready to strike with its might. '
+            'The <!monster_name> leans low, ready to strike with its might. ',
+            'The <!monster_name> eyed <!pc_name> with a dangerous glare. '
         ])
     )
 
@@ -163,10 +182,19 @@ def monster_miss():
     ])
 
 def monster_dead():
-    return random.choice([
-        '<pc_name:sentence> was victorious! The <!monster_name> menaced for no longer! \n\n',
-        '<!pc_name> says\n\n"That didn\'t seem so hard, I don\'t know what <!armor_name> was talking about."\n\n'
-    ])
+    return (
+        random.choice([
+            'Covered with wounds and bruises, the <negative_trait> <!monster_name> fell over for the last time.',
+            '<!pc_name>\'s last strike hit the <!monster_name> directly in the heary. A fatal blow.',
+            'After a seemingly eternal amount of combat, a victor emerged. The <!monster_name> was slain.'
+        ]) +
+        '\n\n' +
+        random.choice([
+            '<pc_name:sentence> was victorious! The <!monster_name> menaced for no longer! \n\n',
+            '<!pc_name> says\n\n"That didn\'t seem so hard, I don\'t know what <!armor_name> was talking about."\n\n',
+            'The citizens of <!town_name> could sleep soundly at night. <pc_name:sentence> had vanquished their greatest nightmare.\n\n'
+        ])
+    )
 
 with open('../monsters.json', 'r') as monster_file:
     monsters_list = json.load(monster_file)

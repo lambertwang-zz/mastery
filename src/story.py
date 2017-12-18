@@ -1,4 +1,5 @@
 import util
+import travel
 import combat
 
 TARGET_WORD_COUNT = 50000
@@ -21,18 +22,34 @@ def chapter(args):
     global chapter_titles
     chapter_titles.append(chapter_title_plain)
 
+    # Actual chapter contents
     result += util.expand(util.chapter_title(chapter_title_plain), **args)
+    # Town intro
     result += util.expand(util.town_intro(), **args)
+    # Armory intro
     result += util.expand(util.armory_intro(), **args)
 
+    # Armory explanation
     descriptions = util.monster_description(args['monster_name'])
     for description in descriptions:
         args['description'] = description
         result += util.expand(util.armory_explanation(), **args)
         result += util.expand(util.armory_more(), **args)
 
+    # Leave armory
     result += util.expand(util.armory_no_more(), **args)
+
+    # Get a new weapon
+    old_weapon = args['pc_weapon']
+    args['pc_weapon'] = util.expand('<weapon>', **args)
+    result += util.expand(util.armory_new_weapon(old_weapon), **args)
+
+    # Travelling to combat
+    result += util.expand(travel.leave_town(), **args)
+
+    # Combat intro
     result += util.expand(combat.combat_intro(args['monster_name']), **args)
+    # Actual Combat
     result += util.expand(combat.combat(), **args)
     return result
 
@@ -69,5 +86,8 @@ def toc():
 
 book_text = book()
 
-print(toc())
-print(book_text)
+with open('../Hero\'s Journey.md', 'w') as story_file:
+    story_file.write(toc())
+    story_file.write(book_text)
+    # print(toc())
+    # print(book_text)

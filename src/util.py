@@ -3,6 +3,7 @@ import re
 import json
 
 from combat import *
+from travel import *
 from pdb import set_trace
 
 def load_words(path):
@@ -46,6 +47,8 @@ town_generator = MarkovGenerator(load_words('../data/towns.txt'), 2)
 name_generator = MarkovGenerator(load_words('../data/names_male.txt'), 3)
 occupation_list = list(load_words('../data/occupations.txt'))
 color_list = list(load_words('../data/colors.txt'))
+landform_list = list(load_words('../data/landforms.txt'))
+weapon_list = list(load_words('../data/weapons.txt'))
 
 with open('../monsters.json', 'r') as monster_file:
     monsters_list = json.load(monster_file)
@@ -96,6 +99,12 @@ def occupation():
 def color():
     return random.choice(color_list)
 
+def landform():
+    return random.choice(landform_list)
+
+def weapon():
+    return random.choice(weapon_list)
+
 def positive_trait():
     return random.choice([
         'bold',
@@ -124,7 +133,7 @@ def positive_trait():
         'intrepid',
         'lion-hearted',
         'mythological',
-        'stand tall',
+        'tall standing',
         'stouthearted',
         'unafraid',
         'valorous',
@@ -255,7 +264,8 @@ def building():
 def direction():
     return random.choice([
         'left',
-        'right'
+        'right',
+        'left' # Bias towards left (for some reason)
     ])
 
 def in_town_directions_end():
@@ -367,3 +377,17 @@ def armory_no_more():
         '"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to <!pc_name>.\n\n',
         '"Look I\'ve got other things to attend to. Do you need weapons or not?" His frusturation was visible.\n\n'
     ])
+
+def armory_new_weapon(old_weapon):
+    return (
+        'As <!pc_name> turned to leave the armory, <!armor_name> called out\n\n' +
+        random.choice([
+            '"Before you go, get rid of that useless ' + old_weapon + '. It won\'t make a dent against the carapace of the <!monster_name>." ',
+            '"Wait, you\'ll need a weapon worthy of your great cause. That rusty ' + old_weapon + ' won\'t do." '
+        ]) +
+        '\n\n' +
+        random.choice([
+            '"Take this <!pc_weapon>. It has served a well over a dozen adventureres before you and it should serve you well too."\n\n',
+            '"Forged by the finest dwarven smiths in the mountains of <town>, this <!pc_weapon> is the finest display of craftsmanship for miles around."\n\n'
+        ])
+    )

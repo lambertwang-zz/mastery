@@ -1,3256 +1,3402 @@
-# Alkmain's Journey to Defeat the Evil Wizard Hippus _(and his many battles along the way)_
+# Maixenor's Journey to Defeat the Evil Wizard Kebad _(and his many battles along the way)_
 
-[Chapter 1: Newburnempiketter and the Carrion Golem](#chapter1)
+[Chapter 1: Widen and the Ogre Mage](#chapter1)
 
-[Chapter 2: Croxley Cirk and the Snapping Turtle](#chapter2)
+[Chapter 2: Ell D√ªm and the Mihstu](#chapter2)
 
-[Chapter 3: Woothoterminalhamptown and the Hyakume](#chapter3)
+[Chapter 3: Bark and the Giant Ant](#chapter3)
 
-[Chapter 4: Heathorton and the Twigjack](#chapter4)
+[Chapter 4: Newton Grew Whetond and the Nulmind](#chapter4)
 
-[Chapter 5: Arsfiel Garrehandond Par and the Sangoi](#chapter5)
+[Chapter 5: Gil and the Bat](#chapter5)
 
-[Chapter 6: Croth Woot and the Rishi Manu](#chapter6)
+[Chapter 6: Grave and the Great White Whale](#chapter6)
 
-[Chapter 7: Blancon and the Killer Seahorse](#chapter7)
+[Chapter 7: Ruisley and the Bunyip](#chapter7)
 
-[Chapter 8: Edgel and the Kalavakus](#chapter8)
+[Chapter 8: Poodfiell and the Adult Copper Dragon](#chapter8)
 
-[Chapter 9: Bathfor and the Storm Hag](#chapter9)
+[Chapter 9: Kninals Hast Herstoch and the Barometz](#chapter9)
 
-[Chapter 10: North and the Grick](#chapter10)
+[Chapter 10: Crawk Rohapher and the Iron Golem](#chapter10)
 
-[Chapter 11: St Hale and the Redcap](#chapter11)
+[Chapter 11: Claphefiel Gresbury Lanslesten and the Dragon Horse](#chapter11)
 
-[Chapter 12: Kills and the Mithral Golem](#chapter12)
+[Chapter 12: Whephals and the Orang-pendak](#chapter12)
 
-[Chapter 13: Sudbridge and the Xtabay](#chapter13)
+[Chapter 13: Pincark and the Aurochs](#chapter13)
 
-[Chapter 14: Greend and the Nightgaunt](#chapter14)
+[Chapter 14: Hershfos and the Exscinder](#chapter14)
 
-[Chapter 15: Hiltown and the Stormghost](#chapter15)
+[Chapter 15: Pinghburthn's Acton-onumberbone upooth and the Gray Goo](#chapter15)
 
-[Chapter 16: Sougby and the Jinushigami](#chapter16)
+[Chapter 16: Stan and the Thunder Behemoth](#chapter16)
 
-[Chapter 17: Wimbleyden and the Spirit Oni](#chapter17)
+[Chapter 17: Hark and the Choker](#chapter17)
 
-[Chapter 18: Marminnon Cirlastereston Dewtoketsbury Comber and the Sangoi](#chapter18)
+[Chapter 18: Woodilinastoninalembley and the Knight Ant](#chapter18)
 
-[Chapter 19: Lonellihulhamark and the Elephant](#chapter19)
+[Chapter 19: Weadder and the Ocean Giant](#chapter19)
 
-[Chapter 20: Easen and the Seps](#chapter20)
+[Chapter 20: Sough Bring Brewton and the Clockwork Dragon](#chapter20)
 
-[Chapter 21: Upnelda Valon-Sea and the Undigested Swarm](#chapter21)
+[Chapter 21: Hillonueedon-on and the Giraffe](#chapter21)
 
-[Chapter 22: Stockburt and the Catoblepas](#chapter22)
+[Chapter 22: Easion-Ter and the Catoblepas](#chapter22)
 
-[Chapter 23: Norack and the Dire Polar Bear](#chapter23)
+[Chapter 23: Aldsinge and the Vukodlak](#chapter23)
 
-[Chapter 24: Hamwinal and the Hieracosphinx](#chapter24)
+[Chapter 24: Bebor and the Tengu](#chapter24)
 
-[Chapter 25: Soll and the Jubjub Bird](#chapter25)
+[Chapter 25: Kham and the Vishap](#chapter25)
 
-[Chapter 26: Ayledon-Tham and the Silvanshee](#chapter26)
+## <a name="chapter1"></a> Chapter 1: Widen and the Ogre Mage
 
-[Chapter 27: Ell and the Putrid Ooze](#chapter27)
+Maixenor followed a dirt path into the village of Widen. The philosopher hawked fine imported goods from Blow Centon with a chaplain. The tallowchandler talked excitedly with what appeared to be a rat catcher with a bronzefounder. Maixenor continued down the path. The bailiff scuttled out of his way with a fuller.
 
+Eventually, Maixenor arrived at the town square, where he found a rat catcher. Maixenor approached him, hoping for some advice.
 
-## <a name="chapter1"></a> Chapter 1: Newburnempiketter and the Carrion Golem
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
 
-Alkmain followed a dirt path into the village of Newburnempiketter. While the turner loaded a market stall with wares, a minnesinger loaded a market stall with wares. Two farmers slept in an alleyway. Alkmain continued down the path. A baker loaded a market stall with wares.
+Two nailers slowly carried supplies. He still looked suspiciousHe finally responded.
 
-Eventually, Alkmain arrived at the town square, where he found a weirkeeper. Alkmain approached him, hoping for some advice.
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-While the pinmaker scuttled out of his way, a plasterer finished an apple and tossed the core aside. The man eyed him thoughtfully, then finally responded.
-
-"Our village of Upmingswickpon will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Anger is the best in town. His shop is past the church. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Georgisebe is the best in town. His shop is down the street to the monastery and left. You'll see a church. It's past the church. Look for the large hanging sign that reads "Georgisebe Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. A siever gazed at him from an open window. Two bailiffs loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. The dog trainer scuttled out of his way with a exchequer. Nearby, a thonger slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+Georgisebe looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Anger lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The carrion golem."
+Georgisebe grabbed a dusty book from the shelf and flipped through it. Pictures of scarecrows and bakus flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "Filth Fever: Slamóinjury; save Fortitude DC 14; onset 1d3 days; frequency 1/day; effect 1d3 Dex damage and 1d3 Con damage; cure 2 consecutive saves."
+"The ogre mage, like all oni, is an evil spirit come to the Material Plane and clad in living fleshóin this case, that of a brutish ogre. Ogre mages are often found serving as leaders of ogre tribes, yet not all of them seek to link their destinies to their less-intelligent kin. Some become lone marauders who hold villages hostage, demanding regular tribute in the form of gold, food, or maidens, lest they take more than they ask." Georgisebe explained.
 
-"I could handle that. Tell me again, what makes the carrion golem so bad?" Alkmain responded.
-
-"Carrion golems are made from the partially decayed parts of numerous dead creaturesóno two carrion golems are exactly alike in appearance. Most are created from the corpses of humanoid creatures that are then augmented here and there with parts taken from animals, resulting in a monster that stands 6 feet tall and weighs 120 pounds." Anger explained.
-
-Alkmain slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a execrable carrion golem in the distance! Our hero fixed his gaze on the lurid sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The epic Alkmain sneaked around to carrion golem's blind spot. Alkmain lunged toward the carrion golem, his sword ready to strike! The slippery carrion golem evaded Alkmain's hit. 
-
-The carrion golem leans low, ready to strike with its might. Alkmain lunged toward the carrion golem, his sword ready to strike! He landed a massive hit on carrion golem! 
-
-Alkmain the high-flown sneaked around to carrion golem's blind spot. The carrion golem leans low, ready to strike with its might. 
-
-The carrion golem struck with its slams! Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The carrion golem leans low, ready to strike with its might. 
-
-The carrion golem leans low, ready to strike with its might. Alkmain lunged toward the carrion golem, his sword ready to strike! The slippery carrion golem evaded Alkmain's hit. 
-
-The carrion golem struck with its slams! The ruinous carrion golem failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The carrion golem struck with its slams! Alkmain stunbles backward, gasping for breath. 
-
-The carrion golem leans low, ready to strike with its might. Alkmain lunged toward the carrion golem, his sword ready to strike! The slippery carrion golem evaded Alkmain's hit. 
-
-He sneaked around to carrion golem's blind spot. The carrion golem leans low, ready to strike with its might. 
-
-The carrion golem leans low, ready to strike with its might. Alkmain lunged toward the carrion golem, his sword ready to strike! The slippery carrion golem evaded Alkmain's hit. 
-
-He sneaked around to carrion golem's blind spot. The carrion golem struck with its slams! The fierce blow from the monster narrowly misses our hero. 
-
-He pulls a rose ebony potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the carrion golem, his sword ready to strike! The slippery carrion golem evaded Alkmain's hit. 
-
-The carrion golem leans low, ready to strike with its might. Alkmain lunged toward the carrion golem, his sword ready to strike! The carrion golem was staggered by the immense force. 
-
-Alkmain lunged toward the carrion golem, his sword ready to strike! The shattering blow from Alkmain rumbled through the ground. The carrion golem struck with its slams! He winces from the pain but continues fighting. Alkmain lunged toward the carrion golem, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The carrion golem leans low, ready to strike with its might. The carrion golem struck with its slams! The ghastly carrion golem failed to land its hit. 
-
-Our hero pulls a tickle me pink potion from his pack and drinks it. He is reinvigorated. The carrion golem leans low, ready to strike with its might. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Anger was talking about."
-
-## <a name="chapter2"></a> Chapter 2: Croxley Cirk and the Snapping Turtle
-
-Alkmain followed a dirt path into the village of Croxley Cirk. Nearby, a pewterer stood by a market stall, negotiating with the wattler. A cartwright eyed him suspiciously. Alkmain continued down the path. A cobbler sat by the side of the road.
-
-Eventually, Alkmain arrived at the town square, where he found a hatmaker. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-Nearby, a vintner rushed by quickly, ignoring him. The man quietly reminised about the past, but eventually responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the barn. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Iobarnous Fine Supplies". You'll find Iobarnous, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Alkmain hurried towards the armory. The smelter stood by a market stall, negotiating with the laundress with a ropemaker. Two lawyers rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Iobarnous looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Iobarnous lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The snapping turtle."
-
-Iobarnous returned to the book of monsters on the desk and pointed at the terrifying illustration. "Snapping turtles are water-dwelling reptiles known for their propensity to bite anyone they deem threatening. Adult snapping turtles are usually about 1-1/2 feet in diameter. A spellcaster who can acquire a familiar can choose a snapping turtle as a familiar. A snapping turtle familiar grants its master a +2 bonus on all Fortitude saves."
-
-"I could handle that. Tell me again, what makes the snapping turtle so bad?" Alkmain responded.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
-
-Alkmain saw a sickie snapping turtle in the distance! Our hero fixed his gaze on the offensive sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The snapping turtle struck with its bite! The adventurer jumps out of the way. Alkmain lunged toward the snapping turtle, his sword ready to strike! The attack from the epic Alkmain surely left a impression. 
-
-The snapping turtle struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The snapping turtle leans low, ready to strike with its might. 
-
-Our hero pulls a ucla blue potion from his pack and drinks it. He is reinvigorated. The snapping turtle leans low, ready to strike with its might. 
-
-Alkmain was victorious! The snapping turtle menaced for no longer! 
-
-## <a name="chapter3"></a> Chapter 3: Woothoterminalhamptown and the Hyakume
-
-Alkmain followed a dirt path into the village of Woothoterminalhamptown. Nearby, a feltmaker eyed him suspiciously. A papermaker scuttled out of his way. Alkmain continued down the path. The beadle talked excitedly with what appeared to be a furrier with a carman.
-
-Eventually, Alkmain arrived at the town square, where he found a forester. Alkmain approached him, hoping for some advice.
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-The lady ran from person to person, asking if they had seen Odullin with a hurdle maker. He still looked suspiciousHe finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Richolopophormon is the best in town. His shop is past the barn. There's a small door. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Alkmain hurried towards the armory. The purse maker talked excitedly with what appeared to be a cabinetmaker with a ragpicker. Two privycleaners bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the tengu, or perhaps even the cthulhu, but that's nothing compared to the hyakume we've got."
-
-The armorer sighed and continued. "Hideous and corpulent, with numerous eyes dotting their bodies, hyakumes are mystics of malevolence. They steal and collect the memories of other intelligent beings to increase their own knowledge."
-
-Alkmain slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"I could handle that. Tell me again, what makes the ogre mage so bad?" Maixenor responded.
 
 "That's all I can tell you."
 
-Alkmain saw a revolting hyakume in the distance! Our hero readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Georgisebe called out
 
-The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The hyakume leans low, ready to strike with its might. 
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
 
-The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The hyakume struck with its slams! Alkmain the courageous blocks the strike with his sword. 
+"Take this dwarven war-shield. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-The hyakume struck with its slams! The fearless Alkmain jumps out of the way. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
+Sheathing his dwarven war-shield, Maixenor leaves Widen on a journey to find the ogre mage. 
 
-He pulls a red munsell potion from his pack and drinks it. He is reinvigorated. The hyakume struck with its slams! He blocks the strike with his sword. 
+As Maixenor walked along the path out of Widen, he turned to his right and saw something fearless.
 
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The Headlands of Mook towered over the nearby River islands.Maybe they might make for a mythological adventure for when Maixenor's current journey is over.
 
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Alkmain sneaked around to hyakume's blind spot. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! Alkmain jumps out of the way. 
+He met a wandering reeve making his way toward Widen. The stranger said to Maixenor
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The dreadful hyakume failed to land its hit. 
+"The ogre mage killed my brother. I would be heading back to end that horrendous thing if only it hadn't taken my eye the first time I tried."
 
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The hyakume took a glancing blow. 
+The ever grandiose Maixenor continued his long and tiring journey to find the ogre mage.
 
-He sneaked around to hyakume's blind spot. The hyakume struck with its slams! Alkmain jumps out of the way. 
+Not once did Maixenor regret his choice to not become a singer.
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The stand tall Alkmain blocks the strike with his sword. 
+The ever grand Maixenor continued his long and tiring journey to find the ogre mage.
 
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. 
+Not once did he regret his choice to not become a waterman.
 
-The adventurer sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
+As Maixenor walked along the path out of Widen, he turned to his right and saw something undaunted.
 
-The hyakume struck with its slams! The lurid hyakume failed to land its hit. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
+The Mountain passes of Cankmanalephey towered over the nearby Kames.Maybe they might make for a lion-hearted adventure for when Maixenor's current journey is over.
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The fairy hyakume failed to land its hit. 
+Maixenor saw a shameful ogre mage in the distance! Our hero fixed his gaze on the beastly sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
 
-The adventurer pulls a pastel green potion from his pack and drinks it. He is reinvigorated. The hyakume leans low, ready to strike with its might. 
+Maixenor cleared his mind, preparing himself for the combat to come.The ogre mage struck with its greatsword! The fierce blow from the monster narrowly misses the gritty Maixenor. 
 
-The exaggerated Alkmain sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
+A bold attack suddenly came from Maixenor, its intent to silence the mean beast once and for all. The revolting ogre mage was too quick to be hit. Struck by the hefty blow, the ogre mage needed a second to recover its footing. Maixenor the high-flown made a mighty swing at the ogre mage with this dwarven war-shield. Maixenor's strike glanced off of the ogre mage's hide. 
 
-The hyakume struck with its slams! Alkmain the inflated jumps out of the way. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+The dwarven war-shield of Maixenor was raised high only to be brought down onto the ogre mage moments later. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the ogre mage needed a second to recover its footing. He sneaked around to ogre mage's blind spot. 
 
-The hyakume struck with its slams! The obnoxious hyakume failed to land its hit. The exhilarating combat made the hours seem like seconds. The hyakume struck with its slams! He jumps out of the way. 
+A valorous attack suddenly came from Maixenor, its intent to silence the unkind beast once and for all. The attack from he surely left a impression. Struck by the hefty blow, the ogre mage needed a second to recover its footing. Maixenor lunged toward the ogre mage, his dwarven war-shield ready to strike! The shattering blow from he rumbled through the ground. 
 
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The hyakume struck with its slams! The cruel hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The hyakume was struck by the blow! 
+A valiant attack suddenly came from Maixenor, its intent to silence the disgusting beast once and for all. That blow seemed like it could break some bones. The ogre mage struck with its greatsword! He jumps out of the way. Maixenor took a deep breath and swung toward the ungodly ogre mage. The attack from he surely left a impression. 
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The scandalous hyakume failed to land its hit. 
+The ogre mage struck with its greatsword! Maixenor jumps out of the way. Maixenor lunged toward the ogre mage, his dwarven war-shield ready to strike! The attack from the daring Maixenor surely left a impression. 
 
-The hyakume struck with its slams! The shocking hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+A fearless attack suddenly came from Maixenor, its intent to silence the sickie beast once and for all. A sharp crack was heard as the strike left its mark. A powerful swing came from the ogre mage with very deadly intent. The grim ogre mage failed to land its hit. Maixenor took a deep breath and swung toward the loathsome ogre mage. The ogre mage was struck by the blow! 
 
-He sneaked around to hyakume's blind spot. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+Maixenor cleared his mind, preparing himself for the combat to come.The ogre mage eyed Maixenor with a dangerous glare. 
 
-Alkmain the valorous sneaked around to hyakume's blind spot. The hyakume struck with its slams! The adventurer jumps out of the way. 
+The heinous monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses he. Maixenor lunged toward the ogre mage, his dwarven war-shield ready to strike! The slippery ogre mage evaded Maixenor's hit. 
 
-He sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
+Maixenor lunged toward the ogre mage, his dwarven war-shield ready to strike! The ogre mage was struck by the blow! The monster was stunned by the attack. A unafraid attack suddenly came from Maixenor, its intent to silence the abominable beast once and for all. The attack from Maixenor surely left a impression. 
 
-Alkmain pulls a deep chestnut potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hyakume, his sword ready to strike! Although he's hit landed, hyakume is mostly unphased
+The ogre mage eyed Maixenor with a dangerous glare. The heinous monster took a swipe at Maixenor. He winces from the pain but continues fighting. 
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! He blocks the strike with his sword. 
+Maixenor cleared his mind, preparing himself for the combat to come.The ogre mage struck with its greatsword! Maixenor reeled back in pain. 
 
-The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Alkmain the inflated was worn out by the combat. The hyakume struck with its slams! The evil hyakume failed to land its hit. 
+A tall standing attack suddenly came from Maixenor, its intent to silence the evil beast once and for all. That blow seemed like it could break some bones. 
 
-The hyakume struck with its slams! The disagreeable hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. 
+Maixenor's last strike hit the ogre mage directly in the heary. A fatal blow.
 
-He sneaked around to hyakume's blind spot. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+Maixenor says
 
-Alkmain sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
+"That didn't seem so hard, I don't know what Georgisebe was talking about."
 
-Alkmain sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
+## <a name="chapter2"></a> Chapter 2: Ell D√ªm and the Mihstu
 
-The hyakume struck with its slams! He blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+Maixenor followed a dirt path into the village of Ell D√ªm. Nearby, a lawyer hawked fine imported goods from Tyne. Nearby, a quartermaster ran from person to person, asking if they had seen Challitus. Maixenor continued down the path. The master of hounds bit into an apple with a fabricshearer.
 
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
+Eventually, Maixenor arrived at the town square, where he found a harness maker. The man, eying his impressive armor, beckoned him forward.
 
-Alkmain sneaked around to hyakume's blind spot. The hyakume struck with its slams! The grandiose Alkmain jumps out of the way. 
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! Alkmain winces from the pain but continues fighting. 
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
 
-The hyakume struck with its slams! Our hero winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
+The dairymaid sat by the side of the road with a wood seller. He still looked suspicious, but eventually responded.
 
-The hyakume struck with its slams! The shocking hyakume failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The hyakume struck with its slams! Alkmain the dauntless blocks the strike with his sword. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The hyakume struck with its slams! Alkmain the mythological stunbles backward, gasping for breath. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! The bigger than life Alkmain blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! Alkmain the epic landed a massive hit on hyakume! 
-
-He pulls a ceil potion from his pack and drinks it. He is reinvigorated. The hyakume struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
-
-The hyakume struck with its slams! He blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-He pulls a denim potion from his pack and drinks it. He is reinvigorated. The hyakume leans low, ready to strike with its might. 
-
-The courageous Alkmain sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! The fierce blow from the monster narrowly misses Alkmain the lion-hearted. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
-
-He pulls a ucla gold potion from his pack and drinks it. He is reinvigorated. The hyakume struck with its slams! He blocks the strike with his sword. 
-
-The fire-eating Alkmain pulls a jet potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-He sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! Alkmain reeled back in pain. He leaned on his sword to catch a moment's respite. Alkmain was worn out by the combat. The hyakume leans low, ready to strike with its might. 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The attack from he surely left a impression. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The hyakume took a glancing blow. The hyakume struck with its slams! He jumps out of the way. Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The shattering blow from Alkmain the valiant rumbled through the ground. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the gallant sneaked around to hyakume's blind spot. 
-
-The hyakume struck with its slams! The noble Alkmain stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! Alkmain reeled back in pain. Our hero leaned on his sword to catch a moment's respite. The doughty Alkmain was worn out by the combat. The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The frightful hyakume failed to land its hit. 
-
-The hyakume struck with its slams! The scandalous hyakume failed to land its hit. Our hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The hyakume leans low, ready to strike with its might. 
-
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! He stunbles backward, gasping for breath. 
-
-Our hero sneaked around to hyakume's blind spot. The hyakume leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. The hyakume struck with its slams! The appalling hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! The fierce blow from the monster narrowly misses our hero. he stumbles to his knee, gasping for breath. The hyakume struck with its slams! Alkmain blocks the strike with his sword. 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The adventurer sneaked around to hyakume's blind spot. The hyakume struck with its slams! The mythological Alkmain winces from the pain but continues fighting. 
-
-The hyakume struck with its slams! The awful hyakume failed to land its hit. The exhilarating combat made the hours seem like seconds. The hyakume struck with its slams! He jumps out of the way. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! He winces from the pain but continues fighting. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The hyakume leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! He landed a massive hit on hyakume! The monster was stunned by the attack. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! Our hero winces from the pain but continues fighting. our hero stumbles to his knee, gasping for breath. The hyakume struck with its slams! The adventurer winces from the pain but continues fighting. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to hyakume's blind spot. 
-
-Alkmain pulls a cinnamon potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! The ruinous hyakume failed to land its hit. he stumbles to his knee, gasping for breath. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! Alkmain blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-He pulls a light carmine pink potion from his pack and drinks it. He is reinvigorated. The hyakume leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The hyakume struck with its slams! The hideous hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The stand tall Alkmain sneaked around to hyakume's blind spot. The hyakume struck with its slams! The fierce blow from the monster narrowly misses our hero. 
-
-Alkmain the dauntless pulls a sapphire potion from his pack and drinks it. He is reinvigorated. The hyakume leans low, ready to strike with its might. 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! Alkmain the epic jumps out of the way. The exhilarating combat made the hours seem like seconds. The hyakume struck with its slams! The unkind hyakume failed to land its hit. 
-
-The hyakume struck with its slams! The execrable hyakume failed to land its hit. he stumbles to his knee, gasping for breath. The hyakume struck with its slams! The fierce blow from the monster narrowly misses our hero. 
-
-The hyakume struck with its slams! The smelly hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-The hyakume struck with its slams! The ghastly hyakume failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The hyakume leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the exaggerated pulls a ufo green potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. The hyakume struck with its slams! Alkmain reeled back in pain. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! The adventurer blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! He blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! Alkmain the grandiose landed a massive hit on hyakume! 
-
-The hyakume leans low, ready to strike with its might. The hyakume struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. The adventurer sneaked around to hyakume's blind spot. 
-
-The hyakume struck with its slams! Alkmain reeled back in pain. The adventurer leaned on his sword to catch a moment's respite. He was worn out by the combat. The hyakume struck with its slams! The fearful hyakume failed to land its hit. 
-
-He pulls a saddle brown potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Our hero pulls a deep carmine potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to hyakume's blind spot. The hyakume struck with its slams! He blocks the strike with his sword. 
-
-He sneaked around to hyakume's blind spot. The hyakume struck with its slams! He blocks the strike with his sword. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a rajah potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The attack from the adventurer surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the hyakume, his sword ready to strike! The hyakume was struck by the blow! 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! A sharp crack was heard as the strike left its mark. The hyakume struck with its slams! The terrible hyakume failed to land its hit. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The hyakume struck with its slams! He jumps out of the way. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! He jumps out of the way. Alkmain stumbles to his knee, gasping for breath. The hyakume struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The hyakume struck with its slams! He jumps out of the way. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-The hyakume struck with its slams! The smelly hyakume failed to land its hit. The exhilarating combat made the hours seem like seconds. The hyakume struck with its slams! The fierce blow from the monster narrowly misses the inflated Alkmain. 
-
-The hyakume struck with its slams! The adventurer stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The hyakume leans low, ready to strike with its might. 
-
-The hyakume struck with its slams! The adventurer blocks the strike with his sword. Alkmain lunged toward the hyakume, his sword ready to strike! The unafraid Alkmain landed a massive hit on hyakume! 
-
-The hyakume leans low, ready to strike with its might. Alkmain lunged toward the hyakume, his sword ready to strike! Although he's hit landed, hyakume is mostly unphased
-
-The hyakume struck with its slams! The adventurer jumps out of the way. Alkmain lunged toward the hyakume, his sword ready to strike! The slippery hyakume evaded Alkmain's hit. 
-
-He was victorious! The hyakume menaced for no longer! 
-
-## <a name="chapter4"></a> Chapter 4: Heathorton and the Twigjack
-
-Alkmain followed a dirt path into the village of Heathorton. The barrister ran from person to person, asking if they had seen Ouenus with a harness maker. The mirrorer rushed by quickly, ignoring him with a solicitor. Alkmain continued down the path. Nearby, a bodger threw punches.
-
-Eventually, Alkmain arrived at the town square, where he found a hatmaker. Alkmain approached him, hoping for some advice.
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-Nearby, a wetnurse eyed him suspiciously. The man eyed him thoughtfullyHe finally responded.
-
-"Our village of Roadal will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Callipos is just a bit further down the street. Look for the large hanging sign that reads "Callipos Fine Supplies". Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Hippus gone as much as anybody."
+"Cilius is the best in town. His shop is into the market and towards the barn. Eventually you need to walk just a bit further down the street. It's just to the left. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Alkmain hurried towards the armory. The chapman rushed by quickly, ignoring him with a sexton. Two plumbers threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. The lapidary threw punches with a spurrer. A fool for money bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the wraith, or perhaps even the annihilator, but that's nothing compared to the twigjack we've got."
+"Brave you say? You may have fought the hippopotamus, or perhaps even the dragonkin, but that's nothing compared to the mihstu we've got."
 
-The armorer sighed and continued. "Deep in old-growth forests, twigjacks spend their time tormenting intruders and wreaking havoc on settlers. Maladjusted protectors of the wood, these malicious fey constantly threaten any attempts to civilize the wild. Twigjacks delight in breaking wagon wheels from expansionists' caravans, snapping hunters' bows, and sabotaging isolated cabins and villages. Although they possess a keen intellect, few creatures, even other fey, can tolerate these twig-born creatures for long. Treants especially find twigjacks bothersome, and resent any suggestion that they are related. Equally, twigjacks resent being considered plants, and are proud of their fey heritage. Twigjacks sometimes go out of their way to impress dryads, an effort that is rebuffed almost every time. But some spriggans, quicklings, and other evil fey associate with twigjacks, and while goblins fear and distrust the creatures, bugbears often bully them into service."
+Cilius returned to the book of monsters on the desk and pointed at the terrifying illustration. "The deadly mihstus hail from the Plane of Air. When they come to the Material Plane, they prefer to inhabit dank dungeon corridors, abandoned ruins, and the forgotten corridors of lost civilizations. Scholars dispute what drives the ambitions of these creatures, or even what they seek on the Material Plane, but all agree that they are deadly combatants and merciless hunters. Their semi-solid bodies appear to be composed of a strange, white smoke, and they can shape their vaporous bodies at will to seep through small cracks and openings in pursuit of prey. When attacking, they coalesce the tips of their misty tentacles into wickedly barbed talons, slashing at opponents with these razor-sharp appendages. Mihstus rely on their insubstantial nature to close with opponents quickly, engulfing the nearest threat while continuing to attack any who seek to deprive them of their chosen victim. When a mihstu manages to embrace a foe with its body, it drains away the creature's vital fluids at an alarming rate. These fluids churn in the creature's body for a few rounds before spattering against nearby walls or on the flooróthe mihstu seems to gain no nourishment from these fluids, so this attack may be nothing more than a favorite method of cruelty."
 
-"I could handle that. Tell me again, what makes the twigjack so bad?" Alkmain responded.
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-The armorer sighed and continued. "Gnarled sticks bundled by vines and brambles form a twigjack's entire body. Atop its head, a mossy growth not unlike hair sprouts. The creature's eyes appear as vacant dark knotholes, and its mouth is just a canyon of splintered and broken sticks bisecting its face. Leaves and sprigs of new growth randomly sprout from the creature's body."
+Cilius returned to the book of monsters on the desk and pointed at the terrifying illustration. "Mihstus are immortal unless slain by violence, and if properly bargained with, these deadly outsiders can actually be intriguing sources of information. Mihstus are normally interested in little more than stalking and consuming prey, and as a result only tend to provide reliable information or cooperate when supplied with intriguing victims to pursue and destroy. Nefarious creatures such as rakshasas and evil cloud giants often utilize mihstus as trackers and assassins, or sometimes employ them as guards in the forgotten corridors of their lairs."
 
-"I could handle that. Tell me again, what makes the twigjack so bad?" Alkmain responded.
+Maixenor slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Alkmain saw a lousy twigjack in the distance! The noble Alkmain readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Cilius called out
 
-He pulls a ruddy potion from his pack and drinks it. He is reinvigorated. The twigjack struck with its spear! The impavid Alkmain stunbles backward, gasping for breath. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the mihstu." 
 
-The twigjack leans low, ready to strike with its might. Alkmain lunged toward the twigjack, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+"Take this shotel. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-The inflated Alkmain pulls a unbleached silk potion from his pack and drinks it. He is reinvigorated. The twigjack leans low, ready to strike with its might. 
+With his newfound information, Maixenor departs from Ell D√ªm. 
 
-The twigjack leans low, ready to strike with its might. The twigjack struck with its spear! He stunbles backward, gasping for breath. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The twigjack struck with its spear! The ruinous twigjack failed to land its hit. Alkmain the inflated leaned on his sword to catch a moment's respite. He was worn out by the combat. The twigjack leans low, ready to strike with its might. 
+He met a wandering lady making his way toward Ell D√ªm. The stranger said to Maixenor
 
-Alkmain lunged toward the twigjack, his sword ready to strike! The twigjack took a glancing blow. The monster was stunned by the attack. Alkmain lunged toward the twigjack, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+"Take care crossing the Key Hoodoos! They are especially dangerous this time of year."
 
-The twigjack struck with its spear! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The twigjack leans low, ready to strike with its might. 
+As Maixenor walked along the path out of Ell D√ªm, he turned to his left and saw something noble.
 
-Alkmain lunged toward the twigjack, his sword ready to strike! The shattering blow from the impavid Alkmain rumbled through the ground. The monster was stunned by the attack. He pulls a copper penny potion from his pack and drinks it. He is reinvigorated. 
+The classic Maixenor could barely make out some Vales in the distance.Maybe they might make for a gallant adventure for when Maixenor's current journey is over.
 
-He was victorious! The twigjack menaced for no longer! 
+As Maixenor walked along the path out of Ell D√ªm, he turned to his left and saw something intrepid.
 
-## <a name="chapter5"></a> Chapter 5: Arsfiel Garrehandond Par and the Sangoi
+The Straths of Richley towered over the nearby Mountain passes.Maybe they might make for a valiant adventure for when Maixenor's current journey is over.
 
-Alkmain followed a dirt path into the village of Arsfiel Garrehandond Par. A harberdasher bit into an apple. Nearby, a pioneer finished an apple and tossed the core aside. Alkmain continued down the path. While the bard bit into an apple, a spicer threw punches.
+The ever elevated Maixenor continued his long and tiring journey to find the mihstu.
 
-Eventually, Alkmain arrived at the town square, where he found a trapper. Alkmain approached him, hoping for some advice.
+Not once did the adventurer regret his choice to not become a hawker.
 
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+The ever valorous Maixenor continued his long and tiring journey to find the mihstu.
 
-A dentist eyed him suspiciously. The man quietly reminised about the past, but eventually responded.
+Not once did he regret his choice to not become a bowman.
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+Maixenor saw a ghastly mihstu in the distance! Maixenor the mythological readied his sword. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The shotel of Maixenor was raised high only to be brought down onto the mihstu moments later. The obnoxious mihstu was too quick to be hit. 
+
+The mihstu struck with its tentacles! He jumps out of the way. Maixenor took a deep breath and swung toward the terrifying mihstu. The shameful mihstu was too quick to be hit. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The mihstu leans low, ready to strike with its might. 
+
+Maixenor the valiant made a mighty swing at the mihstu with this shotel. The slippery mihstu evaded Maixenor's hit. The monster was stunned by the attack. The adventurer made a mighty swing at the mihstu with this shotel. The attack from the grandiose Maixenor surely left a impression. 
+
+Maixenor lunged toward the mihstu, his shotel ready to strike! Although our hero's hit landed, mihstu is mostly unphasedA powerful swing came from the mihstu with very deadly intent. Maixenor reeled back in pain. A elevated attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. Maixenor's strike glanced off of the mihstu's hide. 
+
+The shotel of Maixenor was raised high only to be brought down onto the mihstu moments later. The slippery mihstu evaded Maixenor's hit. The monster was stunned by the attack. A bigger than life attack suddenly came from Maixenor, its intent to silence the scandalous beast once and for all. The mihstu took a glancing blow. 
+
+The sickie monster took a swipe at Maixenor. The grim mihstu failed to land its hit. The adventurer made a mighty swing at the mihstu with this shotel. The attack from Maixenor surely left a impression. 
+
+Maixenor pulled a tangelo potion from his pack and drinks it. He is reinvigorated. The shotel of Maixenor was raised high only to be brought down onto the mihstu moments later. That blow seemed like it could break some bones. 
+
+The mihstu eyed Maixenor with a dangerous glare. A powerful swing came from the mihstu with very deadly intent. The unkind mihstu failed to land its hit. 
+
+A noble attack suddenly came from Maixenor, its intent to silence the grisly beast once and for all. The terrible mihstu was too quick to be hit. The mihstu struck with its tentacles! The adventurer blocks the strike with his shotel. Maixenor took a deep breath and swung toward the unholy mihstu. The mihstu was struck by the blow! 
+
+The shotel of Maixenor was raised high only to be brought down onto the mihstu moments later. Maixenor's strike glanced off of the mihstu's hide. The mihstu struck with its tentacles! The fierce blow from the monster narrowly misses he. Maixenor took a deep breath and swung toward the eerie mihstu. The slippery mihstu evaded Maixenor's hit. 
+
+The mihstu struck with its tentacles! Maixenor reeled back in pain. Our hero leaned on his shotel to catch a moment's respite. The grand Maixenor was worn out by the combat. The mihstu leans low, ready to strike with its might. 
+
+The mihstu struck with its tentacles! The adventurer blocks the strike with his shotel. he stumbles to his knee, gasping for breath. The mihstu struck with its tentacles! The fierce blow from the monster narrowly misses the adventurer. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the mihstu with very deadly intent. The fierce blow from the monster narrowly misses the elevated Maixenor. 
+
+Our hero sneaked around to mihstu's blind spot. The cruel monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses the adventurer. 
+
+A powerful swing came from the mihstu with very deadly intent. The heinous mihstu failed to land its hit. A undaunted attack suddenly came from Maixenor, its intent to silence the smelly beast once and for all. Maixenor's strike glanced off of the mihstu's hide. 
+
+Maixenor the courageous made a mighty swing at the mihstu with this shotel. The ghastly mihstu was too quick to be hit. The horrendous monster took a swipe at Maixenor. Our hero stunbles backward, gasping for breath. The shotel of Maixenor was raised high only to be brought down onto the mihstu moments later. The mihstu took a glancing blow. 
+
+The mihstu leans low, ready to strike with its might. A powerful swing came from the mihstu with very deadly intent. He blocks the strike with his shotel. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A impavid attack suddenly came from Maixenor, its intent to silence the fearful beast once and for all. The disagreeable mihstu was too quick to be hit. 
+
+The mihstu leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the offensive mihstu. The mihstu was struck by the blow! 
+
+The mihstu struck with its tentacles! Maixenor jumps out of the way. A gutty attack suddenly came from Maixenor, its intent to silence the evil beast once and for all. The mihstu was struck by the blow! 
+
+Maixenor lunged toward the mihstu, his shotel ready to strike! A sharp crack was heard as the strike left its mark. A powerful swing came from the mihstu with very deadly intent. The fierce blow from the monster narrowly misses the adventurer. The daring Maixenor made a mighty swing at the mihstu with this shotel. Maixenor landed a massive hit on mihstu! 
+
+The mihstu struck with its tentacles! He blocks the strike with his shotel. He leaned on his shotel to catch a moment's respite. Maixenor the inflated was worn out by the combat. The mihstu leans low, ready to strike with its might. 
+
+Maixenor pulled a dark magenta potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the mihstu, his shotel ready to strike! The fairy mihstu was too quick to be hit. 
+
+Maixenor the classic made a mighty swing at the mihstu with this shotel. A sharp crack was heard as the strike left its mark. 
+
+Maixenor's last strike hit the mihstu directly in the heary. A fatal blow.
+
+The citizens of Ell D√ªm could sleep soundly at night. He had vanquished their greatest nightmare.
+
+## <a name="chapter3"></a> Chapter 3: Bark and the Giant Ant
+
+Maixenor followed a dirt path into the village of Bark. Two tumblers rushed by quickly, ignoring him. Nearby, a basketmaker loaded a market stall with wares. Maixenor continued down the path. Nearby, a bleacher hawked fine imported goods from Ere.
+
+Eventually, Maixenor arrived at the town square, where he found a beer seller. Maixenor approached him, hoping for some advice.
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+A executioner gazed at him from an open window. The man eyed him thoughtfully, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is past the monastery. Look for the large hanging sign that reads "Bitxikiandros Fine Supplies". You'll find Bitxikiandros, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Hippus gone as much as anybody."
+"Euthremismas is the best in town. His shop is into the market and towards the church. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Euthremismas Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Alkmain hurried towards the armory. A taverner stood by a market stall, negotiating with the silkwoman. Nearby, a armorer ran from person to person, asking if they had seen Osbertus. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. Nearby, a oil merchant scuttled out of his way. The famulus sat by the side of the road with a pastrycook. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Bitxikiandros looked up from his work behind a counter at Alkmain.
+Euthremismas looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Bitxikiandros lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The sangoi."
+Euthremismas lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The giant ant."
 
-"Sometimes mistaken for vampires, sangois are evil nocturnal fey that haunt towns and graveyards, feeding on blood and hunting by the sounds of victims' hearts. They prefer humanoid blood but settle for animal blood when hungry." Bitxikiandros explained.
+"Giant ants are as industrious as their normal-sized kin. While their nests generally don't consist of thousands, their greatly increased size more than compensates." Euthremismas explained.
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+Maixenor slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"Sangoi stand 4 feet tall and weigh 35 to 40 pounds." Bitxikiandros explained.
+Euthremismas returned to the book of monsters on the desk and pointed at the terrifying illustration. "The statistics given above are for soldier antsóthe variety most commonly encountered. The following simple templates can be used to create variants of the standard soldier ant."
 
-"But my weapons may be too weak. Are there any other ways to defeat the sangoi?" Alkmain asked.
+"I could handle that. Tell me again, what makes the giant ant so bad?" Maixenor responded.
+
+"Worker (ñ1 CR) Worker ants do not have a poison sting attack or a grab special attack." Euthremismas explained.
+
+Maixenor slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Drone (+1 CR) Drones have the advanced simple template and a fly speed of 30 feet (average)." Euthremismas explained.
+
+"I could handle that. Tell me again, what makes the giant ant so bad?" Maixenor responded.
+
+"Queen (+2 CR) The queen of a nest is an immense, bloated creature. She gains the advanced and the giant simple templates, but drops her speed to 10 feet and loses her climb speed entirely." Euthremismas explained.
+
+Maixenor slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Euthremismas called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Take this flying blade. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+Sheathing his flying blade, Maixenor leaves Bark on a journey to find the giant ant. 
+
+As Maixenor walked along the path out of Bark, he turned to his left and saw something exaggerated.
+
+Contrasting against the nearby Proglacial lakes, the great Vaul Seamounts provided a refreshing view.Maybe they might make for a unafraid adventure for when Maixenor's current journey is over.
+
+As Maixenor walked along the path out of Bark, he turned to his left and saw something noble.
+
+Some distant Geos stood out against the horizon.It reminded Maixenor the noble of the town of Pel 5 he had visited long ago.
+
+The ever valorous Maixenor continued his long and tiring journey to find the giant ant.
+
+Not once did he regret his choice to not become a hayward.
+
+As Maixenor walked along the path out of Bark, he turned to his left and saw something valiant.
+
+The Pseudocraters of Wal Straner towered over the nearby Diatremes.Maybe they might make for a grand adventure for when Maixenor's current journey is over.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering beerbrewer making his way toward Bark. The stranger said to Maixenor
+
+"Take care crossing the Hill Channels! They are especially dangerous this time of year."
+
+Maixenor saw a unholy giant ant in the distance! He readied his sword. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+Maixenor lunged toward the giant ant, his flying blade ready to strike! That blow seemed like it could break some bones. Struck by the hefty blow, the giant ant needed a second to recover its footing. A valiant attack suddenly came from Maixenor, its intent to silence the shocking beast once and for all. The giant ant was struck by the blow! 
+
+The fearful monster took a swipe at Maixenor. The terrible giant ant failed to land its hit. Maixenor took a deep breath and swung toward the cruel giant ant. That blow seemed like it could break some bones. 
+
+Maixenor sneaked around to giant ant's blind spot. The giant ant eyed Maixenor with a dangerous glare. 
+
+The adventurer made a mighty swing at the giant ant with this flying blade. That blow seemed like it could break some bones. A powerful swing came from the giant ant with very deadly intent. The grand Maixenor blocks the strike with his flying blade. The flying blade of Maixenor was raised high only to be brought down onto the giant ant moments later. The giant ant took a glancing blow. 
+
+A undaunted attack suddenly came from Maixenor, its intent to silence the revolting beast once and for all. Although our hero's hit landed, giant ant is mostly unphased
+
+Maixenor's last strike hit the giant ant directly in the heary. A fatal blow.
+
+Maixenor says
+
+"That didn't seem so hard, I don't know what Euthremismas was talking about."
+
+## <a name="chapter4"></a> Chapter 4: Newton Grew Whetond and the Nulmind
+
+Maixenor followed a dirt path into the village of Newton Grew Whetond. While the chapman ran from person to person, asking if they had seen Andros, a lady slowly carried supplies. While the chaplain slept in an alleyway, a trapper threw punches. Maixenor continued down the path. The sea captain rushed by quickly, ignoring him with a cannoneer.
+
+Eventually, Maixenor arrived at the town square, where he found a embroiderer. The man, eying his foreboding cloak, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+A belter sat by the side of the road. The man eyed him thoughtfully, then finally responded.
+
+"Our village of Newton Grew Whetond will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Deenes is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Deenes Fine Supplies". Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Maixenor hurried towards the armory. While the lady slept in an alleyway, a sea captain finished an apple and tossed the core aside. The glazier stood by a market stall, negotiating with the lensgrinder with a chicken butcher. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the howler, or perhaps even the putrid ooze, but that's nothing compared to the nulmind we've got."
+
+Deenes returned to the book of monsters on the desk and pointed at the terrifying illustration. "The tremendously dangerous nulmind is a fungal creature believed by many sages to have extraterrestrial origins. It is drawn to areas of innate magical power or populated by spellcasters, feasting off the magic in the area while slowly wearing down the inhabitants' mental faculties with mind-numbing thoughts and images. Users of psychic magic prove to be favored targets, as their mental energy is especially empowering to the fungi. A creature that succumbs to a nulmind's mind drain aura might eventually become enslaved to the fungus's alien will, the nulmind using such unfortunate creatures to draw in further prey. A creature enslaved in this way is incapable of seeing to even its own basic needs, becoming a simple extension of the nulmind's need to feed."
+
+Maixenor slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Left unchecked, a nulmind rapidly depletes the local wildlife, as its mindless servants starve to death. Animal life provides very little sustenance for the creature, and a nulmind inevitably works to find richer sources of intelligence and spell power to devour. This sometimes leads the fungus to communities on the border of its forest or to gravitate toward woodland-bound druidic circles. Because of this, druid enclaves often actively hunt and destroy these creatures before they can wreak havoc on the local ecosystem. Despite the fungi's plantlike nature, most druidic communities view nulminds as anathema to the natural order." Deenes explained.
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+Deenes returned to the book of monsters on the desk and pointed at the terrifying illustration. "Nulminds are fortunately rare, with no documented culture or organization. These creatures rarely work well in concert, as each is ultimately selfish and sees only to its own needs, draining even its fellows without hesitation. Despite their insatiability, nulminds seem to lack a taste for the mental energy of fey creatures. While the fungi still defend themselves against fey creatures, they go out of their way to avoid areas where such creatures live."
+
+"I could handle that. Tell me again, what makes the nulmind so bad?" Maixenor responded.
+
+"A nulmind moves by compressing and shifting its body, creeping slowly like a caterpillar. A nulmind is about 3 feet long and weighs 50 pounds." Deenes explained.
+
+Maixenor slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "That's all I can tell you."
 
-Alkmain saw a scary sangoi in the distance! Our hero fixed his gaze on the nasty sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Deenes called out
 
-The sangoi struck with its bite! He blocks the strike with his sword. Alkmain lunged toward the sangoi, his sword ready to strike! The sangoi took a glancing blow. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the nulmind." 
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! The shattering blow from the classic Alkmain rumbled through the ground. 
+"Take this totem spear. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! The offensive sangoi failed to land its hit. 
+Sheathing his totem spear, Maixenor leaves Newton Grew Whetond on a journey to find the nulmind. 
 
-The sangoi struck with its bite! The bold Alkmain jumps out of the way. he stumbles to his knee, gasping for breath. The sangoi leans low, ready to strike with its might. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-He sneaked around to sangoi's blind spot. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The tall standing Maixenor met a wandering mailer making his way toward Newton Grew Whetond. The stranger said to Maixenor
 
-The sangoi struck with its bite! He jumps out of the way. Alkmain lunged toward the sangoi, his sword ready to strike! The attack from Alkmain the inflated surely left a impression. 
+"The nulmind killed my brother. I would be heading back to end that grisly thing if only it hadn't taken my eye the first time I tried."
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+As Maixenor walked along the path out of Newton Grew Whetond, he turned to his right and saw something intrepid.
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! He jumps out of the way. 
+Some distant Rock shelters stood out against the horizon.It reminded our hero of the town of Nord he had visited long ago.
 
-The sangoi struck with its bite! He winces from the pain but continues fighting. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The ever gritty Maixenor continued his long and tiring journey to find the nulmind.
 
-The sangoi struck with its bite! He winces from the pain but continues fighting. The valiant Alkmain leaned on his sword to catch a moment's respite. He was worn out by the combat. The sangoi leans low, ready to strike with its might. 
+Not once did Maixenor regret his choice to not become a sailmaker.
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! The fierce blow from the monster narrowly misses he. 
+The ever noble Maixenor continued his long and tiring journey to find the nulmind.
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+Not once did he regret his choice to not become a pattenmaker.
 
-The adventurer pulls a rose bonbon potion from his pack and drinks it. He is reinvigorated. The sangoi struck with its bite! Alkmain stunbles backward, gasping for breath. 
+As Maixenor walked along the path out of Newton Grew Whetond, he turned to his right and saw something undaunted.
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! That blow seemed like it could break some bones. 
+He could barely make out some Beachs in the distance.It reminded he of the town of Choliatershey Circund he had visited long ago.
 
-The sangoi struck with its bite! The adventurer jumps out of the way. he stumbles to his knee, gasping for breath. The sangoi leans low, ready to strike with its might. 
+Maixenor saw a mean nulmind in the distance! Our hero fixed his gaze on the fairy sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
 
-The dauntless Alkmain pulls a orange peel potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the sangoi, his sword ready to strike! That blow seemed like it could break some bones. 
+Maixenor cleared his mind, preparing himself for the combat to come.The nulmind eyed Maixenor with a dangerous glare. 
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! He blocks the strike with his sword. 
+nulmind lunged toward Maixenor! He stunbles backward, gasping for breath. Maixenor stumbles to his knee, gasping for breath. The nulmind leans low, ready to strike with its might. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the unafraid sneaked around to sangoi's blind spot. 
+The adventurer sneaked around to nulmind's blind spot. Maixenor lunged toward the nulmind, his totem spear ready to strike! Maixenor's strike glanced off of the nulmind's hide. 
 
-The sangoi struck with its bite! Our hero blocks the strike with his sword. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The nulmind leans low, ready to strike with its might. nulmind lunged toward Maixenor! He jumps out of the way. 
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+nulmind lunged toward Maixenor! The horrid nulmind failed to land its hit. he stumbles to his knee, gasping for breath. The nulmind eyed Maixenor with a dangerous glare. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The monster was stunned by the attack. Alkmain sneaked around to sangoi's blind spot. 
+He made a mighty swing at the nulmind with this totem spear. The noble Maixenor landed a massive hit on nulmind! Struck by the hefty blow, the nulmind needed a second to recover its footing. He sneaked around to nulmind's blind spot. 
 
-The sangoi struck with its bite! The intrepid Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The sangoi leans low, ready to strike with its might. 
+He pulled a seal brown potion from his pack and drinks it. He is reinvigorated. nulmind lunged toward Maixenor! Maixenor reeled back in pain. 
 
-The sangoi leans low, ready to strike with its might. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The totem spear of Maixenor was raised high only to be brought down onto the nulmind moments later. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. A daring attack suddenly came from Maixenor, its intent to silence the evil beast once and for all. Maixenor's strike glanced off of the nulmind's hide. 
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! He jumps out of the way. 
+Maixenor lunged toward the nulmind, his totem spear ready to strike! Maixenor's strike glanced off of the nulmind's hide. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the cruel nulmind. That blow seemed like it could break some bones. 
 
-The sangoi struck with its bite! The detestable sangoi failed to land its hit. The exhilarating combat made the hours seem like seconds. The sangoi struck with its bite! He jumps out of the way. 
+He pulled a medium blue potion from his pack and drinks it. He is reinvigorated. The totem spear of Maixenor was raised high only to be brought down onto the nulmind moments later. The slippery nulmind evaded Maixenor's hit. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+A courageous attack suddenly came from Maixenor, its intent to silence the awful beast once and for all. The nulmind took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to nulmind's blind spot. 
 
-He pulls a light red ochre potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The nulmind eyed Maixenor with a dangerous glare. Maixenor took a deep breath and swung toward the abominable nulmind. The attack from Maixenor the impavid surely left a impression. 
 
-He sneaked around to sangoi's blind spot. The sangoi struck with its bite! Alkmain the stouthearted jumps out of the way. 
+nulmind lunged toward Maixenor! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. nulmind lunged toward Maixenor! He jumps out of the way. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+nulmind lunged toward Maixenor! He stunbles backward, gasping for breath. He leaned on his totem spear to catch a moment's respite. The valorous Maixenor was worn out by the combat. nulmind lunged toward Maixenor! The adventurer jumps out of the way. 
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! He stunbles backward, gasping for breath. 
+nulmind lunged toward Maixenor! Our hero jumps out of the way. The inflated Maixenor leaned on his totem spear to catch a moment's respite. Our hero was worn out by the combat. The nulmind leans low, ready to strike with its might. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The monster was stunned by the attack. The adventurer pulls a pastel pink potion from his pack and drinks it. He is reinvigorated. 
+Maixenor lunged toward the nulmind, his totem spear ready to strike! The slippery nulmind evaded Maixenor's hit. nulmind lunged toward Maixenor! He blocks the strike with his totem spear. A dauntless attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. The nulmind was struck by the blow! 
 
-The adventurer pulls a pastel purple potion from his pack and drinks it. He is reinvigorated. The sangoi leans low, ready to strike with its might. 
+A valiant attack suddenly came from Maixenor, its intent to silence the disagreeable beast once and for all. The nulmind was staggered by the immense force. nulmind lunged toward Maixenor! The fierce blow from the monster narrowly misses the adventurer. The totem spear of Maixenor was raised high only to be brought down onto the nulmind moments later. The attack from Maixenor surely left a impression. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! Although he's hit landed, sangoi is mostly unphasedThe monster was stunned by the attack. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+The nulmind eyed Maixenor with a dangerous glare. nulmind lunged toward Maixenor! Maixenor the bigger than life blocks the strike with his totem spear. 
 
-He pulls a apricot potion from his pack and drinks it. He is reinvigorated. The sangoi struck with its bite! He stunbles backward, gasping for breath. 
+Maixenor the impavid made a mighty swing at the nulmind with this totem spear. The slippery nulmind evaded Maixenor's hit. Struck by the hefty blow, the nulmind needed a second to recover its footing. Maixenor the bold made a mighty swing at the nulmind with this totem spear. The nulmind was struck by the blow! 
 
-The sangoi struck with its bite! Our hero jumps out of the way. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The sangoi struck with its bite! Alkmain reeled back in pain. 
+The nulmind leans low, ready to strike with its might. The totem spear of Maixenor was raised high only to be brought down onto the nulmind moments later. Maixenor's strike glanced off of the nulmind's hide. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The sangoi struck with its bite! The shameful sangoi failed to land its hit. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+Maixenor the gritty held his totem spear tightly, ready to block any attack. The nulmind eyed Maixenor with a dangerous glare. 
 
-The sangoi struck with its bite! He jumps out of the way. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+nulmind lunged toward Maixenor! The noble Maixenor blocks the strike with his totem spear. He leaned on his totem spear to catch a moment's respite. The adventurer was worn out by the combat. nulmind lunged toward Maixenor! The fierce blow from the monster narrowly misses our hero. 
 
-He pulls a violet ryb potion from his pack and drinks it. He is reinvigorated. The sangoi struck with its bite! He winces from the pain but continues fighting. 
+nulmind lunged toward Maixenor! Maixenor reeled back in pain. The exhilarating combat made the hours seem like seconds. nulmind lunged toward Maixenor! Maixenor reeled back in pain. 
 
-Alkmain the fire-eating sneaked around to sangoi's blind spot. The sangoi leans low, ready to strike with its might. 
+nulmind lunged toward Maixenor! The fierce blow from the monster narrowly misses he. A gutty attack suddenly came from Maixenor, its intent to silence the frightful beast once and for all. Maixenor's strike glanced off of the nulmind's hide. 
 
-Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the sangoi, his sword ready to strike! The attack from he surely left a impression. 
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor lunged toward the nulmind, his totem spear ready to strike! The adventurer landed a massive hit on nulmind! 
 
-The sangoi struck with its bite! The frightful sangoi failed to land its hit. Alkmain lunged toward the sangoi, his sword ready to strike! That blow seemed like it could break some bones. 
+The nulmind leans low, ready to strike with its might. Maixenor the unafraid made a mighty swing at the nulmind with this totem spear. The shattering blow from he rumbled through the ground. 
 
-The sangoi leans low, ready to strike with its might. The sangoi struck with its bite! He jumps out of the way. 
+Maixenor lunged toward the nulmind, his totem spear ready to strike! The eerie nulmind was too quick to be hit. The monster was stunned by the attack. The adventurer sneaked around to nulmind's blind spot. 
 
-Alkmain the grand sneaked around to sangoi's blind spot. Alkmain lunged toward the sangoi, his sword ready to strike! The slippery sangoi evaded Alkmain's hit. 
+A impavid attack suddenly came from Maixenor, its intent to silence the abhorrent beast once and for all. The shattering blow from Maixenor rumbled through the ground. The monster was stunned by the attack. Maixenor lunged toward the nulmind, his totem spear ready to strike! That blow seemed like it could break some bones. 
 
-He was victorious! The sangoi menaced for no longer! 
+nulmind lunged toward Maixenor! The abominable nulmind failed to land its hit. He made a mighty swing at the nulmind with this totem spear. The nulmind was staggered by the immense force. 
 
-## <a name="chapter6"></a> Chapter 6: Croth Woot and the Rishi Manu
+The gutsy Maixenor pulled a teal green potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the nulmind, his totem spear ready to strike! The slippery nulmind evaded Maixenor's hit. 
 
-Alkmain followed a dirt path into the village of Croth Woot. The doctor bit into an apple with a chaplain. A nakerer talked excitedly with what appeared to be a sailor. Alkmain continued down the path. While the singer slept in an alleyway, a spurrer bit into an apple.
+The totem spear of Maixenor was raised high only to be brought down onto the nulmind moments later. The nulmind took a glancing blow. 
 
-Eventually, Alkmain arrived at the town square, where he found a mailmaker. Alkmain approached him, hoping for some advice.
+Covered with wounds and bruises, the ghastly nulmind fell over for the last time.
 
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+Maixenor says
 
-Two harpers finished an apple and tossed the core aside. He still looked suspicious, but eventually responded.
+"That didn't seem so hard, I don't know what Deenes was talking about."
 
-"Our village of Suthwatfortlaigh Barney will gladly help you on your quest. What do you need?"
+## <a name="chapter5"></a> Chapter 5: Gil and the Bat
+
+Maixenor followed a dirt path into the village of Gil. While the pavior talked excitedly with what appeared to be a beerbrewer, a shingler sat by the side of the road. Nearby, a curate talked excitedly with what appeared to be a wheelwright. Maixenor continued down the path. Nearby, a oilmaker loaded a market stall with wares.
+
+Eventually, Maixenor arrived at the town square, where he found a parchmenter. The man, eying his well-made boots, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+The saddler loaded a market stall with wares with a butler. The man eyed him thoughtfullyHe finally responded.
+
+"Our village of Gil will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Berna is past the barn. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Euryleodberthus is down the street to the monastery and right. You'll see a cattle barn. It's just a bit further down the street. It's just to the right. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. Two bowmans scuttled out of his way. Two bonecarvers hawked fine imported goods from Ayleigh Hillouth. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. The salter eyed him suspiciously with a beguine. While the famulus loaded a market stall with wares, a shipchandler threw punches. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Berna grabbed a dusty book from the shelf and flipped through it. Pictures of ghuls and chernobues flew by. Eventually he settled on a page and started to explain.
+Euryleodberthus grabbed a dusty book from the shelf and flipped through it. Pictures of adamantine golems and contemplatives flew by. Eventually he settled on a page and started to explain.
 
-"Rishi manus are the shepherds of entire worlds, watching for shifts in the collective consciousness and gently nudging specific individuals of significant power or influence toward paths of enlightenment that will affect as many others as possible." Berna explained.
+Euryleodberthus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Most bats are insectivores or fruit-eaters, but at least one species drinks blood."
 
-Alkmain slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+"But my weapons may be too weak. Are there any other ways to defeat the bat?" Maixenor asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Euryleodberthus called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Take this cutlass. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+Sheathing his cutlass, Maixenor leaves Gil on a journey to find the bat. 
+
+As Maixenor walked along the path out of Gil, he turned to his right and saw something stouthearted.
+
+Some distant Summits stood out against the horizon.It reminded he of the town of Tufne he had visited long ago.
+
+As Maixenor walked along the path out of Gil, he turned to his left and saw something gutsy.
+
+The Volcanic plateaus of Harwis towered over the nearby Lava plains.Maybe they might make for a fire-eating adventure for when Maixenor's current journey is over.
+
+The ever fearless Maixenor continued his long and tiring journey to find the bat.
+
+Not once did the adventurer regret his choice to not become a thresher.
+
+The ever valiant Maixenor continued his long and tiring journey to find the bat.
+
+Not once did he regret his choice to not become a vintner.
+
+As Maixenor walked along the path out of Gil, he turned to his left and saw something lion-hearted.
+
+Some distant Benchs stood out against the horizon.It reminded Maixenor the elevated of the town of Ston he had visited long ago.
+
+Maixenor saw a appalling bat in the distance! Our hero readied his sword. He approched the bat cautiously, careful not to rush to an untimely death. 
+
+The bat leans low, ready to strike with its might. The bat struck with its bite! He jumps out of the way. 
+
+The bat eyed Maixenor with a dangerous glare. Maixenor took a deep breath and swung toward the abominable bat. Although our hero's hit landed, bat is mostly unphased
+
+Maixenor cleared his mind, preparing himself for the combat to come.The bat eyed Maixenor with a dangerous glare. 
+
+The bat struck with its bite! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. A powerful swing came from the bat with very deadly intent. The ruinous bat failed to land its hit. 
+
+A inflated attack suddenly came from Maixenor, its intent to silence the heinous beast once and for all. A sharp crack was heard as the strike left its mark. 
+
+After a seemingly eternal amount of combat, a victor emerged. The bat was slain.
+
+The citizens of Gil could sleep soundly at night. The adventurer had vanquished their greatest nightmare.
+
+## <a name="chapter6"></a> Chapter 6: Grave and the Great White Whale
+
+Maixenor followed a dirt path into the village of Grave. The canaller stood by a market stall, negotiating with the scholar with a tapestrymaker. A carpenter rushed by quickly, ignoring him. Maixenor continued down the path. A bellmaker talked excitedly with what appeared to be a founder.
+
+Eventually, Maixenor arrived at the town square, where he found a buttonmaker. The man, eying his determined look, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
+
+A herald rushed by quickly, ignoring him. The man quietly reminised about the past, then finally responded.
+
+"Our village of Grave will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Gaut is the best in town. His shop is down the street to the barn and left. You'll see a cattle barn. It's just a bit further down the street. It's just to the left. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Kebad gone as much as anybody."
+
+Maixenor hurried towards the armory. A bather ran from person to person, asking if they had seen Lovechthaon. Two butlers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Gaut grabbed a dusty book from the shelf and flipped through it. Pictures of ratlings and spider swarms flew by. Eventually he settled on a page and started to explain.
+
+Gaut returned to the book of monsters on the desk and pointed at the terrifying illustration. "Legendary in size and temper, great white whales are far more aggressive than their smaller kin."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Gaut called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the great white whale." 
+
+"Forged by the finest dwarven smiths in the mountains of Leigh, this dwarven maulaxe is the finest display of craftsmanship for miles around."
+
+Sheathing his dwarven maulaxe, Maixenor leaves Grave on a journey to find the great white whale. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor the courageous met a wandering cartwright making his way toward Grave. The stranger said to Maixenor
+
+"You must be on your way to kill the great white whale. I wish you the best of luck!"
+
+The ever exaggerated Maixenor continued his long and tiring journey to find the great white whale.
+
+Not once did the adventurer regret his choice to not become a wine seller.
+
+As Maixenor walked along the path out of Grave, he turned to his right and saw something classic.
+
+The gutty Maixenor could barely make out some Sinkholes in the distance.It reminded he of the town of Live he had visited long ago.
+
+As Maixenor walked along the path out of Grave, he turned to his right and saw something high-flown.
+
+Some distant Malpa√≠ss stood out against the horizon.It reminded Maixenor of the town of Gobbich he had visited long ago.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering pinmaker making his way toward Grave. The stranger said to Maixenor
+
+"I knew a gutsy hero like you. He met his end far too early. I hope that you are better prepared for your future."
+
+Maixenor saw a abominable great white whale in the distance! Our hero fixed his gaze on the hideous sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+The great white whale struck with its bite! He jumps out of the way. Maixenor took a deep breath and swung toward the eerie great white whale. Maixenor's strike glanced off of the great white whale's hide. 
+
+Our hero held his dwarven maulaxe tightly, ready to block any attack. A powerful swing came from the great white whale with very deadly intent. Maixenor the fire-eating blocks the strike with his dwarven maulaxe. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! That blow seemed like it could break some bones. Struck by the hefty blow, the great white whale needed a second to recover its footing. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The horrid great white whale was too quick to be hit. 
+
+A powerful swing came from the great white whale with very deadly intent. He jumps out of the way. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The slippery great white whale evaded Maixenor's hit. 
+
+A powerful swing came from the great white whale with very deadly intent. Maixenor reeled back in pain. Our hero made a mighty swing at the great white whale with this dwarven maulaxe. The great white whale was struck by the blow! 
+
+The great white whale leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the evil great white whale. That blow seemed like it could break some bones. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! That blow seemed like it could break some bones. The grim monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses Maixenor. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. Although he's hit landed, great white whale is mostly unphased
+
+Maixenor cleared his mind, preparing himself for the combat to come.The great white whale eyed Maixenor with a dangerous glare. 
+
+Maixenor the inflated pulled a tumbleweed potion from his pack and drinks it. He is reinvigorated. The great white whale struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+The great white whale struck with its bite! He blocks the strike with his dwarven maulaxe. he stumbles to his knee, gasping for breath. A powerful swing came from the great white whale with very deadly intent. He stunbles backward, gasping for breath. 
+
+The great white whale struck with its bite! Maixenor reeled back in pain. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The great white whale took a glancing blow. 
+
+The great white whale struck with its bite! The fairy great white whale failed to land its hit. he stumbles to his knee, gasping for breath. The great white whale eyed Maixenor with a dangerous glare. 
+
+He sneaked around to great white whale's blind spot. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! That blow seemed like it could break some bones. 
+
+The great white whale leans low, ready to strike with its might. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The attack from he surely left a impression. 
+
+Maixenor took a deep breath and swung toward the terrible great white whale. Maixenor's strike glanced off of the great white whale's hide. Struck by the hefty blow, the great white whale needed a second to recover its footing. He pulled a fuzzy wuzzy potion from his pack and drinks it. He is reinvigorated. 
+
+Maixenor the fire-eating sneaked around to great white whale's blind spot. The great white whale eyed Maixenor with a dangerous glare. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The slippery great white whale evaded Maixenor's hit. Struck by the hefty blow, the great white whale needed a second to recover its footing. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The great white whale was staggered by the immense force. 
+
+The great white whale eyed Maixenor with a dangerous glare. The great white whale struck with its bite! The adventurer jumps out of the way. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. Maixenor's strike glanced off of the great white whale's hide. The smelly monster took a swipe at Maixenor. Our hero winces from the pain but continues fighting. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The dreadful great white whale was too quick to be hit. 
+
+He made a mighty swing at the great white whale with this dwarven maulaxe. The great white whale took a glancing blow. The ungodly monster took a swipe at Maixenor. The fairy great white whale failed to land its hit. Maixenor the impavid made a mighty swing at the great white whale with this dwarven maulaxe. That blow seemed like it could break some bones. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The slippery great white whale evaded Maixenor's hit. The great white whale struck with its bite! He jumps out of the way. Maixenor took a deep breath and swung toward the repellent great white whale. That blow seemed like it could break some bones. 
+
+Our hero pulled a patriarch potion from his pack and drinks it. He is reinvigorated. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. Maixenor's strike glanced off of the great white whale's hide. 
+
+The great white whale struck with its bite! The fierce blow from the monster narrowly misses he. A classic attack suddenly came from Maixenor, its intent to silence the repellent beast once and for all. A sharp crack was heard as the strike left its mark. 
+
+A powerful swing came from the great white whale with very deadly intent. Maixenor reeled back in pain. He made a mighty swing at the great white whale with this dwarven maulaxe. Maixenor's strike glanced off of the great white whale's hide. 
+
+He made a mighty swing at the great white whale with this dwarven maulaxe. The slippery great white whale evaded Maixenor's hit. The scandalous monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses Maixenor the grandiose. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. Maixenor's strike glanced off of the great white whale's hide. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The great white whale took a glancing blow. The disagreeable monster took a swipe at Maixenor. Maixenor stunbles backward, gasping for breath. He made a mighty swing at the great white whale with this dwarven maulaxe. A sharp crack was heard as the strike left its mark. 
+
+He held his dwarven maulaxe tightly, ready to block any attack. Maixenor took a deep breath and swung toward the obnoxious great white whale. That blow seemed like it could break some bones. 
+
+A powerful swing came from the great white whale with very deadly intent. The ruinous great white whale failed to land its hit. The exhilarating combat made the hours seem like seconds. The great white whale leans low, ready to strike with its might. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.Our hero made a mighty swing at the great white whale with this dwarven maulaxe. The great white whale took a glancing blow. 
+
+The great white whale eyed Maixenor with a dangerous glare. The mean monster took a swipe at Maixenor. The adventurer stunbles backward, gasping for breath. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! Maixenor's strike glanced off of the great white whale's hide. The monster was stunned by the attack. A inflated attack suddenly came from Maixenor, its intent to silence the offensive beast once and for all. The great white whale took a glancing blow. 
+
+The great white whale eyed Maixenor with a dangerous glare. Maixenor took a deep breath and swung toward the scary great white whale. The slippery great white whale evaded Maixenor's hit. 
+
+The great white whale struck with its bite! He winces from the pain but continues fighting. He leaned on his dwarven maulaxe to catch a moment's respite. He was worn out by the combat. The great white whale eyed Maixenor with a dangerous glare. 
+
+Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The fairy great white whale was too quick to be hit. The monster was stunned by the attack. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The great white whale took a glancing blow. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The disgusting great white whale was too quick to be hit. A powerful swing came from the great white whale with very deadly intent. The fairy great white whale failed to land its hit. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! The great white whale was struck by the blow! 
+
+The great white whale leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the awful great white whale. The shameful great white whale was too quick to be hit. 
+
+The great white whale eyed Maixenor with a dangerous glare. A powerful swing came from the great white whale with very deadly intent. The grim great white whale failed to land its hit. 
+
+The adventurer held his dwarven maulaxe tightly, ready to block any attack. The great white whale struck with its bite! He blocks the strike with his dwarven maulaxe. 
+
+He held his dwarven maulaxe tightly, ready to block any attack. The horrid monster took a swipe at Maixenor. He jumps out of the way. 
+
+The detestable monster took a swipe at Maixenor. The detestable great white whale failed to land its hit. The exhilarating combat made the hours seem like seconds. The great white whale eyed Maixenor with a dangerous glare. 
+
+Maixenor took a deep breath and swung toward the ruinous great white whale. Maixenor's strike glanced off of the great white whale's hide. A powerful swing came from the great white whale with very deadly intent. The execrable great white whale failed to land its hit. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. That blow seemed like it could break some bones. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the great white whale with very deadly intent. Maixenor blocks the strike with his dwarven maulaxe. 
+
+The dauntless Maixenor held his dwarven maulaxe tightly, ready to block any attack. The great white whale leans low, ready to strike with its might. 
+
+A powerful swing came from the great white whale with very deadly intent. Maixenor reeled back in pain. he stumbles to his knee, gasping for breath. A powerful swing came from the great white whale with very deadly intent. Maixenor blocks the strike with his dwarven maulaxe. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The great white whale eyed Maixenor with a dangerous glare. 
+
+The great white whale eyed Maixenor with a dangerous glare. A powerful swing came from the great white whale with very deadly intent. The evil great white whale failed to land its hit. 
+
+A fire-eating attack suddenly came from Maixenor, its intent to silence the appalling beast once and for all. The attack from he surely left a impression. A powerful swing came from the great white whale with very deadly intent. He stunbles backward, gasping for breath. A high-flown attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. That blow seemed like it could break some bones. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. Although the adventurer's hit landed, great white whale is mostly unphasedThe monster was stunned by the attack. He held his dwarven maulaxe tightly, ready to block any attack. 
+
+The great white whale leans low, ready to strike with its might. The great white whale struck with its bite! He stunbles backward, gasping for breath. 
+
+Maixenor the gallant made a mighty swing at the great white whale with this dwarven maulaxe. The attack from he surely left a impression. The monster was stunned by the attack. Our hero held his dwarven maulaxe tightly, ready to block any attack. 
+
+The great white whale eyed Maixenor with a dangerous glare. The great white whale struck with its bite! The epic Maixenor stunbles backward, gasping for breath. 
+
+The great white whale struck with its bite! Our hero blocks the strike with his dwarven maulaxe. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! A sharp crack was heard as the strike left its mark. 
+
+The mean monster took a swipe at Maixenor. Maixenor reeled back in pain. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The great white whale took a glancing blow. 
+
+The appalling monster took a swipe at Maixenor. The adventurer jumps out of the way. Maixenor took a deep breath and swung toward the revolting great white whale. The great white whale took a glancing blow. 
+
+A exaggerated attack suddenly came from Maixenor, its intent to silence the mean beast once and for all. Although he's hit landed, great white whale is mostly unphasedThe monster was stunned by the attack. He sneaked around to great white whale's blind spot. 
+
+A lion-hearted attack suddenly came from Maixenor, its intent to silence the detestable beast once and for all. The smelly great white whale was too quick to be hit. Struck by the hefty blow, the great white whale needed a second to recover its footing. A grand attack suddenly came from Maixenor, its intent to silence the scandalous beast once and for all. The shattering blow from he rumbled through the ground. 
+
+Maixenor held his dwarven maulaxe tightly, ready to block any attack. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! Maixenor's strike glanced off of the great white whale's hide. 
+
+The adventurer made a mighty swing at the great white whale with this dwarven maulaxe. Maixenor's strike glanced off of the great white whale's hide. The evil monster took a swipe at Maixenor. Maixenor reeled back in pain. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! That blow seemed like it could break some bones. 
+
+A intrepid attack suddenly came from Maixenor, its intent to silence the cruel beast once and for all. The slippery great white whale evaded Maixenor's hit. The monster was stunned by the attack. A grand attack suddenly came from Maixenor, its intent to silence the abominable beast once and for all. The shocking great white whale was too quick to be hit. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The revolting great white whale was too quick to be hit. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the repellent great white whale. The great white whale was struck by the blow! 
+
+Our hero pulled a shadow potion from his pack and drinks it. He is reinvigorated. The great white whale leans low, ready to strike with its might. 
+
+Maixenor pulled a flavescent potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the great white whale, his dwarven maulaxe ready to strike! Maixenor's strike glanced off of the great white whale's hide. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The shattering blow from he rumbled through the ground. The monster was stunned by the attack. The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The great white whale took a glancing blow. 
+
+He made a mighty swing at the great white whale with this dwarven maulaxe. The beastly great white whale was too quick to be hit. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+The grim monster took a swipe at Maixenor. He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The great white whale eyed Maixenor with a dangerous glare. 
+
+The dwarven maulaxe of Maixenor was raised high only to be brought down onto the great white whale moments later. The great white whale was struck by the blow! 
+
+Maixenor's last strike hit the great white whale directly in the heary. A fatal blow.
+
+Our hero was victorious! The great white whale menaced for no longer! 
+
+## <a name="chapter7"></a> Chapter 7: Ruisley and the Bunyip
+
+Maixenor followed a dirt path into the village of Ruisley. While the butler finished an apple and tossed the core aside, a tinker slept in an alleyway. Two theologians talked excitedly with what appeared to be a mailmaker. Maixenor continued down the path. A pavior slept in an alleyway.
+
+Eventually, Maixenor arrived at the town square, where he found a brewer. The man, eying his foreboding cloak, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the carver rushed by quickly, ignoring him, a currier hawked fine imported goods from Rod Bre. The man eyed him thoughtfully, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Arnouthyrsos is the best in town. His shop is past the stables. Look for the large hanging sign that reads "Arnouthyrsos Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. Two braziers scuttled out of his way. The carver gazed at him from an open window with a sailmaker. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Arnouthyrsos looked up from his work behind a counter at Maixenor.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Arnouthyrsos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The bunyip."
+
+The armorer sighed and continued. "The bunyip is a fierce and avid hunter, possessing a primal ruthlessness that seems almost evil in its rapacity. A bunyip typically inhabits large freshwater inlets or sheltered coastal sea caves where food is plentifulóthe bunyip is equally at home in fresh or salt water. It prefers feeding on animals of Small size or larger, though it isn't averse to eating humanoids when presented the opportunity. Bunyips are quite territorial, and readily attack when intruders threaten their hunting grounds. Bunyips mate annually, during the late spring. During this period, bunyips become even more aggressive. After mating, couples split, with the female wandering off to find a place to birth a small litter of four to six pups. Females watch their pups for a few days, until they become independent enough for the mothers to move on."
+
+"I could handle that. Tell me again, what makes the bunyip so bad?" Maixenor responded.
+
+The armorer sighed and continued. "Reports of bunyip sightings come from every end of the map. Though the accuracy of all such reports remains doubtful, enough reliable accounts exist to confirm their widespread adaptability. The species thrives in numerous ecological climes, from frigid polar fjords to idyllic tropical lagoons. The bunyip is not a deep-sea creature, and even avoids larger freshwater lakes, as it prefers to lurk near shorelines where its favorite food is more common."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"While bunyips vary in appearance, all possess similar basic physical structures. The bunyip's head exhibits strong seal-like features, save for its shark-like jaws. Its upper torso is thick and muscular, with long, fin-like limbs. Some species even have a single, shark-like dorsal fin. The remaining portion of the body extends into a long tail. Those with fur usually only grow a short coat on the upper body in shades of pale gray, brown, or black. " Arnouthyrsos explained.
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
 "That's all I can tell you."
 
-Alkmain saw a disagreeable rishi manu in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Arnouthyrsos called out
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was staggered by the immense force. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the bunyip." 
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The rishi manu struck with its rishi scepter! Our hero jumps out of the way. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+"Forged by the finest dwarven smiths in the mountains of Strairch, this flying blade is the finest display of craftsmanship for miles around."
 
-The rishi manu leans low, ready to strike with its might. Alkmain lunged toward the rishi manu, his sword ready to strike! He landed a massive hit on rishi manu! 
+Sheathing his flying blade, Maixenor leaves Ruisley on a journey to find the bunyip. 
 
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! He stunbles backward, gasping for breath. 
+As Maixenor walked along the path out of Ruisley, he turned to his left and saw something gutsy.
 
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! The courageous Alkmain winces from the pain but continues fighting. 
+Some distant Oceanic trenchs stood out against the horizon.Maybe they might make for a stouthearted adventure for when Maixenor's current journey is over.
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain sneaked around to rishi manu's blind spot. 
+As Maixenor walked along the path out of Ruisley, he turned to his right and saw something high-flown.
 
-The rishi manu struck with its rishi scepter! Alkmain the grandiose blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The rishi manu leans low, ready to strike with its might. 
+Contrasting against the nearby Pediments, the great Will Parallel Roads of Glen Roys provided a refreshing view.Maybe they might make for a exaggerated adventure for when Maixenor's current journey is over.
 
-The rishi manu struck with its rishi scepter! The gruesome rishi manu failed to land its hit. The exhilarating combat made the hours seem like seconds. The rishi manu struck with its rishi scepter! Alkmain winces from the pain but continues fighting. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-Our hero sneaked around to rishi manu's blind spot. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+Maixenor met a wandering nailmaker making his way toward Ruisley. The stranger said to Maixenor
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+"You must be on your way to kill the bunyip. I wish you the best of luck!"
 
-The rishi manu struck with its rishi scepter! Our hero blocks the strike with his sword. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+The ever fire-eating Maixenor continued his long and tiring journey to find the bunyip.
 
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses the adventurer. 
+Not once did our hero regret his choice to not become a scabbard maker.
 
-The rishi manu struck with its rishi scepter! The mean rishi manu failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. Alkmain the lion-hearted was worn out by the combat. The rishi manu leans low, ready to strike with its might. 
+As Maixenor walked along the path out of Ruisley, he turned to his right and saw something noble.
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to rishi manu's blind spot. 
+He could barely make out some Marshs in the distance.It reminded the adventurer of the town of Kendington he had visited long ago.
 
-The rishi manu leans low, ready to strike with its might. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu took a glancing blow. 
+Maixenor saw a abhorrent bunyip in the distance! Our hero fixed his gaze on the abominable sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
 
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! The adventurer stunbles backward, gasping for breath. 
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor took a deep breath and swung toward the eerie bunyip. Maixenor's strike glanced off of the bunyip's hide. 
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The rishi manu struck with its rishi scepter! The mythological Alkmain blocks the strike with his sword. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was struck by the blow! 
+Maixenor took a deep breath and swung toward the horrendous bunyip. The shattering blow from Maixenor rumbled through the ground. The terrifying monster took a swipe at Maixenor. The unholy bunyip failed to land its hit. The dauntless Maixenor made a mighty swing at the bunyip with this flying blade. The bunyip took a glancing blow. 
 
-The rishi manu struck with its rishi scepter! The lurid rishi manu failed to land its hit. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+The adventurer pulled a forest green web potion from his pack and drinks it. He is reinvigorated. The bunyip struck with its bite! He jumps out of the way. 
 
-The adventurer sneaked around to rishi manu's blind spot. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+Our hero made a mighty swing at the bunyip with this flying blade. The disgusting bunyip was too quick to be hit. The monster was stunned by the attack. Maixenor lunged toward the bunyip, his flying blade ready to strike! That blow seemed like it could break some bones. 
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. He pulls a light pastel purple potion from his pack and drinks it. He is reinvigorated. 
+The bunyip eyed Maixenor with a dangerous glare. Maixenor lunged toward the bunyip, his flying blade ready to strike! The scary bunyip was too quick to be hit. 
 
-The rishi manu struck with its rishi scepter! Our hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The rishi manu struck with its rishi scepter! He blocks the strike with his sword. 
+The flying blade of Maixenor was raised high only to be brought down onto the bunyip moments later. The cruel bunyip was too quick to be hit. The monster was stunned by the attack. Maixenor lunged toward the bunyip, his flying blade ready to strike! The bunyip took a glancing blow. 
 
-He pulls a lawn green potion from his pack and drinks it. He is reinvigorated. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses Alkmain the elevated. 
+A powerful swing came from the bunyip with very deadly intent. Maixenor reeled back in pain. A courageous attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. The gallant Maixenor landed a massive hit on bunyip! 
 
-The rishi manu struck with its rishi scepter! Alkmain the intrepid jumps out of the way. the grandiose Alkmain stumbles to his knee, gasping for breath. The rishi manu struck with its rishi scepter! Alkmain jumps out of the way. 
+The flying blade of Maixenor was raised high only to be brought down onto the bunyip moments later. Although he's hit landed, bunyip is mostly unphasedA powerful swing came from the bunyip with very deadly intent. He stunbles backward, gasping for breath. The flying blade of Maixenor was raised high only to be brought down onto the bunyip moments later. A sharp crack was heard as the strike left its mark. 
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The rishi manu struck with its rishi scepter! He stunbles backward, gasping for breath. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+A powerful swing came from the bunyip with very deadly intent. Our hero blocks the strike with his flying blade. A inflated attack suddenly came from Maixenor, its intent to silence the scary beast once and for all. The abominable bunyip was too quick to be hit. 
 
-The rishi manu struck with its rishi scepter! Alkmain reeled back in pain. The adventurer leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses the noble Alkmain. 
+Maixenor lunged toward the bunyip, his flying blade ready to strike! The bunyip was struck by the blow! 
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! Although the high-flown Alkmain's hit landed, rishi manu is mostly unphasedThe rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses Alkmain. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+After a seemingly eternal amount of combat, a victor emerged. The bunyip was slain.
 
-The rishi manu struck with its rishi scepter! The mean rishi manu failed to land its hit. The exhilarating combat made the hours seem like seconds. The rishi manu leans low, ready to strike with its might. 
+He was victorious! The bunyip menaced for no longer! 
 
-Alkmain pulls a deep saffron potion from his pack and drinks it. He is reinvigorated. The rishi manu struck with its rishi scepter! The disagreeable rishi manu failed to land its hit. 
+## <a name="chapter8"></a> Chapter 8: Poodfiell and the Adult Copper Dragon
 
-The rishi manu struck with its rishi scepter! The scary rishi manu failed to land its hit. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
+Maixenor followed a dirt path into the village of Poodfiell. The cartwright stood by a market stall, negotiating with the outlaw with a horner. Two plumbers hawked fine imported goods from Upne. Maixenor continued down the path. A parish priest stood by a market stall, negotiating with the wiredrawer.
 
-Alkmain lunged toward the rishi manu, his sword ready to strike! Although he's hit landed, rishi manu is mostly unphasedThe monster was stunned by the attack. Our hero pulls a deep tuscan red potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-The rishi manu struck with its rishi scepter! Alkmain jumps out of the way. Alkmain stumbles to his knee, gasping for breath. The rishi manu leans low, ready to strike with its might. 
-
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! Alkmain reeled back in pain. 
-
-He pulls a indigo potion from his pack and drinks it. He is reinvigorated. The rishi manu struck with its rishi scepter! The shameful rishi manu failed to land its hit. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-He pulls a android green potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-Alkmain the stand tall sneaked around to rishi manu's blind spot. Alkmain lunged toward the rishi manu, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to rishi manu's blind spot. 
-
-The rishi manu struck with its rishi scepter! Our hero jumps out of the way. he stumbles to his knee, gasping for breath. The rishi manu leans low, ready to strike with its might. 
-
-The rishi manu struck with its rishi scepter! Our hero blocks the strike with his sword. he stumbles to his knee, gasping for breath. The rishi manu leans low, ready to strike with its might. 
-
-The rishi manu struck with its rishi scepter! He jumps out of the way. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-Alkmain pulls a forest green traditional potion from his pack and drinks it. He is reinvigorated. The rishi manu struck with its rishi scepter! The terrible rishi manu failed to land its hit. 
-
-The rishi manu struck with its rishi scepter! Our hero stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The rishi manu leans low, ready to strike with its might. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The adventurer landed a massive hit on rishi manu! 
-
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses he. 
-
-He pulls a warm black potion from his pack and drinks it. He is reinvigorated. The rishi manu struck with its rishi scepter! He winces from the pain but continues fighting. 
-
-Alkmain the lion-hearted pulls a pink orange potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-The rishi manu struck with its rishi scepter! Our hero winces from the pain but continues fighting. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu took a glancing blow. 
-
-The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses he. Our hero leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses our hero. 
-
-Alkmain the grand sneaked around to rishi manu's blind spot. The rishi manu leans low, ready to strike with its might. 
-
-The adventurer sneaked around to rishi manu's blind spot. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was struck by the blow! 
-
-The rishi manu leans low, ready to strike with its might. The rishi manu struck with its rishi scepter! The unholy rishi manu failed to land its hit. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was staggered by the immense force. 
-
-He sneaked around to rishi manu's blind spot. The rishi manu leans low, ready to strike with its might. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The rishi manu struck with its rishi scepter! The fierce blow from the monster narrowly misses Alkmain. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was struck by the blow! 
-
-The rishi manu struck with its rishi scepter! The hideous rishi manu failed to land its hit. Alkmain stumbles to his knee, gasping for breath. The rishi manu struck with its rishi scepter! Alkmain reeled back in pain. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The rishi manu struck with its rishi scepter! Alkmain winces from the pain but continues fighting. Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was struck by the blow! 
-
-He pulls a rose madder potion from his pack and drinks it. He is reinvigorated. The rishi manu leans low, ready to strike with its might. 
-
-He sneaked around to rishi manu's blind spot. The rishi manu struck with its rishi scepter! The adventurer blocks the strike with his sword. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The rishi manu was struck by the blow! The rishi manu struck with its rishi scepter! He jumps out of the way. Alkmain lunged toward the rishi manu, his sword ready to strike! The attack from Alkmain the gutty surely left a impression. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to rishi manu's blind spot. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain sneaked around to rishi manu's blind spot. 
-
-The rishi manu leans low, ready to strike with its might. Alkmain lunged toward the rishi manu, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. The monster was stunned by the attack. Our hero sneaked around to rishi manu's blind spot. 
-
-The rishi manu leans low, ready to strike with its might. Alkmain lunged toward the rishi manu, his sword ready to strike! The slippery rishi manu evaded Alkmain's hit. 
-
-He was victorious! The rishi manu menaced for no longer! 
-
-## <a name="chapter7"></a> Chapter 7: Blancon and the Killer Seahorse
-
-Alkmain followed a dirt path into the village of Blancon. Two threshers ran from person to person, asking if they had seen Charman. While the seneschal stood by a market stall, negotiating with the gemcutter, a arkwright finished an apple and tossed the core aside. Alkmain continued down the path. Two saddlers ran from person to person, asking if they had seen Weneko.
-
-Eventually, Alkmain arrived at the town square, where he found a milliner. The man, eying his dangerous demeanor, beckoned him forward.
+Eventually, Maixenor arrived at the town square, where he found a quarryman. The man, eying his dangerous demeanor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-Nearby, a coiner hawked fine imported goods from Bol Briell. The man sat in silence for a while, then finally responded.
+Nearby, a master of hounds rushed by quickly, ignoring him. He still looked suspicious, but eventually responded.
 
-"Our village of Breen Cen Brist will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is just a bit further down the street. There's a small door. You'll find Godemocydes, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Hippus gone as much as anybody."
+"Anfred is the best in town. His shop is past the tavern. Look for the large hanging sign that reads "Anfred Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. Nearby, a abbess slowly carried supplies. Nearby, a professor talked excitedly with what appeared to be a belter. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. While the nailmaker threw punches, a wine seller eyed him suspiciously. The papermaker finished an apple and tossed the core aside with a coppersmith, redsmith. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+Anfred looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Godemocydes lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The killer seahorse."
+Anfred grabbed a dusty book from the shelf and flipped through it. Pictures of ghorazaghs and giant tarantulas flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "These specially bred offshoots of the giant seahorse are used by aquatic creatures as guard animals. Vicious and territorial, they prefer larger prey and have been known to eat giant crabs and careless handlers. Killer seahorses are too unruly for use as mounts and only accept riders or baggage if magically controlled."
+Anfred returned to the book of monsters on the desk and pointed at the terrifying illustration. "The monster adult copper dragon is terrifying for sure, but I honestly don't know much about that beast."
 
-"I could handle that. Tell me again, what makes the killer seahorse so bad?" Alkmain responded.
+"But my weapons may be too weak. Are there any other ways to defeat the adult copper dragon?" Maixenor asked.
 
-"Killer seahorses have been known to crush other creatures into a bloody pulp just before giving birth, ensuring a good meal for their newborns (called "fry"). A killer seahorse fry is the size of a human hand and is an aggressive swarm feeder, like a piranha." Godemocydes explained.
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-"But my weapons may be too weak. Are there any other ways to defeat the killer seahorse?" Alkmain asked.
+As Maixenor turned to leave the armory, Anfred called out
 
-"A light load for a killer seahorse is up to 2,500 pounds, a medium load is 4,900 pounds, and a heavy load is 7,400 pounds. A killer seahorse can drag 36,800 pounds." Godemocydes explained.
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+"Take this heavy pick. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+With his newfound information, Maixenor departs from Poodfiell. 
+
+The ever valiant Maixenor continued his long and tiring journey to find the adult copper dragon.
+
+Not once did he regret his choice to not become a bodger.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering pattenmaker making his way toward Poodfiell. The stranger said to Maixenor
+
+"Take care crossing the Boston-supon Dolines! They are especially dangerous this time of year."
+
+As Maixenor walked along the path out of Poodfiell, he turned to his left and saw something high-flown.
+
+The Oasiss of Tufnelda West towered over the nearby Alluvial fans.It reminded Maixenor of the town of Hill he had visited long ago.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor met a wandering burglar making his way toward Poodfiell. The stranger said to Maixenor
+
+"The adult copper dragon killed my brother. I would be heading back to end that awful thing if only it hadn't taken my eye the first time I tried."
+
+As Maixenor walked along the path out of Poodfiell, he turned to his left and saw something undaunted.
+
+The Hogbacks of Horthwickholvesterbromptond Hiling towered over the nearby Continental shelfs.Maybe they might make for a classic adventure for when Maixenor's current journey is over.
+
+Maixenor saw a terrifying adult copper dragon in the distance! Our hero fixed his gaze on the hideous sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+He made a mighty swing at the adult copper dragon with this heavy pick. The adult copper dragon was struck by the blow! The adult copper dragon struck with its bite! Maixenor reeled back in pain. Maixenor the stouthearted made a mighty swing at the adult copper dragon with this heavy pick. The slippery adult copper dragon evaded Maixenor's hit. 
+
+The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. The adult copper dragon was struck by the blow! Struck by the hefty blow, the adult copper dragon needed a second to recover its footing. The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. The horrendous adult copper dragon was too quick to be hit. 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! Maixenor's strike glanced off of the adult copper dragon's hide. The nasty monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses he. A stouthearted attack suddenly came from Maixenor, its intent to silence the detestable beast once and for all. The abominable adult copper dragon was too quick to be hit. 
+
+The adult copper dragon struck with its bite! He blocks the strike with his heavy pick. The exhilarating combat made the hours seem like seconds. The adult copper dragon eyed Maixenor with a dangerous glare. 
+
+Maixenor took a deep breath and swung toward the horrid adult copper dragon. The frightful adult copper dragon was too quick to be hit. The ghastly monster took a swipe at Maixenor. Our hero winces from the pain but continues fighting. Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! A sharp crack was heard as the strike left its mark. 
+
+He sneaked around to adult copper dragon's blind spot. The adult copper dragon struck with its bite! The fierce blow from the monster narrowly misses he. 
+
+He sneaked around to adult copper dragon's blind spot. The adult copper dragon eyed Maixenor with a dangerous glare. 
+
+He held his heavy pick tightly, ready to block any attack. The smelly monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses our hero. 
+
+The adult copper dragon struck with its bite! The mean adult copper dragon failed to land its hit. He made a mighty swing at the adult copper dragon with this heavy pick. The slippery adult copper dragon evaded Maixenor's hit. 
+
+Maixenor sneaked around to adult copper dragon's blind spot. The adult copper dragon eyed Maixenor with a dangerous glare. 
+
+The adult copper dragon leans low, ready to strike with its might. The fairy monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses he. 
+
+The adult copper dragon leans low, ready to strike with its might. The adult copper dragon struck with its bite! Our hero jumps out of the way. 
+
+He pulled a teal blue potion from his pack and drinks it. He is reinvigorated. The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. The slippery adult copper dragon evaded Maixenor's hit. 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! The shattering blow from our hero rumbled through the ground. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the fairy adult copper dragon. Maixenor's strike glanced off of the adult copper dragon's hide. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The adult copper dragon eyed Maixenor with a dangerous glare. 
+
+A powerful swing came from the adult copper dragon with very deadly intent. The fierce blow from the monster narrowly misses the adventurer. A inflated attack suddenly came from Maixenor, its intent to silence the repellent beast once and for all. Although he's hit landed, adult copper dragon is mostly unphased
+
+Maixenor took a deep breath and swung toward the horrendous adult copper dragon. The fairy adult copper dragon was too quick to be hit. Struck by the hefty blow, the adult copper dragon needed a second to recover its footing. Maixenor the classic held his heavy pick tightly, ready to block any attack. 
+
+He pulled a viridian potion from his pack and drinks it. He is reinvigorated. He made a mighty swing at the adult copper dragon with this heavy pick. The ruinous adult copper dragon was too quick to be hit. 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! That blow seemed like it could break some bones. Struck by the hefty blow, the adult copper dragon needed a second to recover its footing. The adventurer sneaked around to adult copper dragon's blind spot. 
+
+He held his heavy pick tightly, ready to block any attack. The intrepid Maixenor made a mighty swing at the adult copper dragon with this heavy pick. The disagreeable adult copper dragon was too quick to be hit. 
+
+The heinous monster took a swipe at Maixenor. The repellent adult copper dragon failed to land its hit. A grandiose attack suddenly came from Maixenor, its intent to silence the fearful beast once and for all. The adult copper dragon was staggered by the immense force. 
+
+The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. That blow seemed like it could break some bones. The execrable monster took a swipe at Maixenor. The beastly adult copper dragon failed to land its hit. The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. The hideous adult copper dragon was too quick to be hit. 
+
+The adult copper dragon struck with its bite! The awful adult copper dragon failed to land its hit. A valorous attack suddenly came from Maixenor, its intent to silence the obnoxious beast once and for all. The adult copper dragon was struck by the blow! 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! Maixenor's strike glanced off of the adult copper dragon's hide. The monster was stunned by the attack. The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. The adult copper dragon was staggered by the immense force. 
+
+The disgusting monster took a swipe at Maixenor. He blocks the strike with his heavy pick. the epic Maixenor stumbles to his knee, gasping for breath. The beastly monster took a swipe at Maixenor. The gutty Maixenor jumps out of the way. 
+
+The unholy monster took a swipe at Maixenor. Our hero jumps out of the way. the grand Maixenor stumbles to his knee, gasping for breath. The adult copper dragon leans low, ready to strike with its might. 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! The slippery adult copper dragon evaded Maixenor's hit. Struck by the hefty blow, the adult copper dragon needed a second to recover its footing. The heavy pick of Maixenor was raised high only to be brought down onto the adult copper dragon moments later. Although he's hit landed, adult copper dragon is mostly unphased
+
+The adult copper dragon struck with its bite! Maixenor reeled back in pain. The exhilarating combat made the hours seem like seconds. A powerful swing came from the adult copper dragon with very deadly intent. He blocks the strike with his heavy pick. 
+
+The scandalous monster took a swipe at Maixenor. Our hero winces from the pain but continues fighting. Maixenor took a deep breath and swung toward the disagreeable adult copper dragon. Although the adventurer's hit landed, adult copper dragon is mostly unphased
+
+The adult copper dragon struck with its bite! He blocks the strike with his heavy pick. The exhilarating combat made the hours seem like seconds. The adult copper dragon eyed Maixenor with a dangerous glare. 
+
+The offensive monster took a swipe at Maixenor. The sickie adult copper dragon failed to land its hit. The exhilarating combat made the hours seem like seconds. A powerful swing came from the adult copper dragon with very deadly intent. The fierce blow from the monster narrowly misses our hero. 
+
+The adult copper dragon eyed Maixenor with a dangerous glare. The adult copper dragon struck with its bite! The bold Maixenor blocks the strike with his heavy pick. 
+
+The adventurer made a mighty swing at the adult copper dragon with this heavy pick. The attack from he surely left a impression. The adult copper dragon struck with its bite! The shameful adult copper dragon failed to land its hit. Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! The attack from Maixenor the gallant surely left a impression. 
+
+He made a mighty swing at the adult copper dragon with this heavy pick. That blow seemed like it could break some bones. The obnoxious monster took a swipe at Maixenor. Maixenor reeled back in pain. The adventurer made a mighty swing at the adult copper dragon with this heavy pick. The attack from he surely left a impression. 
+
+A high-flown attack suddenly came from Maixenor, its intent to silence the loathsome beast once and for all. The awful adult copper dragon was too quick to be hit. A powerful swing came from the adult copper dragon with very deadly intent. He blocks the strike with his heavy pick. Maixenor took a deep breath and swung toward the revolting adult copper dragon. Although our hero's hit landed, adult copper dragon is mostly unphased
+
+A powerful swing came from the adult copper dragon with very deadly intent. Maixenor the tall standing blocks the strike with his heavy pick. He made a mighty swing at the adult copper dragon with this heavy pick. The adult copper dragon took a glancing blow. 
+
+The scandalous monster took a swipe at Maixenor. The heinous adult copper dragon failed to land its hit. The exhilarating combat made the hours seem like seconds. The adult copper dragon leans low, ready to strike with its might. 
+
+Maixenor took a deep breath and swung toward the beastly adult copper dragon. The attack from our hero surely left a impression. The monster was stunned by the attack. A lion-hearted attack suddenly came from Maixenor, its intent to silence the fairy beast once and for all. Although the adventurer's hit landed, adult copper dragon is mostly unphased
+
+The terrifying monster took a swipe at Maixenor. The repellent adult copper dragon failed to land its hit. our hero stumbles to his knee, gasping for breath. The adult copper dragon leans low, ready to strike with its might. 
+
+Maixenor the exaggerated pulled a wild strawberry potion from his pack and drinks it. He is reinvigorated. The adult copper dragon struck with its bite! Maixenor reeled back in pain. 
+
+Maixenor lunged toward the adult copper dragon, his heavy pick ready to strike! The adult copper dragon took a glancing blow. 
+
+Covered with wounds and bruises, the shocking adult copper dragon fell over for the last time.
+
+He was victorious! The adult copper dragon menaced for no longer! 
+
+## <a name="chapter9"></a> Chapter 9: Kninals Hast Herstoch and the Barometz
+
+Maixenor followed a dirt path into the village of Kninals Hast Herstoch. The costermonger threw punches with a parchmenter. The bonecarver scuttled out of his way with a pardoner. Maixenor continued down the path. While the cantor loaded a market stall with wares, a cantor talked excitedly with what appeared to be a privycleaner.
+
+Eventually, Maixenor arrived at the town square, where he found a shipwright. The man, eying his unusual weapons, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+Two dentists stood by a market stall, negotiating with the brazier. The man sat in silence for a while, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Axylus is past the warehouse. It's just to the right. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Maixenor hurried towards the armory. A bellfounder gazed at him from an open window. Two players scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Axylus grabbed a dusty book from the shelf and flipped through it. Pictures of beheadeds and gray renders flew by. Eventually he settled on a page and started to explain.
+
+Axylus returned to the book of monsters on the desk and pointed at the terrifying illustration. "These massive plant juggernauts were not created by nature, but grown by druids who use them as protectors and dispensers of savage judgment. Pruned into a form resembling a stout ram, a barometz is granted a degree of intelligence by natural spirits bound into its verdant bulk."
+
+"I could handle that. Tell me again, what makes the barometz so bad?" Maixenor responded.
+
+The armorer sighed and continued. "Barometzes are typically found in the service of the powerful druids who cultivate them and help them protect sacred primeval forests."
+
+"But my weapons may be too weak. Are there any other ways to defeat the barometz?" Maixenor asked.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Axylus called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Forged by the finest dwarven smiths in the mountains of Noringhtsterlthann√∫minsburn Keichwayne, this light spiked shield is the finest display of craftsmanship for miles around."
+
+With his newfound information, Maixenor departs from Kninals Hast Herstoch. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor the lion-hearted met a wandering plattner making his way toward Kninals Hast Herstoch. The stranger said to Maixenor
+
+"Take care crossing the Atherfiend Seamounts! They are especially dangerous this time of year."
+
+As Maixenor walked along the path out of Kninals Hast Herstoch, he turned to his right and saw something valiant.
+
+Contrasting against the nearby Malpa√≠ss, the great Par Truncated spurs provided a refreshing view.Maybe they might make for a valorous adventure for when Maixenor's current journey is over.
+
+The ever grand Maixenor continued his long and tiring journey to find the barometz.
+
+Not once did he regret his choice to not become a thimbler.
+
+As Maixenor walked along the path out of Kninals Hast Herstoch, he turned to his right and saw something tall standing.
+
+Contrasting against the nearby Stack and stumps, the great Sournster Grabens provided a refreshing view.Maybe they might make for a fearless adventure for when Maixenor's current journey is over.
+
+As Maixenor walked along the path out of Kninals Hast Herstoch, he turned to his left and saw something noble.
+
+He could barely make out some Anabranchs in the distance.Maybe they might make for a unafraid adventure for when Maixenor's current journey is over.
+
+Maixenor saw a unholy barometz in the distance! Our hero fixed his gaze on the frightful sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+The barometz eyed Maixenor with a dangerous glare. Maixenor lunged toward the barometz, his light spiked shield ready to strike! The shattering blow from he rumbled through the ground. 
+
+A powerful swing came from the barometz with very deadly intent. He jumps out of the way. He leaned on his light spiked shield to catch a moment's respite. The inflated Maixenor was worn out by the combat. The barometz leans low, ready to strike with its might. 
+
+The barometz leans low, ready to strike with its might. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The barometz was struck by the blow! 
+
+Maixenor took a deep breath and swung toward the gruesome barometz. The attack from our hero surely left a impression. The frightful monster took a swipe at Maixenor. The smelly barometz failed to land its hit. Maixenor took a deep breath and swung toward the mean barometz. Maixenor's strike glanced off of the barometz's hide. 
+
+He sneaked around to barometz's blind spot. The barometz struck with its gore! Maixenor winces from the pain but continues fighting. 
+
+He pulled a azure mist web potion from his pack and drinks it. He is reinvigorated. The barometz leans low, ready to strike with its might. 
+
+The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The slippery barometz evaded Maixenor's hit. Struck by the hefty blow, the barometz needed a second to recover its footing. Maixenor took a deep breath and swung toward the grisly barometz. The barometz was struck by the blow! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The barometz struck with its gore! The cruel barometz failed to land its hit. 
+
+The barometz eyed Maixenor with a dangerous glare. Maixenor took a deep breath and swung toward the appalling barometz. The barometz was struck by the blow! 
+
+Maixenor lunged toward the barometz, his light spiked shield ready to strike! The barometz was struck by the blow! The scary monster took a swipe at Maixenor. The dauntless Maixenor blocks the strike with his light spiked shield. Maixenor took a deep breath and swung toward the hideous barometz. Maixenor's strike glanced off of the barometz's hide. 
+
+The barometz leans low, ready to strike with its might. The barometz struck with its gore! The adventurer jumps out of the way. 
+
+The doughty Maixenor sneaked around to barometz's blind spot. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. A sharp crack was heard as the strike left its mark. 
+
+The ruinous monster took a swipe at Maixenor. He winces from the pain but continues fighting. the adventurer stumbles to his knee, gasping for breath. The barometz struck with its gore! The fierce blow from the monster narrowly misses Maixenor. 
+
+The barometz struck with its gore! He stunbles backward, gasping for breath. Maixenor the impavid leaned on his light spiked shield to catch a moment's respite. He was worn out by the combat. The barometz leans low, ready to strike with its might. 
+
+The barometz eyed Maixenor with a dangerous glare. A daring attack suddenly came from Maixenor, its intent to silence the frightful beast once and for all. The slippery barometz evaded Maixenor's hit. 
+
+A powerful swing came from the barometz with very deadly intent. The fierce blow from the monster narrowly misses Maixenor the daring. Maixenor the exaggerated leaned on his light spiked shield to catch a moment's respite. He was worn out by the combat. The sickie monster took a swipe at Maixenor. The ungodly barometz failed to land its hit. 
+
+The barometz leans low, ready to strike with its might. Maixenor lunged toward the barometz, his light spiked shield ready to strike! The barometz was staggered by the immense force. 
+
+The barometz leans low, ready to strike with its might. Maixenor lunged toward the barometz, his light spiked shield ready to strike! Maixenor's strike glanced off of the barometz's hide. 
+
+Our hero held his light spiked shield tightly, ready to block any attack. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The barometz took a glancing blow. 
+
+The adventurer pulled a medium candy apple red potion from his pack and drinks it. He is reinvigorated. The barometz leans low, ready to strike with its might. 
+
+The lion-hearted Maixenor held his light spiked shield tightly, ready to block any attack. The barometz leans low, ready to strike with its might. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The barometz took a glancing blow. 
+
+The barometz leans low, ready to strike with its might. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. A sharp crack was heard as the strike left its mark. 
+
+The barometz eyed Maixenor with a dangerous glare. A exaggerated attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. A sharp crack was heard as the strike left its mark. 
+
+Maixenor took a deep breath and swung toward the hideous barometz. The attack from he surely left a impression. The monster was stunned by the attack. He held his light spiked shield tightly, ready to block any attack. 
+
+He sneaked around to barometz's blind spot. The valorous Maixenor made a mighty swing at the barometz with this light spiked shield. The revolting barometz was too quick to be hit. 
+
+A impavid attack suddenly came from Maixenor, its intent to silence the execrable beast once and for all. The shattering blow from he rumbled through the ground. The gruesome monster took a swipe at Maixenor. Maixenor reeled back in pain. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The shattering blow from our hero rumbled through the ground. 
+
+The barometz struck with its gore! The unholy barometz failed to land its hit. The exhilarating combat made the hours seem like seconds. The barometz leans low, ready to strike with its might. 
+
+Our hero made a mighty swing at the barometz with this light spiked shield. The slippery barometz evaded Maixenor's hit. Struck by the hefty blow, the barometz needed a second to recover its footing. He sneaked around to barometz's blind spot. 
+
+The barometz struck with its gore! The fire-eating Maixenor blocks the strike with his light spiked shield. He made a mighty swing at the barometz with this light spiked shield. Maixenor landed a massive hit on barometz! 
+
+The barometz struck with its gore! The bold Maixenor jumps out of the way. A exaggerated attack suddenly came from Maixenor, its intent to silence the appalling beast once and for all. The attack from he surely left a impression. 
+
+He made a mighty swing at the barometz with this light spiked shield. The barometz was struck by the blow! A powerful swing came from the barometz with very deadly intent. Maixenor jumps out of the way. A mythological attack suddenly came from Maixenor, its intent to silence the awful beast once and for all. The slippery barometz evaded Maixenor's hit. 
+
+Maixenor took a deep breath and swung toward the ungodly barometz. Maixenor's strike glanced off of the barometz's hide. Struck by the hefty blow, the barometz needed a second to recover its footing. Maixenor cleared his mind, preparing himself for the combat to come.
+
+The barometz struck with its gore! He blocks the strike with his light spiked shield. A gritty attack suddenly came from Maixenor, its intent to silence the revolting beast once and for all. Maixenor's strike glanced off of the barometz's hide. 
+
+Maixenor lunged toward the barometz, his light spiked shield ready to strike! The barometz was staggered by the immense force. The monster was stunned by the attack. He sneaked around to barometz's blind spot. 
+
+The barometz struck with its gore! The adventurer blocks the strike with his light spiked shield. He leaned on his light spiked shield to catch a moment's respite. The adventurer was worn out by the combat. The barometz struck with its gore! He jumps out of the way. 
+
+He held his light spiked shield tightly, ready to block any attack. The adventurer made a mighty swing at the barometz with this light spiked shield. Maixenor's strike glanced off of the barometz's hide. 
+
+The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. The slippery barometz evaded Maixenor's hit. The monster was stunned by the attack. The adventurer held his light spiked shield tightly, ready to block any attack. 
+
+A powerful swing came from the barometz with very deadly intent. Maixenor stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The barometz struck with its gore! The fierce blow from the monster narrowly misses he. 
+
+The barometz struck with its gore! He jumps out of the way. A bold attack suddenly came from Maixenor, its intent to silence the disagreeable beast once and for all. The slippery barometz evaded Maixenor's hit. 
+
+The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. Although Maixenor the bold's hit landed, barometz is mostly unphasedThe monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+He sneaked around to barometz's blind spot. The scandalous monster took a swipe at Maixenor. The fire-eating Maixenor blocks the strike with his light spiked shield. 
+
+The barometz struck with its gore! The abominable barometz failed to land its hit. The exhilarating combat made the hours seem like seconds. The barometz struck with its gore! Our hero winces from the pain but continues fighting. 
+
+Maixenor made a mighty swing at the barometz with this light spiked shield. Maixenor's strike glanced off of the barometz's hide. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+He made a mighty swing at the barometz with this light spiked shield. The slippery barometz evaded Maixenor's hit. A powerful swing came from the barometz with very deadly intent. Our hero stunbles backward, gasping for breath. The light spiked shield of Maixenor was raised high only to be brought down onto the barometz moments later. A sharp crack was heard as the strike left its mark. 
+
+Our hero held his light spiked shield tightly, ready to block any attack. The barometz leans low, ready to strike with its might. 
+
+Maixenor held his light spiked shield tightly, ready to block any attack. A powerful swing came from the barometz with very deadly intent. The fierce blow from the monster narrowly misses he. 
+
+Maixenor took a deep breath and swung toward the evil barometz. The shattering blow from the adventurer rumbled through the ground. 
+
+Covered with wounds and bruises, the smelly barometz fell over for the last time.
+
+The citizens of Kninals Hast Herstoch could sleep soundly at night. He had vanquished their greatest nightmare.
+
+## <a name="chapter10"></a> Chapter 10: Crawk Rohapher and the Iron Golem
+
+Maixenor followed a dirt path into the village of Crawk Rohapher. While the belter talked excitedly with what appeared to be a buttonmaker, a spearman slept in an alleyway. Two wiredrawers eyed him suspiciously. Maixenor continued down the path. A bleacher hawked fine imported goods from Walham.
+
+Eventually, Maixenor arrived at the town square, where he found a bearleader. Maixenor approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+A bailiff bit into an apple. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is past the barn. It's just to the left. You'll find Ihazilokrus, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. Two sawyers talked excitedly with what appeared to be a pikeman. Two cardinals ran from person to person, asking if they had seen Donos. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the phycomid, or perhaps even the storm hag, but that's nothing compared to the iron golem we've got."
+
+"An iron golem has a humanoid body made from iron. It can be sculpted into any shape its creator desires, but it almost always displays armor of some sort, from simple and utilitarian to ceremonial and ornate. Its features are much smoother than those of a stone golem. Iron golems sometimes carry a weapon in one hand, though they rarely use these, relying instead on their slam attacks. " Ihazilokrus explained.
+
+Maixenor slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Ihazilokrus returned to the book of monsters on the desk and pointed at the terrifying illustration. "An iron golem is 12 feet tall and weighs about 5,000 pounds. An iron golem cannot speak or make any vocal noise, nor does it have any distinguishable odor."
+
+"I could handle that. Tell me again, what makes the iron golem so bad?" Maixenor responded.
+
+"Although the practice has fallen out of favor in modern times, the ancients of certain powerful civilizations once took great pride in crafting iron golems of tremendous size and strength. These golems, which are never smaller than Huge, still exist in remote parts of the world, mindlessly following the orders of a long-dead empire." Ihazilokrus explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the iron golem?" Maixenor asked.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Ihazilokrus called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the iron golem." 
+
+"Forged by the finest dwarven smiths in the mountains of Ashfierington, this gnome hooked hammer is the finest display of craftsmanship for miles around."
+
+With his newfound information, Maixenor departs from Crawk Rohapher. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering troubadour making his way toward Crawk Rohapher. The stranger said to Maixenor
+
+"The iron golem killed my brother. I would be heading back to end that offensive thing if only it hadn't taken my eye the first time I tried."
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Our hero met a wandering bellmaker making his way toward Crawk Rohapher. The stranger said to Maixenor
+
+"The iron golem killed my brother. I would be heading back to end that lousy thing if only it hadn't taken my eye the first time I tried."
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor met a wandering maid making his way toward Crawk Rohapher. The stranger said to Maixenor
+
+"You must be on your way to kill the iron golem. I wish you the best of luck!"
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering bailiff making his way toward Crawk Rohapher. The stranger said to Maixenor
+
+"The iron golem killed my brother. I would be heading back to end that grisly thing if only it hadn't taken my eye the first time I tried."
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+The intrepid Maixenor met a wandering pikeman making his way toward Crawk Rohapher. The stranger said to Maixenor
+
+"I knew a dauntless hero like you. He met his end far too early. I hope that you are better prepared for your future."
+
+Maixenor saw a heinous iron golem in the distance! Our hero readied his sword. Maixenor the fearless approched the iron golem cautiously, careful not to rush to an untimely death. 
+
+The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. The iron golem was struck by the blow! The monster was stunned by the attack. The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. A sharp crack was heard as the strike left its mark. 
+
+He made a mighty swing at the iron golem with this gnome hooked hammer. Although he's hit landed, iron golem is mostly unphasedThe monster was stunned by the attack. Maixenor took a deep breath and swung toward the lousy iron golem. The attack from he surely left a impression. 
+
+The iron golem leans low, ready to strike with its might. He made a mighty swing at the iron golem with this gnome hooked hammer. The slippery iron golem evaded Maixenor's hit. 
+
+A powerful swing came from the iron golem with very deadly intent. The revolting iron golem failed to land its hit. The exhilarating combat made the hours seem like seconds. The iron golem leans low, ready to strike with its might. 
+
+The iron golem eyed Maixenor with a dangerous glare. The lousy monster took a swipe at Maixenor. He blocks the strike with his gnome hooked hammer. 
+
+A gallant attack suddenly came from Maixenor, its intent to silence the scandalous beast once and for all. Maixenor's strike glanced off of the iron golem's hide. The monster was stunned by the attack. Maixenor made a mighty swing at the iron golem with this gnome hooked hammer. That blow seemed like it could break some bones. 
+
+He sneaked around to iron golem's blind spot. The iron golem leans low, ready to strike with its might. 
+
+The grandiose Maixenor made a mighty swing at the iron golem with this gnome hooked hammer. The repellent iron golem was too quick to be hit. The lousy monster took a swipe at Maixenor. Maixenor the valorous blocks the strike with his gnome hooked hammer. A fearless attack suddenly came from Maixenor, its intent to silence the repulsive beast once and for all. The grim iron golem was too quick to be hit. 
+
+The iron golem struck with its slams! The noble Maixenor blocks the strike with his gnome hooked hammer. Maixenor the mythological stumbles to his knee, gasping for breath. The iron golem eyed Maixenor with a dangerous glare. 
+
+He pulled a office green potion from his pack and drinks it. He is reinvigorated. A doughty attack suddenly came from Maixenor, its intent to silence the disagreeable beast once and for all. The slippery iron golem evaded Maixenor's hit. 
+
+He sneaked around to iron golem's blind spot. The iron golem leans low, ready to strike with its might. 
+
+The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. The iron golem was struck by the blow! Struck by the hefty blow, the iron golem needed a second to recover its footing. Maixenor held his gnome hooked hammer tightly, ready to block any attack. 
+
+The grim monster took a swipe at Maixenor. The scandalous iron golem failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The iron golem eyed Maixenor with a dangerous glare. 
+
+Maixenor took a deep breath and swung toward the ruinous iron golem. The attack from Maixenor surely left a impression. The monster was stunned by the attack. He made a mighty swing at the iron golem with this gnome hooked hammer. Although he's hit landed, iron golem is mostly unphased
+
+Maixenor cleared his mind, preparing himself for the combat to come.The iron golem struck with its slams! The fierce blow from the monster narrowly misses he. 
+
+Maixenor the fearless sneaked around to iron golem's blind spot. The iron golem eyed Maixenor with a dangerous glare. 
+
+Maixenor made a mighty swing at the iron golem with this gnome hooked hammer. The iron golem took a glancing blow. The monster was stunned by the attack. The adventurer sneaked around to iron golem's blind spot. 
+
+The iron golem struck with its slams! The fierce blow from the monster narrowly misses he. Maixenor the gutsy leaned on his gnome hooked hammer to catch a moment's respite. He was worn out by the combat. The iron golem leans low, ready to strike with its might. 
+
+The adventurer held his gnome hooked hammer tightly, ready to block any attack. The iron golem eyed Maixenor with a dangerous glare. 
+
+The iron golem eyed Maixenor with a dangerous glare. He made a mighty swing at the iron golem with this gnome hooked hammer. Maixenor's strike glanced off of the iron golem's hide. 
+
+A gritty attack suddenly came from Maixenor, its intent to silence the smelly beast once and for all. That blow seemed like it could break some bones. Struck by the hefty blow, the iron golem needed a second to recover its footing. He held his gnome hooked hammer tightly, ready to block any attack. 
+
+Maixenor took a deep breath and swung toward the ungodly iron golem. Maixenor the valiant landed a massive hit on iron golem! A powerful swing came from the iron golem with very deadly intent. Maixenor blocks the strike with his gnome hooked hammer. The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. A sharp crack was heard as the strike left its mark. 
+
+He sneaked around to iron golem's blind spot. The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. That blow seemed like it could break some bones. 
+
+He held his gnome hooked hammer tightly, ready to block any attack. The iron golem struck with its slams! The adventurer blocks the strike with his gnome hooked hammer. 
+
+The iron golem eyed Maixenor with a dangerous glare. The iron golem struck with its slams! He winces from the pain but continues fighting. 
+
+The iron golem eyed Maixenor with a dangerous glare. A gutsy attack suddenly came from Maixenor, its intent to silence the beastly beast once and for all. The iron golem took a glancing blow. 
+
+Our hero held his gnome hooked hammer tightly, ready to block any attack. The iron golem leans low, ready to strike with its might. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A epic attack suddenly came from Maixenor, its intent to silence the lurid beast once and for all. The disagreeable iron golem was too quick to be hit. 
+
+The adventurer sneaked around to iron golem's blind spot. The gnome hooked hammer of Maixenor was raised high only to be brought down onto the iron golem moments later. That blow seemed like it could break some bones. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor lunged toward the iron golem, his gnome hooked hammer ready to strike! The attack from the adventurer surely left a impression. 
+
+He held his gnome hooked hammer tightly, ready to block any attack. A intrepid attack suddenly came from Maixenor, its intent to silence the fearful beast once and for all. The iron golem was staggered by the immense force. 
+
+The iron golem struck with its slams! Our hero blocks the strike with his gnome hooked hammer. The exhilarating combat made the hours seem like seconds. The iron golem leans low, ready to strike with its might. 
+
+A doughty attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. A sharp crack was heard as the strike left its mark. 
+
+Maixenor's last strike hit the iron golem directly in the heary. A fatal blow.
+
+Maixenor says
+
+"That didn't seem so hard, I don't know what Ihazilokrus was talking about."
+
+## <a name="chapter11"></a> Chapter 11: Claphefiel Gresbury Lanslesten and the Dragon Horse
+
+Maixenor followed a dirt path into the village of Claphefiel Gresbury Lanslesten. While the silversmith bit into an apple, a raker ran from person to person, asking if they had seen Xarleu. While the founder stood by a market stall, negotiating with the threadmaker, a dwarf stood by a market stall, negotiating with the watchman. Maixenor continued down the path. Nearby, a glasspainter threw punches.
+
+Eventually, Maixenor arrived at the town square, where he found a sheepshearer. Maixenor approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+While the drycooper loaded a market stall with wares, a archbishop finished an apple and tossed the core aside. The man quietly reminised about the past, then finally responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Loxias is the best in town. His shop is just a bit further down the street. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 9 small coins. "I want that Kebad gone as much as anybody."
+
+Maixenor hurried towards the armory. A ropemaker sat by the side of the road. The prostitute eyed him suspiciously with a watchman. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the triton, or perhaps even the globster, but that's nothing compared to the dragon horse we've got."
+
+Loxias returned to the book of monsters on the desk and pointed at the terrifying illustration. "Despite their name, dragon horses are not related to dragons. These noble creatures gain their name from their ability to fly through the air without wings and to create different effects with their misty breath."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"Dragon horses are solitary creatures, spending most of their time up among the clouds and rarely setting hoof to solid ground. A mated pair of dragon horses remains together to raise its young, but otherwise individuals prefer to be on their own. They are fierce and reclusive, but peaceful and even playful under the right circumstances. Dragon horses sometimes offer aid and assistance to decent folk in need, taking care to use their ability to know alignment to avoid accidentally providing aid to evil creatures, whom they despise." Loxias explained.
+
+Maixenor slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Loxias returned to the book of monsters on the desk and pointed at the terrifying illustration. "Dragon horse foals are highly prized as potential steeds, but as dragon horses are highly intelligent creatures, they cannot be trained as if they were animals. Instead, one who seeks a dragon horse mount must use diplomacy to secure the creature's aid."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"Peaceful creatures by nature, dragon horses prefer to avoid combat by flying away. When they are forced to fight (often in response to an evil creature's mayhem), they attempt to deal nonlethal damage to all but evil-aligned foes, leaving any unconscious opponents unharmed. Those who have chosen evil ways may sometimes receive the same mercy, in the hope that it helps them see the light, but innately evil foes are dispatched as quickly and cleanly as possible." Loxias explained.
+
+"I could handle that. Tell me again, what makes the dragon horse so bad?" Maixenor responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Loxias called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the dragon horse." 
+
+"Take this combat scabbard. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+Sheathing his combat scabbard, Maixenor leaves Claphefiel Gresbury Lanslesten on a journey to find the dragon horse. 
+
+As Maixenor walked along the path out of Claphefiel Gresbury Lanslesten, he turned to his left and saw something inflated.
+
+The Volcanic dams of Olde & Wildbrombe towered over the nearby Shores.It reminded Maixenor the gritty of the town of Maister he had visited long ago.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor met a wandering swineherd making his way toward Claphefiel Gresbury Lanslesten. The stranger said to Maixenor
+
+"Take care crossing the Sloadbrimlister Lava plains! They are especially dangerous this time of year."
+
+The ever courageous Maixenor continued his long and tiring journey to find the dragon horse.
+
+Not once did Maixenor regret his choice to not become a pavyler.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering clockmaker making his way toward Claphefiel Gresbury Lanslesten. The stranger said to Maixenor
+
+"I knew a valorous hero like you. He met his end far too early. I hope that you are better prepared for your future."
+
+As Maixenor walked along the path out of Claphefiel Gresbury Lanslesten, he turned to his left and saw something fearless.
+
+The Poljes of Clad towered over the nearby Dolines.It reminded he of the town of Colington he had visited long ago.
+
+Maixenor saw a eerie dragon horse in the distance! Maixenor the courageous readied his sword. He approched the dragon horse cautiously, careful not to rush to an untimely death. 
+
+A powerful swing came from the dragon horse with very deadly intent. Maixenor reeled back in pain. A grandiose attack suddenly came from Maixenor, its intent to silence the terrifying beast once and for all. Maixenor's strike glanced off of the dragon horse's hide. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.He made a mighty swing at the dragon horse with this combat scabbard. The slippery dragon horse evaded Maixenor's hit. 
+
+Maixenor pulled a bright green potion from his pack and drinks it. He is reinvigorated. The combat scabbard of Maixenor was raised high only to be brought down onto the dragon horse moments later. The attack from the gutty Maixenor surely left a impression. 
+
+The adventurer sneaked around to dragon horse's blind spot. A valorous attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The repulsive dragon horse was too quick to be hit. 
+
+Maixenor pulled a magenta process potion from his pack and drinks it. He is reinvigorated. The dragon horse leans low, ready to strike with its might. 
+
+Maixenor took a deep breath and swung toward the gruesome dragon horse. The dragon horse was staggered by the immense force. The lousy monster took a swipe at Maixenor. The loathsome dragon horse failed to land its hit. Maixenor lunged toward the dragon horse, his combat scabbard ready to strike! Maixenor's strike glanced off of the dragon horse's hide. 
+
+Maixenor the daring held his combat scabbard tightly, ready to block any attack. The combat scabbard of Maixenor was raised high only to be brought down onto the dragon horse moments later. The dragon horse was struck by the blow! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A bold attack suddenly came from Maixenor, its intent to silence the evil beast once and for all. That blow seemed like it could break some bones. 
+
+The dragon horse leans low, ready to strike with its might. Maixenor made a mighty swing at the dragon horse with this combat scabbard. The dragon horse was struck by the blow! 
+
+The combat scabbard of Maixenor was raised high only to be brought down onto the dragon horse moments later. Although he's hit landed, dragon horse is mostly unphasedThe monster was stunned by the attack. He made a mighty swing at the dragon horse with this combat scabbard. The dragon horse was staggered by the immense force. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A gallant attack suddenly came from Maixenor, its intent to silence the cruel beast once and for all. Maixenor's strike glanced off of the dragon horse's hide. 
+
+The dragon horse eyed Maixenor with a dangerous glare. Maixenor lunged toward the dragon horse, his combat scabbard ready to strike! The slippery dragon horse evaded Maixenor's hit. 
+
+A powerful swing came from the dragon horse with very deadly intent. Maixenor reeled back in pain. The exhilarating combat made the hours seem like seconds. A powerful swing came from the dragon horse with very deadly intent. He blocks the strike with his combat scabbard. 
+
+He sneaked around to dragon horse's blind spot. The dragon horse eyed Maixenor with a dangerous glare. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The dragon horse leans low, ready to strike with its might. 
+
+A powerful swing came from the dragon horse with very deadly intent. Maixenor the grand jumps out of the way. He leaned on his combat scabbard to catch a moment's respite. He was worn out by the combat. The dragon horse eyed Maixenor with a dangerous glare. 
+
+The dragon horse struck with its hooves! The abhorrent dragon horse failed to land its hit. The combat scabbard of Maixenor was raised high only to be brought down onto the dragon horse moments later. That blow seemed like it could break some bones. 
+
+He pulled a royal purple potion from his pack and drinks it. He is reinvigorated. A powerful swing came from the dragon horse with very deadly intent. The repellent dragon horse failed to land its hit. 
+
+The unholy monster took a swipe at Maixenor. He jumps out of the way. The exhilarating combat made the hours seem like seconds. The dragon horse leans low, ready to strike with its might. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the dragon horse with very deadly intent. He stunbles backward, gasping for breath. 
+
+The dragon horse eyed Maixenor with a dangerous glare. A daring attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. Maixenor's strike glanced off of the dragon horse's hide. 
+
+A lion-hearted attack suddenly came from Maixenor, its intent to silence the fairy beast once and for all. The dragon horse took a glancing blow. The dragon horse struck with its hooves! Maixenor blocks the strike with his combat scabbard. Maixenor took a deep breath and swung toward the obnoxious dragon horse. The slippery dragon horse evaded Maixenor's hit. 
+
+The dragon horse leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the beastly dragon horse. The dragon horse took a glancing blow. 
+
+The adventurer made a mighty swing at the dragon horse with this combat scabbard. Maixenor's strike glanced off of the dragon horse's hide. The monster was stunned by the attack. A valorous attack suddenly came from Maixenor, its intent to silence the beastly beast once and for all. The disagreeable dragon horse was too quick to be hit. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The dragon horse eyed Maixenor with a dangerous glare. 
+
+The combat scabbard of Maixenor was raised high only to be brought down onto the dragon horse moments later. The adventurer landed a massive hit on dragon horse! The monster was stunned by the attack. Maixenor lunged toward the dragon horse, his combat scabbard ready to strike! The dragon horse was staggered by the immense force. 
+
+A powerful swing came from the dragon horse with very deadly intent. The fierce blow from the monster narrowly misses the adventurer. he stumbles to his knee, gasping for breath. A powerful swing came from the dragon horse with very deadly intent. He jumps out of the way. 
+
+The dragon horse leans low, ready to strike with its might. The dragon horse struck with its hooves! Maixenor reeled back in pain. 
+
+He made a mighty swing at the dragon horse with this combat scabbard. That blow seemed like it could break some bones. 
+
+Covered with wounds and bruises, the unkind dragon horse fell over for the last time.
+
+The citizens of Claphefiel Gresbury Lanslesten could sleep soundly at night. The unafraid Maixenor had vanquished their greatest nightmare.
+
+## <a name="chapter12"></a> Chapter 12: Whephals and the Orang-pendak
+
+Maixenor followed a dirt path into the village of Whephals. A siever ran from person to person, asking if they had seen Antippos. While the glover finished an apple and tossed the core aside, a woolcomber loaded a market stall with wares. Maixenor continued down the path. A scholar hawked fine imported goods from West High Houceston.
+
+Eventually, Maixenor arrived at the town square, where he found a bricker. Maixenor approached him, hoping for some advice.
+
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
+
+While the shipchandler rushed by quickly, ignoring him, a king sat by the side of the road. The man sat in silence for a whileHe finally responded.
+
+"Our village of Whephals will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Gerius is just a bit further down the street. Look for the large hanging sign that reads "Gerius Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. While the theologian eyed him suspiciously, a horner loaded a market stall with wares. Two pastrycooks gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Gerius lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The orang-pendak."
+
+"Orang-pendaks are a rare offshoot of the sasquatch species that dwells in remote mountainous jungles. Elusive and shy, they are rarely seen by other races. Given their friendship with apes (gibbons and orangutans in particular) and their hunched posture and shaggy furóranging from tawny or reddish to dark brown or blackóthey are often mistaken for those beasts at a distance. Orang-pendaks train apes and monkeys to hunt and fight for them, but despite the friendship and similar appearance, the species are not closely related." Gerius explained.
+
+Maixenor slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Within their remote holds, Orang-pendaks cluster together into seminomadic tribes, hunting and gathering in a region until food and game becomes scarce, then moving on to the next area. Many tribes follow a regional pattern to this migration, allowing parts of the jungle to repopulate and gathering only enough substance so as not to disrupt the land's ability to recoup the losses." Gerius explained.
+
+"I could handle that. Tell me again, what makes the orang-pendak so bad?" Maixenor responded.
+
+Gerius returned to the book of monsters on the desk and pointed at the terrifying illustration. "Orang-pendaks range from 3 to 5 feet tall as adults, weighing up to 150 pounds, and they are quite strong for their size. Orang-pendaks are largely herbivorous, but sometimes hunt with spears, clubs, and bolas."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Gerius called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Forged by the finest dwarven smiths in the mountains of Ford Ladifax, this falcata is the finest display of craftsmanship for miles around."
+
+With his newfound information, Maixenor departs from Whephals. 
+
+The ever elevated Maixenor continued his long and tiring journey to find the orang-pendak.
+
+Not once did our hero regret his choice to not become a doctor.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Our hero met a wandering wood seller making his way toward Whephals. The stranger said to Maixenor
+
+"I knew a unafraid hero like you. He met his end far too early. I hope that you are better prepared for your future."
+
+The ever bigger than life Maixenor continued his long and tiring journey to find the orang-pendak.
+
+Not once did he regret his choice to not become a thonger.
+
+The ever bigger than life Maixenor continued his long and tiring journey to find the orang-pendak.
+
+Not once did Maixenor regret his choice to not become a old-clothes dealer.
+
+As Maixenor walked along the path out of Whephals, he turned to his right and saw something impavid.
+
+The Mid-ocean ridges of Falingdon towered over the nearby Ab√Æmes.Maybe they might make for a noble adventure for when Maixenor's current journey is over.
+
+Maixenor saw a evil orang-pendak in the distance! Maixenor the fearless readied his sword. He approched the orang-pendak cautiously, careful not to rush to an untimely death. 
+
+The awful monster took a swipe at Maixenor. The adventurer blocks the strike with his falcata. A fearless attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. The slippery orang-pendak evaded Maixenor's hit. 
+
+A gutty attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The orang-pendak was struck by the blow! Struck by the hefty blow, the orang-pendak needed a second to recover its footing. Maixenor took a deep breath and swung toward the detestable orang-pendak. The attack from he surely left a impression. 
+
+He pulled a maroon crayola potion from his pack and drinks it. He is reinvigorated. The orang-pendak struck with its spear! He jumps out of the way. 
+
+The orang-pendak eyed Maixenor with a dangerous glare. The horrid monster took a swipe at Maixenor. Maixenor the gritty blocks the strike with his falcata. 
+
+The falcata of Maixenor was raised high only to be brought down onto the orang-pendak moments later. The shattering blow from he rumbled through the ground. 
+
+Maixenor's last strike hit the orang-pendak directly in the heary. A fatal blow.
+
+The citizens of Whephals could sleep soundly at night. The unafraid Maixenor had vanquished their greatest nightmare.
+
+## <a name="chapter13"></a> Chapter 13: Pincark and the Aurochs
+
+Maixenor followed a dirt path into the village of Pincark. Nearby, a bagger ran from person to person, asking if they had seen Arnald. The silkwoman scuttled out of his way with a hayward. Maixenor continued down the path. A glass seller talked excitedly with what appeared to be a grocer.
+
+Eventually, Maixenor arrived at the town square, where he found a hobbler. Maixenor approached him, hoping for some advice.
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+While the turner loaded a market stall with wares, a camp follower eyed him suspiciously. He still looked suspicious, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Martaulfrax is the best in town. His shop is into the market and towards the barn. Eventually you need to walk down the street to the cattle barn and left. You'll see a monastery. It's down the street to the warehouse and right. You'll see a monastery. It's just a bit further down the street. It's just to the left. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Maixenor hurried towards the armory. While the bargeman hawked fine imported goods from Midge, a sea captain gazed at him from an open window. Two famuluss rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Martaulfrax looked up from his work behind a counter at Maixenor.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the dire weasel, or perhaps even the giant stag beetle, but that's nothing compared to the aurochs we've got."
+
+The armorer sighed and continued. "Aurochs (both singular and plural) are large herd animals similar to domesticated cattle."
+
+Maixenor slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Martaulfrax called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Take this boarding gaff. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+With his newfound information, Maixenor departs from Pincark. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Maixenor met a wandering ditcher making his way toward Pincark. The stranger said to Maixenor
+
+"The aurochs killed my brother. I would be heading back to end that horrendous thing if only it hadn't taken my eye the first time I tried."
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering hunter making his way toward Pincark. The stranger said to Maixenor
+
+"The aurochs killed my brother. I would be heading back to end that offensive thing if only it hadn't taken my eye the first time I tried."
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering bather making his way toward Pincark. The stranger said to Maixenor
+
+"The aurochs killed my brother. I would be heading back to end that grisly thing if only it hadn't taken my eye the first time I tried."
+
+The ever epic Maixenor continued his long and tiring journey to find the aurochs.
+
+Not once did he regret his choice to not become a vintner.
+
+As Maixenor walked along the path out of Pincark, he turned to his left and saw something noble.
+
+Some distant Kames stood out against the horizon.It reminded the bigger than life Maixenor of the town of Garmer Squarn he had visited long ago.
+
+Maixenor saw a evil aurochs in the distance! Maixenor readied his sword. Maixenor approched the aurochs cautiously, careful not to rush to an untimely death. 
+
+The aurochs struck with its gore! The fierce blow from the monster narrowly misses the noble Maixenor. Maixenor lunged toward the aurochs, his boarding gaff ready to strike! That blow seemed like it could break some bones. 
+
+The aurochs leans low, ready to strike with its might. The horrendous monster took a swipe at Maixenor. The detestable aurochs failed to land its hit. 
+
+The aurochs eyed Maixenor with a dangerous glare. Maixenor lunged toward the aurochs, his boarding gaff ready to strike! The slippery aurochs evaded Maixenor's hit. 
+
+A powerful swing came from the aurochs with very deadly intent. Maixenor blocks the strike with his boarding gaff. Maixenor the bigger than life made a mighty swing at the aurochs with this boarding gaff. The aurochs was struck by the blow! 
+
+Maixenor made a mighty swing at the aurochs with this boarding gaff. The slippery aurochs evaded Maixenor's hit. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+A powerful swing came from the aurochs with very deadly intent. The detestable aurochs failed to land its hit. The bold Maixenor leaned on his boarding gaff to catch a moment's respite. Maixenor the exaggerated was worn out by the combat. The aurochs leans low, ready to strike with its might. 
+
+The aurochs leans low, ready to strike with its might. A powerful swing came from the aurochs with very deadly intent. Maixenor stunbles backward, gasping for breath. 
+
+The lousy monster took a swipe at Maixenor. He jumps out of the way. The exhilarating combat made the hours seem like seconds. The aurochs leans low, ready to strike with its might. 
+
+He pulled a light crimson potion from his pack and drinks it. He is reinvigorated. The aurochs leans low, ready to strike with its might. 
+
+The aurochs leans low, ready to strike with its might. The abominable monster took a swipe at Maixenor. The dreadful aurochs failed to land its hit. 
+
+A doughty attack suddenly came from Maixenor, its intent to silence the disgusting beast once and for all. Although Maixenor the gutsy's hit landed, aurochs is mostly unphasedStruck by the hefty blow, the aurochs needed a second to recover its footing. The adventurer made a mighty swing at the aurochs with this boarding gaff. Maixenor's strike glanced off of the aurochs's hide. 
+
+He sneaked around to aurochs's blind spot. The aurochs struck with its gore! The adventurer jumps out of the way. 
+
+The boarding gaff of Maixenor was raised high only to be brought down onto the aurochs moments later. Maixenor's strike glanced off of the aurochs's hide. A powerful swing came from the aurochs with very deadly intent. Maixenor the gallant stunbles backward, gasping for breath. Maixenor lunged toward the aurochs, his boarding gaff ready to strike! He landed a massive hit on aurochs! 
+
+Maixenor the stouthearted made a mighty swing at the aurochs with this boarding gaff. The elevated Maixenor landed a massive hit on aurochs! 
+
+Covered with wounds and bruises, the grim aurochs fell over for the last time.
+
+The citizens of Pincark could sleep soundly at night. The high-flown Maixenor had vanquished their greatest nightmare.
+
+## <a name="chapter14"></a> Chapter 14: Hershfos and the Exscinder
+
+Maixenor followed a dirt path into the village of Hershfos. A mapmaker scuttled out of his way. While the wood seller ran from person to person, asking if they had seen Hoiples, a plowman talked excitedly with what appeared to be a nailer. Maixenor continued down the path. A sergeant bit into an apple.
+
+Eventually, Maixenor arrived at the town square, where he found a bronzefounder. Maixenor approached him, hoping for some advice.
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+Two drummers eyed him suspiciously. The man quietly reminised about the past, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Cudd is down the street to the cattle barn and left. You'll see a church. It's past the barn. Look for the large hanging sign that reads "Cudd Fine Supplies". Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 3 small coins. "I want that Kebad gone as much as anybody."
+
+Maixenor hurried towards the armory. Nearby, a engraver hawked fine imported goods from Edirister-Lymon Stralingby. The harness maker hawked fine imported goods from Shephazad with a knight. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Cudd grabbed a dusty book from the shelf and flipped through it. Pictures of dwiergeths and heresy devil (ayngavhaul)s flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "Exscinders are Heaven's censors, scouring the planes for texts containing information too evil or dangerous to be allowed to exist. Exscinders care little for individual lives or everyday heresies, remaining staunchly focused on protecting mortalkind as a whole from corruption."
+
+Maixenor slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Cudd called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the exscinder." 
+
+"Take this aklys. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+Sheathing his aklys, Maixenor leaves Hershfos on a journey to find the exscinder. 
+
+As Maixenor walked along the path out of Hershfos, he turned to his right and saw something mythological.
+
+The bigger than life Maixenor could barely make out some Cut banks in the distance.It reminded the stouthearted Maixenor of the town of Bywayneate End√´ he had visited long ago.
+
+As Maixenor walked along the path out of Hershfos, he turned to his left and saw something tall standing.
+
+Some distant Atolls stood out against the horizon.Maybe they might make for a classic adventure for when Maixenor's current journey is over.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering farrier making his way toward Hershfos. The stranger said to Maixenor
+
+"Take care crossing the Weld Stratovolcanos! They are especially dangerous this time of year."
+
+As Maixenor walked along the path out of Hershfos, he turned to his left and saw something noble.
+
+The Ejecta blankets of Watforbouth Norisle towered over the nearby Capes.Maybe they might make for a stouthearted adventure for when Maixenor's current journey is over.
+
+As Maixenor walked along the path out of Hershfos, he turned to his left and saw something inflated.
+
+Some distant Meanders stood out against the horizon.It reminded he of the town of Newbury he had visited long ago.
+
+Maixenor saw a loathsome exscinder in the distance! He readied his sword. He approched the exscinder cautiously, careful not to rush to an untimely death. 
+
+The exscinder leans low, ready to strike with its might. A powerful swing came from the exscinder with very deadly intent. He stunbles backward, gasping for breath. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the exscinder with very deadly intent. The frightful exscinder failed to land its hit. 
+
+Maixenor took a deep breath and swung toward the nasty exscinder. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the exscinder needed a second to recover its footing. He made a mighty swing at the exscinder with this aklys. Although the gutty Maixenor's hit landed, exscinder is mostly unphased
+
+Maixenor lunged toward the exscinder, his aklys ready to strike! The slippery exscinder evaded Maixenor's hit. Struck by the hefty blow, the exscinder needed a second to recover its footing. Maixenor lunged toward the exscinder, his aklys ready to strike! The exscinder took a glancing blow. 
+
+A powerful swing came from the exscinder with very deadly intent. The gutsy Maixenor blocks the strike with his aklys. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The shattering blow from he rumbled through the ground. 
+
+Maixenor the fire-eating held his aklys tightly, ready to block any attack. Maixenor took a deep breath and swung toward the grim exscinder. The scandalous exscinder was too quick to be hit. 
+
+The fearful monster took a swipe at Maixenor. Our hero jumps out of the way. Maixenor made a mighty swing at the exscinder with this aklys. The exscinder was struck by the blow! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The grim exscinder was too quick to be hit. 
+
+The exscinder eyed Maixenor with a dangerous glare. Maixenor lunged toward the exscinder, his aklys ready to strike! Although he's hit landed, exscinder is mostly unphased
+
+The exscinder leans low, ready to strike with its might. Maixenor made a mighty swing at the exscinder with this aklys. The exscinder was struck by the blow! 
+
+The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. Maixenor's strike glanced off of the exscinder's hide. The monster was stunned by the attack. The intrepid Maixenor pulled a charcoal potion from his pack and drinks it. He is reinvigorated. 
+
+He pulled a boston university red potion from his pack and drinks it. He is reinvigorated. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. That blow seemed like it could break some bones. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The exscinder struck with its flaming longsword! Maixenor jumps out of the way. 
+
+The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The shattering blow from the fearless Maixenor rumbled through the ground. The exscinder struck with its flaming longsword! Our hero winces from the pain but continues fighting. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. Although he's hit landed, exscinder is mostly unphased
+
+A powerful swing came from the exscinder with very deadly intent. The fierce blow from the monster narrowly misses our hero. our hero stumbles to his knee, gasping for breath. The exscinder eyed Maixenor with a dangerous glare. 
+
+The exscinder struck with its flaming longsword! The fierce blow from the monster narrowly misses the adventurer. Maixenor lunged toward the exscinder, his aklys ready to strike! Although he's hit landed, exscinder is mostly unphased
+
+The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The disgusting exscinder was too quick to be hit. The monster was stunned by the attack. Maixenor lunged toward the exscinder, his aklys ready to strike! The exscinder was staggered by the immense force. 
+
+Maixenor lunged toward the exscinder, his aklys ready to strike! The attack from the impavid Maixenor surely left a impression. The evil monster took a swipe at Maixenor. The adventurer blocks the strike with his aklys. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. A sharp crack was heard as the strike left its mark. 
+
+The terrible monster took a swipe at Maixenor. The fairy exscinder failed to land its hit. Maixenor the gritty made a mighty swing at the exscinder with this aklys. The slippery exscinder evaded Maixenor's hit. 
+
+Our hero made a mighty swing at the exscinder with this aklys. He landed a massive hit on exscinder! A powerful swing came from the exscinder with very deadly intent. He stunbles backward, gasping for breath. A epic attack suddenly came from Maixenor, its intent to silence the fairy beast once and for all. Maixenor's strike glanced off of the exscinder's hide. 
+
+The exscinder eyed Maixenor with a dangerous glare. The shameful monster took a swipe at Maixenor. He stunbles backward, gasping for breath. 
+
+A powerful swing came from the exscinder with very deadly intent. He stunbles backward, gasping for breath. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The slippery exscinder evaded Maixenor's hit. 
+
+The adventurer sneaked around to exscinder's blind spot. The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The slippery exscinder evaded Maixenor's hit. 
+
+The exscinder struck with its flaming longsword! He jumps out of the way. our hero stumbles to his knee, gasping for breath. The exscinder leans low, ready to strike with its might. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The exscinder eyed Maixenor with a dangerous glare. 
+
+A powerful swing came from the exscinder with very deadly intent. The fierce blow from the monster narrowly misses he. Maixenor took a deep breath and swung toward the scandalous exscinder. A sharp crack was heard as the strike left its mark. 
+
+The exscinder leans low, ready to strike with its might. A powerful swing came from the exscinder with very deadly intent. He winces from the pain but continues fighting. 
+
+A impavid attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The slippery exscinder evaded Maixenor's hit. Struck by the hefty blow, the exscinder needed a second to recover its footing. He held his aklys tightly, ready to block any attack. 
+
+The aklys of Maixenor was raised high only to be brought down onto the exscinder moments later. The shattering blow from Maixenor the bigger than life rumbled through the ground. 
+
+Covered with wounds and bruises, the detestable exscinder fell over for the last time.
+
+The citizens of Hershfos could sleep soundly at night. The undaunted Maixenor had vanquished their greatest nightmare.
+
+## <a name="chapter15"></a> Chapter 15: Pinghburthn's Acton-onumberbone upooth and the Gray Goo
+
+Maixenor followed a dirt path into the village of Pinghburthn's Acton-onumberbone upooth. The raker talked excitedly with what appeared to be a taverner with a barker. While the dog trainer hawked fine imported goods from Welsill, a housewife sat by the side of the road. Maixenor continued down the path. Two bards finished an apple and tossed the core aside.
+
+Eventually, Maixenor arrived at the town square, where he found a tanner. Maixenor approached him, hoping for some advice.
+
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
+
+A fool for money hawked fine imported goods from Hea. The man sat in silence for a while, then finally responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Eustes is into the market and towards the tavern. Eventually you need to walk down the street to the cattle barn and left. You'll see a monastery. It's just a bit further down the street. Look for the large hanging sign that reads "Eustes Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. The mailmaker finished an apple and tossed the core aside with a attendent. Nearby, a chicken butcher finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Eustes looked up from his work behind a counter at Maixenor.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Eustes grabbed a dusty book from the shelf and flipped through it. Pictures of skavelings and vishaps flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "Swarms of weaponized nanitesómicroscopic mechanical constructs designed to work in large groups to perform varied tasksóreduce anything in their path to wisps of dust. Called "gray goo" by those who don't understand the true nature of the creature's components, some of these horrific swarms were activated as weapons of mass destruction. Others were originally benign, intended to enhance crops and clean them of pests or combat diseases, but malfunctioned and abandoned their programming. Nanites have limited intelligence and potentially respond to commands. Such controlled swarms are capable of relatively complex decision making, and they might spare the treasure their victims carry, for instance, allowing their masters to better loot the bodies."
+
+"But my weapons may be too weak. Are there any other ways to defeat the gray goo?" Maixenor asked.
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Eustes called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the gray goo." 
+
+"Forged by the finest dwarven smiths in the mountains of Wilton-Seveng, this heavy flail is the finest display of craftsmanship for miles around."
+
+With his newfound information, Maixenor departs from Pinghburthn's Acton-onumberbone upooth. 
+
+The ever exaggerated Maixenor continued his long and tiring journey to find the gray goo.
+
+Not once did he regret his choice to not become a builder.
+
+As Maixenor walked along the path out of Pinghburthn's Acton-onumberbone upooth, he turned to his right and saw something bold.
+
+The Confluences of Wor towered over the nearby Structural benchs.Maybe they might make for a impavid adventure for when Maixenor's current journey is over.
+
+The ever intrepid Maixenor continued his long and tiring journey to find the gray goo.
+
+Not once did he regret his choice to not become a roper.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+The adventurer met a wandering herald making his way toward Pinghburthn's Acton-onumberbone upooth. The stranger said to Maixenor
+
+"Take care crossing the Walmarbor Roche moutonn√©es! They are especially dangerous this time of year."
+
+The ever classic Maixenor continued his long and tiring journey to find the gray goo.
+
+Not once did Maixenor the daring regret his choice to not become a bath attendent.
+
+Maixenor saw a obnoxious gray goo in the distance! He readied his sword. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+The adventurer pulled a carmine red potion from his pack and drinks it. He is reinvigorated. The gray goo eyed Maixenor with a dangerous glare. 
+
+The gray goo struck with its swarm! The fearful gray goo failed to land its hit. Maixenor lunged toward the gray goo, his heavy flail ready to strike! The gray goo was struck by the blow! 
+
+He pulled a vivid auburn potion from his pack and drinks it. He is reinvigorated. The gray goo struck with its swarm! He jumps out of the way. 
+
+The gray goo eyed Maixenor with a dangerous glare. Maixenor lunged toward the gray goo, his heavy flail ready to strike! The execrable gray goo was too quick to be hit. 
+
+The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. Maixenor's strike glanced off of the gray goo's hide. The monster was stunned by the attack. He held his heavy flail tightly, ready to block any attack. 
+
+Maixenor held his heavy flail tightly, ready to block any attack. The gray goo struck with its swarm! The fierce blow from the monster narrowly misses the adventurer. 
+
+He pulled a deep tuscan red potion from his pack and drinks it. He is reinvigorated. The gray goo leans low, ready to strike with its might. 
+
+A valorous attack suddenly came from Maixenor, its intent to silence the detestable beast once and for all. Although he's hit landed, gray goo is mostly unphasedThe fairy monster took a swipe at Maixenor. The adventurer stunbles backward, gasping for breath. The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. That blow seemed like it could break some bones. 
+
+Maixenor took a deep breath and swung toward the awful gray goo. The adventurer landed a massive hit on gray goo! The horrid monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses the adventurer. Maixenor took a deep breath and swung toward the hideous gray goo. Maixenor the dauntless landed a massive hit on gray goo! 
+
+Maixenor took a deep breath and swung toward the scary gray goo. The horrid gray goo was too quick to be hit. The monster was stunned by the attack. He held his heavy flail tightly, ready to block any attack. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The gray goo eyed Maixenor with a dangerous glare. 
+
+He pulled a celeste colour potion from his pack and drinks it. He is reinvigorated. The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. The gray goo took a glancing blow. 
+
+A powerful swing came from the gray goo with very deadly intent. Maixenor blocks the strike with his heavy flail. Maixenor stumbles to his knee, gasping for breath. The gray goo struck with its swarm! Our hero jumps out of the way. 
+
+Maixenor pulled a vivid tangerine potion from his pack and drinks it. He is reinvigorated. Maixenor took a deep breath and swung toward the detestable gray goo. The abhorrent gray goo was too quick to be hit. 
+
+Maixenor took a deep breath and swung toward the abominable gray goo. The attack from he surely left a impression. The monster was stunned by the attack. The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. Maixenor's strike glanced off of the gray goo's hide. 
+
+Maixenor lunged toward the gray goo, his heavy flail ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+The gray goo struck with its swarm! The courageous Maixenor blocks the strike with his heavy flail. The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. The shattering blow from he rumbled through the ground. 
+
+Maixenor held his heavy flail tightly, ready to block any attack. He made a mighty swing at the gray goo with this heavy flail. The shattering blow from Maixenor rumbled through the ground. 
+
+The gray goo eyed Maixenor with a dangerous glare. A powerful swing came from the gray goo with very deadly intent. He winces from the pain but continues fighting. 
+
+A powerful swing came from the gray goo with very deadly intent. Maixenor the daring jumps out of the way. He leaned on his heavy flail to catch a moment's respite. He was worn out by the combat. The gray goo struck with its swarm! Maixenor reeled back in pain. 
+
+The gray goo struck with its swarm! The adventurer blocks the strike with his heavy flail. He made a mighty swing at the gray goo with this heavy flail. The slippery gray goo evaded Maixenor's hit. 
+
+The gray goo eyed Maixenor with a dangerous glare. The terrible monster took a swipe at Maixenor. He blocks the strike with his heavy flail. 
+
+He pulled a navajo white potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the gray goo, his heavy flail ready to strike! The dreadful gray goo was too quick to be hit. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The terrifying monster took a swipe at Maixenor. He winces from the pain but continues fighting. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor lunged toward the gray goo, his heavy flail ready to strike! The gray goo took a glancing blow. 
+
+The gray goo struck with its swarm! Maixenor reeled back in pain. Maixenor stumbles to his knee, gasping for breath. The nasty monster took a swipe at Maixenor. Maixenor blocks the strike with his heavy flail. 
+
+A powerful swing came from the gray goo with very deadly intent. He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The gray goo eyed Maixenor with a dangerous glare. 
+
+The heavy flail of Maixenor was raised high only to be brought down onto the gray goo moments later. The gray goo took a glancing blow. 
+
+Covered with wounds and bruises, the abominable gray goo fell over for the last time.
+
+Maixenor says
+
+"That didn't seem so hard, I don't know what Eustes was talking about."
+
+## <a name="chapter16"></a> Chapter 16: Stan and the Thunder Behemoth
+
+Maixenor followed a dirt path into the village of Stan. Nearby, a siege engineer loaded a market stall with wares. Nearby, a pilgrim gazed at him from an open window. Maixenor continued down the path. Nearby, a bricker talked excitedly with what appeared to be a painter.
+
+Eventually, Maixenor arrived at the town square, where he found a upholder. The man, eying his dangerous demeanor, beckoned him forward.
+
+"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
+
+While the jester slept in an alleyway, a papermaker talked excitedly with what appeared to be a rectifier. The man quietly reminised about the pastHe finally responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Tankratinus is just a bit further down the street. Look for the large hanging sign that reads "Tankratinus Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. Nearby, a wiredrawer eyed him suspiciously. A franklin stood by a market stall, negotiating with the pilot. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Tankratinus grabbed a dusty book from the shelf and flipped through it. Pictures of ketesthiuss and unfettered phantoms flew by. Eventually he settled on a page and started to explain.
+
+Tankratinus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Thunder behemoths walk the land as little more than roving appetites, driven by an all-consuming hunger to devour every animal, plant, and even building in sight. They indiscriminately gorge their five seemingly bottomless stomachs on forests and jungles, collapse mine and mountain alike in search of ore, and raze settlements and strongholds for the cowering morsels within."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+Tankratinus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Thunder behemoths are sent out by the gods to destroy wicked cities, raze great temples or monuments that offend divine eyes, and otherwise act as instruments of divine wrath either on the surface of a world or just below it. The days before a thunder behemoth arrives are fraught with minor but unnerving earthquakes, mass exoduses of burrowing animals to the surface, and an unexplained increase in fallen trees and sinkholes."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Tankratinus called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the thunder behemoth." 
+
+"Forged by the finest dwarven smiths in the mountains of Tauld, this ankus is the finest display of craftsmanship for miles around."
+
+Sheathing his ankus, Maixenor leaves Stan on a journey to find the thunder behemoth. 
+
+The ever valorous Maixenor continued his long and tiring journey to find the thunder behemoth.
+
+Not once did he regret his choice to not become a sergeant.
+
+As Maixenor walked along the path out of Stan, he turned to his right and saw something intrepid.
+
+Contrasting against the nearby Pediplains, the great Manningtoch Fjords provided a refreshing view.Maybe they might make for a grand adventure for when Maixenor's current journey is over.
+
+As Maixenor walked along the path out of Stan, he turned to his left and saw something impavid.
+
+The Drumlins of Baresterth towered over the nearby Geysers.Maybe they might make for a intrepid adventure for when Maixenor's current journey is over.
+
+The ever gutty Maixenor continued his long and tiring journey to find the thunder behemoth.
+
+Not once did Maixenor regret his choice to not become a bellfounder.
+
+As Maixenor walked along the path out of Stan, he turned to his left and saw something valiant.
+
+The Watersheds of Pinarrombetham Brebiccas 2 & Cithrow towered over the nearby Kames.It reminded the valorous Maixenor of the town of Wemoss he had visited long ago.
+
+Maixenor saw a scary thunder behemoth in the distance! Our hero fixed his gaze on the hideous sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+He sneaked around to thunder behemoth's blind spot. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The appalling monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses our hero. 
+
+A bigger than life attack suddenly came from Maixenor, its intent to silence the detestable beast once and for all. The slippery thunder behemoth evaded Maixenor's hit. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+A powerful swing came from the thunder behemoth with very deadly intent. He winces from the pain but continues fighting. Maixenor the valiant made a mighty swing at the thunder behemoth with this ankus. Although the adventurer's hit landed, thunder behemoth is mostly unphased
+
+The adventurer pulled a carnelian potion from his pack and drinks it. He is reinvigorated. The thunder behemoth struck with its bite! The terrible thunder behemoth failed to land its hit. 
+
+He pulled a saddle brown potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the thunder behemoth, his ankus ready to strike! Maixenor's strike glanced off of the thunder behemoth's hide. 
+
+Maixenor lunged toward the thunder behemoth, his ankus ready to strike! The slippery thunder behemoth evaded Maixenor's hit. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. Maixenor cleared his mind, preparing himself for the combat to come.
+
+Maixenor the dauntless pulled a brilliant rose potion from his pack and drinks it. He is reinvigorated. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+Our hero held his ankus tightly, ready to block any attack. Maixenor lunged toward the thunder behemoth, his ankus ready to strike! The thunder behemoth was staggered by the immense force. 
+
+The thunder behemoth leans low, ready to strike with its might. Maixenor lunged toward the thunder behemoth, his ankus ready to strike! The intrepid Maixenor landed a massive hit on thunder behemoth! 
+
+Maixenor took a deep breath and swung toward the smelly thunder behemoth. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. A epic attack suddenly came from Maixenor, its intent to silence the ruinous beast once and for all. The thunder behemoth was staggered by the immense force. 
+
+Maixenor took a deep breath and swung toward the offensive thunder behemoth. The slippery thunder behemoth evaded Maixenor's hit. A powerful swing came from the thunder behemoth with very deadly intent. The adventurer stunbles backward, gasping for breath. Maixenor took a deep breath and swung toward the shocking thunder behemoth. The thunder behemoth took a glancing blow. 
+
+Maixenor took a deep breath and swung toward the horrendous thunder behemoth. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. The tall standing Maixenor made a mighty swing at the thunder behemoth with this ankus. Maixenor's strike glanced off of the thunder behemoth's hide. 
+
+The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. Maixenor's strike glanced off of the thunder behemoth's hide. The monster was stunned by the attack. A valorous attack suddenly came from Maixenor, its intent to silence the lousy beast once and for all. That blow seemed like it could break some bones. 
+
+He sneaked around to thunder behemoth's blind spot. A powerful swing came from the thunder behemoth with very deadly intent. The fierce blow from the monster narrowly misses he. 
+
+The thunder behemoth leans low, ready to strike with its might. A dauntless attack suddenly came from Maixenor, its intent to silence the abominable beast once and for all. Maixenor's strike glanced off of the thunder behemoth's hide. 
+
+The thunder behemoth struck with its bite! He winces from the pain but continues fighting. He leaned on his ankus to catch a moment's respite. The adventurer was worn out by the combat. The thunder behemoth struck with its bite! The fierce blow from the monster narrowly misses Maixenor. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. The adventurer stunbles backward, gasping for breath. our hero stumbles to his knee, gasping for breath. The thunder behemoth leans low, ready to strike with its might. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. Maixenor winces from the pain but continues fighting. Maixenor the grand leaned on his ankus to catch a moment's respite. The adventurer was worn out by the combat. The thunder behemoth struck with its bite! He jumps out of the way. 
+
+Maixenor held his ankus tightly, ready to block any attack. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. A sharp crack was heard as the strike left its mark. 
+
+A valiant attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. The thunder behemoth took a glancing blow. The monster was stunned by the attack. Our hero pulled a ao english potion from his pack and drinks it. He is reinvigorated. 
+
+The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+A powerful swing came from the thunder behemoth with very deadly intent. The gutsy Maixenor winces from the pain but continues fighting. Maixenor leaned on his ankus to catch a moment's respite. Maixenor was worn out by the combat. A powerful swing came from the thunder behemoth with very deadly intent. Maixenor reeled back in pain. 
+
+The repellent monster took a swipe at Maixenor. Maixenor blocks the strike with his ankus. The exhilarating combat made the hours seem like seconds. The thunder behemoth struck with its bite! The fierce blow from the monster narrowly misses Maixenor. 
+
+The horrendous monster took a swipe at Maixenor. He jumps out of the way. The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. The attack from Maixenor surely left a impression. 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. The thunder behemoth struck with its bite! He jumps out of the way. 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. A powerful swing came from the thunder behemoth with very deadly intent. Maixenor reeled back in pain. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The thunder behemoth struck with its bite! The fierce blow from the monster narrowly misses Maixenor. 
+
+The mean monster took a swipe at Maixenor. The exaggerated Maixenor winces from the pain but continues fighting. Maixenor lunged toward the thunder behemoth, his ankus ready to strike! Although he's hit landed, thunder behemoth is mostly unphased
+
+The thunder behemoth leans low, ready to strike with its might. The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. The attack from Maixenor surely left a impression. 
+
+A unafraid attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The scary thunder behemoth was too quick to be hit. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. The classic Maixenor sneaked around to thunder behemoth's blind spot. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The thunder behemoth leans low, ready to strike with its might. 
+
+He pulled a sapphire potion from his pack and drinks it. He is reinvigorated. A intrepid attack suddenly came from Maixenor, its intent to silence the appalling beast once and for all. The thunder behemoth took a glancing blow. 
+
+Maixenor held his ankus tightly, ready to block any attack. The thunder behemoth struck with its bite! The fierce blow from the monster narrowly misses the classic Maixenor. 
+
+Maixenor lunged toward the thunder behemoth, his ankus ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. A undaunted attack suddenly came from Maixenor, its intent to silence the sickie beast once and for all. The thunder behemoth took a glancing blow. 
+
+Maixenor pulled a american rose potion from his pack and drinks it. He is reinvigorated. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+A bigger than life attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The attack from our hero surely left a impression. A powerful swing came from the thunder behemoth with very deadly intent. The awful thunder behemoth failed to land its hit. The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. That blow seemed like it could break some bones. 
+
+A inflated attack suddenly came from Maixenor, its intent to silence the repulsive beast once and for all. A sharp crack was heard as the strike left its mark. A powerful swing came from the thunder behemoth with very deadly intent. The adventurer stunbles backward, gasping for breath. Maixenor took a deep breath and swung toward the shocking thunder behemoth. Maixenor's strike glanced off of the thunder behemoth's hide. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. The offensive thunder behemoth failed to land its hit. Maixenor lunged toward the thunder behemoth, his ankus ready to strike! The slippery thunder behemoth evaded Maixenor's hit. 
+
+Our hero held his ankus tightly, ready to block any attack. The offensive monster took a swipe at Maixenor. The terrifying thunder behemoth failed to land its hit. 
+
+Our hero made a mighty swing at the thunder behemoth with this ankus. The thunder behemoth took a glancing blow. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. He sneaked around to thunder behemoth's blind spot. 
+
+The eerie monster took a swipe at Maixenor. He jumps out of the way. The exhilarating combat made the hours seem like seconds. The loathsome monster took a swipe at Maixenor. The adventurer winces from the pain but continues fighting. 
+
+The grandiose Maixenor sneaked around to thunder behemoth's blind spot. The thunder behemoth struck with its bite! Maixenor reeled back in pain. 
+
+Maixenor took a deep breath and swung toward the repulsive thunder behemoth. That blow seemed like it could break some bones. The monster was stunned by the attack. He pulled a tufts blue potion from his pack and drinks it. He is reinvigorated. 
+
+The thunder behemoth struck with its bite! He blocks the strike with his ankus. the adventurer stumbles to his knee, gasping for breath. The repulsive monster took a swipe at Maixenor. Maixenor the dauntless blocks the strike with his ankus. 
+
+The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. A high-flown attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. The attack from he surely left a impression. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. The thunder behemoth was struck by the blow! 
+
+Maixenor lunged toward the thunder behemoth, his ankus ready to strike! The slippery thunder behemoth evaded Maixenor's hit. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. He held his ankus tightly, ready to block any attack. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. The lousy thunder behemoth failed to land its hit. The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. The thunder behemoth was struck by the blow! 
+
+Maixenor the high-flown held his ankus tightly, ready to block any attack. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+The cruel monster took a swipe at Maixenor. Our hero winces from the pain but continues fighting. He made a mighty swing at the thunder behemoth with this ankus. The slippery thunder behemoth evaded Maixenor's hit. 
+
+Our hero held his ankus tightly, ready to block any attack. He made a mighty swing at the thunder behemoth with this ankus. The slippery thunder behemoth evaded Maixenor's hit. 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. The adventurer made a mighty swing at the thunder behemoth with this ankus. That blow seemed like it could break some bones. 
+
+He pulled a old lace potion from his pack and drinks it. He is reinvigorated. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+He made a mighty swing at the thunder behemoth with this ankus. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the ungodly thunder behemoth. The thunder behemoth was struck by the blow! 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. He made a mighty swing at the thunder behemoth with this ankus. A sharp crack was heard as the strike left its mark. 
+
+The thunder behemoth leans low, ready to strike with its might. A fire-eating attack suddenly came from Maixenor, its intent to silence the offensive beast once and for all. The slippery thunder behemoth evaded Maixenor's hit. 
+
+The valorous Maixenor pulled a medium taupe potion from his pack and drinks it. He is reinvigorated. A gutsy attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. Maixenor landed a massive hit on thunder behemoth! 
+
+A powerful swing came from the thunder behemoth with very deadly intent. He winces from the pain but continues fighting. Maixenor stumbles to his knee, gasping for breath. The thunder behemoth leans low, ready to strike with its might. 
+
+He made a mighty swing at the thunder behemoth with this ankus. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. He made a mighty swing at the thunder behemoth with this ankus. The thunder behemoth was struck by the blow! 
+
+The thunder behemoth leans low, ready to strike with its might. The thunder behemoth struck with its bite! Maixenor winces from the pain but continues fighting. 
+
+The hideous monster took a swipe at Maixenor. He blocks the strike with his ankus. our hero stumbles to his knee, gasping for breath. The thunder behemoth leans low, ready to strike with its might. 
+
+The thunder behemoth leans low, ready to strike with its might. The scary monster took a swipe at Maixenor. The hideous thunder behemoth failed to land its hit. 
+
+The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. Maixenor took a deep breath and swung toward the obnoxious thunder behemoth. The thunder behemoth was struck by the blow! 
+
+A bold attack suddenly came from Maixenor, its intent to silence the repellent beast once and for all. The thunder behemoth took a glancing blow. A powerful swing came from the thunder behemoth with very deadly intent. The fierce blow from the monster narrowly misses he. A doughty attack suddenly came from Maixenor, its intent to silence the frightful beast once and for all. The slippery thunder behemoth evaded Maixenor's hit. 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. A powerful swing came from the thunder behemoth with very deadly intent. The fierce blow from the monster narrowly misses Maixenor the gritty. 
+
+The thunder behemoth eyed Maixenor with a dangerous glare. A powerful swing came from the thunder behemoth with very deadly intent. The horrid thunder behemoth failed to land its hit. 
+
+The daring Maixenor pulled a grullo potion from his pack and drinks it. He is reinvigorated. The ghastly monster took a swipe at Maixenor. He jumps out of the way. 
+
+Maixenor took a deep breath and swung toward the repulsive thunder behemoth. The thunder behemoth was staggered by the immense force. The monster was stunned by the attack. Our hero pulled a dark magenta potion from his pack and drinks it. He is reinvigorated. 
+
+He pulled a pumpkin potion from his pack and drinks it. He is reinvigorated. The horrid monster took a swipe at Maixenor. The adventurer jumps out of the way. 
+
+Maixenor the noble made a mighty swing at the thunder behemoth with this ankus. The slippery thunder behemoth evaded Maixenor's hit. A powerful swing came from the thunder behemoth with very deadly intent. The fierce blow from the monster narrowly misses Maixenor the classic. Maixenor the bigger than life made a mighty swing at the thunder behemoth with this ankus. The slippery thunder behemoth evaded Maixenor's hit. 
+
+The daring Maixenor held his ankus tightly, ready to block any attack. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. He jumps out of the way. A valiant attack suddenly came from Maixenor, its intent to silence the scandalous beast once and for all. Maixenor's strike glanced off of the thunder behemoth's hide. 
+
+Maixenor took a deep breath and swung toward the horrid thunder behemoth. That blow seemed like it could break some bones. The thunder behemoth struck with its bite! The dreadful thunder behemoth failed to land its hit. The ankus of Maixenor was raised high only to be brought down onto the thunder behemoth moments later. The mean thunder behemoth was too quick to be hit. 
+
+Maixenor lunged toward the thunder behemoth, his ankus ready to strike! Maixenor's strike glanced off of the thunder behemoth's hide. Struck by the hefty blow, the thunder behemoth needed a second to recover its footing. The adventurer held his ankus tightly, ready to block any attack. 
+
+The thunder behemoth struck with its bite! The fierce blow from the monster narrowly misses Maixenor the grandiose. The exhilarating combat made the hours seem like seconds. The thunder behemoth struck with its bite! He jumps out of the way. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. He stunbles backward, gasping for breath. Our hero leaned on his ankus to catch a moment's respite. He was worn out by the combat. A powerful swing came from the thunder behemoth with very deadly intent. The fierce blow from the monster narrowly misses he. 
+
+A powerful swing came from the thunder behemoth with very deadly intent. He blocks the strike with his ankus. Our hero leaned on his ankus to catch a moment's respite. The adventurer was worn out by the combat. The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The thunder behemoth eyed Maixenor with a dangerous glare. 
+
+Maixenor took a deep breath and swung toward the revolting thunder behemoth. The thunder behemoth was struck by the blow! The revolting monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses he. A exaggerated attack suddenly came from Maixenor, its intent to silence the ruinous beast once and for all. The slippery thunder behemoth evaded Maixenor's hit. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The thunder behemoth struck with its bite! Maixenor blocks the strike with his ankus. 
+
+A daring attack suddenly came from Maixenor, its intent to silence the offensive beast once and for all. That blow seemed like it could break some bones. The disgusting monster took a swipe at Maixenor. Maixenor winces from the pain but continues fighting. Maixenor the elevated made a mighty swing at the thunder behemoth with this ankus. A sharp crack was heard as the strike left its mark. 
+
+Maixenor took a deep breath and swung toward the horrid thunder behemoth. The attack from he surely left a impression. 
+
+Maixenor's last strike hit the thunder behemoth directly in the heary. A fatal blow.
+
+The adventurer was victorious! The thunder behemoth menaced for no longer! 
+
+## <a name="chapter17"></a> Chapter 17: Hark and the Choker
+
+Maixenor followed a dirt path into the village of Hark. Nearby, a gemcutter scuttled out of his way. A jester eyed him suspiciously. Maixenor continued down the path. A waxchandler slept in an alleyway.
+
+Eventually, Maixenor arrived at the town square, where he found a navigator. Maixenor approached him, hoping for some advice.
+
+"My name is Maixenor, and it is my quest to defeat the evil wizard Kebad." Maixenor announced.
+
+The cutler sat by the side of the road with a engraver. The man sat in silence for a while, then finally responded.
+
+"Our village of Hark will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"The armory is down the street to the cattle barn and left. You'll see a warehouse. It's just a bit further down the street. Look for the large hanging sign that reads "Larent Fine Supplies". You'll find Larent, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. Nearby, a mosaic layer rushed by quickly, ignoring him. The plumber ran from person to person, asking if they had seen Albin with a terrazo grinder. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Larent grabbed a dusty book from the shelf and flipped through it. Pictures of leucrottas and qallupilluks flew by. Eventually he settled on a page and started to explain.
+
+Larent returned to the book of monsters on the desk and pointed at the terrifying illustration. "Underground predators that often dwell on the outskirts of subterranean ruins or in the deep shadows of nameless cavern outposts, chokers lurk in the darkness and lash out with their long, rubbery arms to grasp prey as it passes by. They seldom attack multiple enemies at once, stalking their quarry until they can isolate a weaker victim from its pack."
+
+"I could handle that. Tell me again, what makes the choker so bad?" Maixenor responded.
+
+Larent returned to the book of monsters on the desk and pointed at the terrifying illustration. "Chokers walk with a disturbing, almost comical gait due to their extremely limber legs. Weighing only 35 pounds and standing no taller than a halfling, chokers have no problem skittering across walls and ceilings, often lodging themselves into shadowy corners, tunnel intersections, walls, or staircases. A choker will attempt to grasp creatures of almost any size, but prefers lone prey of its size or smaller. "
+
+"But my weapons may be too weak. Are there any other ways to defeat the choker?" Maixenor asked.
+
+"Chokers appear to have little culture of their own, gathering only briefly to mate before their wanderlust and hunger spurs them again to a solitary existence. Their just-better-than-animalistic intelligence grants them a fascination with the trappings of society even if they do not truly understand it. Accordingly, the grubby lair of a choker (often situated in a difficult-to-reach nook or cranny) usually contains valuable objects such as rings, brooches, cloak clasps, and loose coins gathered from devoured victims." Larent explained.
+
+Maixenor slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"This fascination occasionally compels a choker to abandon its subterranean home for a closer study of the sunlit world's many civilizations. These chokers feel most at home in the darkened narrow alleyways of human cities, squeezing themselves into sewers, forgotten alcoves, barrels, and similar cramped, overlooked spaces. Chokers prefer to keep hidden during the light of day, emerging from their hidey-holes under cover of darkness to hunt for food and cruel pleasure. Favorite tactics include using their long arms to scoop prey off the street from the safety of a nearby rooftop, attacking sleeping families by squeezing through an open chimney, or tapping on a window to bring their curious food within grasping distance." Larent explained.
+
+Maixenor slipped the man 9 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+
+As Maixenor turned to leave the armory, Larent called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the choker." 
+
+"Take this spring blade. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+With his newfound information, Maixenor departs from Hark. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering almoner making his way toward Hark. The stranger said to Maixenor
+
+"I knew a noble hero like you. He met his end far too early. I hope that you are better prepared for your future."
+
+The ever valiant Maixenor continued his long and tiring journey to find the choker.
+
+Not once did Maixenor regret his choice to not become a fabricshearer.
+
+The ever unafraid Maixenor continued his long and tiring journey to find the choker.
+
+Not once did he regret his choice to not become a footpad.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+Our hero met a wandering player making his way toward Hark. The stranger said to Maixenor
+
+"You must be on your way to kill the choker. I wish you the best of luck!"
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering molecatcher making his way toward Hark. The stranger said to Maixenor
+
+"Take care crossing the Chistere Parnedhingtokingtoket Tower karsts! They are especially dangerous this time of year."
+
+Maixenor saw a repulsive choker in the distance! Our hero fixed his gaze on the nasty sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The menacing monster took a swipe at Maixenor. He stunbles backward, gasping for breath. 
+
+Our hero held his spring blade tightly, ready to block any attack. A powerful swing came from the choker with very deadly intent. The horrendous choker failed to land its hit. 
+
+The choker leans low, ready to strike with its might. The spring blade of Maixenor was raised high only to be brought down onto the choker moments later. Maixenor's strike glanced off of the choker's hide. 
+
+The choker struck with its tentacles! The adventurer blocks the strike with his spring blade. Maixenor leaned on his spring blade to catch a moment's respite. The adventurer was worn out by the combat. The choker leans low, ready to strike with its might. 
+
+Maixenor took a deep breath and swung toward the evil choker. The slippery choker evaded Maixenor's hit. The choker struck with its tentacles! He winces from the pain but continues fighting. The grand Maixenor made a mighty swing at the choker with this spring blade. Maixenor's strike glanced off of the choker's hide. 
+
+The choker struck with its tentacles! He blocks the strike with his spring blade. The exhilarating combat made the hours seem like seconds. The choker struck with its tentacles! The gallant Maixenor jumps out of the way. 
+
+The adventurer held his spring blade tightly, ready to block any attack. The choker eyed Maixenor with a dangerous glare. 
+
+The grisly monster took a swipe at Maixenor. He blocks the strike with his spring blade. The adventurer leaned on his spring blade to catch a moment's respite. Maixenor was worn out by the combat. The choker leans low, ready to strike with its might. 
+
+Maixenor lunged toward the choker, his spring blade ready to strike! Although the adventurer's hit landed, choker is mostly unphasedThe scary monster took a swipe at Maixenor. He stunbles backward, gasping for breath. A mythological attack suddenly came from Maixenor, its intent to silence the cruel beast once and for all. The choker took a glancing blow. 
+
+A powerful swing came from the choker with very deadly intent. The lurid choker failed to land its hit. The exhilarating combat made the hours seem like seconds. The revolting monster took a swipe at Maixenor. The lousy choker failed to land its hit. 
+
+The daring Maixenor pulled a maroon x11 potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the choker, his spring blade ready to strike! The choker was staggered by the immense force. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The terrible monster took a swipe at Maixenor. He jumps out of the way. 
+
+Maixenor lunged toward the choker, his spring blade ready to strike! The choker was struck by the blow! Struck by the hefty blow, the choker needed a second to recover its footing. Maixenor cleared his mind, preparing himself for the combat to come.
+
+Maixenor the impavid made a mighty swing at the choker with this spring blade. The attack from our hero surely left a impression. 
+
+Covered with wounds and bruises, the nasty choker fell over for the last time.
+
+Maixenor says
+
+"That didn't seem so hard, I don't know what Larent was talking about."
+
+## <a name="chapter18"></a> Chapter 18: Woodilinastoninalembley and the Knight Ant
+
+Maixenor followed a dirt path into the village of Woodilinastoninalembley. While the tanner bit into an apple, a ironmonger bit into an apple. While the tapestrymaker gazed at him from an open window, a oil merchant ran from person to person, asking if they had seen Halos. Maixenor continued down the path. Two gunstockers rushed by quickly, ignoring him.
+
+Eventually, Maixenor arrived at the town square, where he found a sergeant. Maixenor approached him, hoping for some advice.
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+Nearby, a fresco painter stood by a market stall, negotiating with the fabricshearer. The man sat in silence for a while, but eventually responded.
+
+"Our village of Woodilinastoninalembley will gladly help you on your quest. What do you need?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Xurdas is just a bit further down the street. Look for the large hanging sign that reads "Xurdas Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Maixenor hurried towards the armory. Two glaziers slowly carried supplies. Two scabbard makers scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Xurdas grabbed a dusty book from the shelf and flipped through it. Pictures of mindslaver molds and slicer beetles flew by. Eventually he settled on a page and started to explain.
+
+The armorer sighed and continued. "These giant ants use pheromones to organize the complex work and protection of their colonies, identifying insects of their own or allied colonies and warding off intruders. They have a specialized physiology, including both enhanced pheromone glands and an especially wide, oversized head. The sheer size of its head allows a knight ant to block off entire tunnels within the hive in order to protect its fellow ants. It remains in place long enough to fend off invaders, even at the cost of its own life."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
+
+Xurdas returned to the book of monsters on the desk and pointed at the terrifying illustration. "A knight ant is 10 feet long and weighs approximately 1,100 pounds. Its head is 7 feet across, and the flanges on the sides make it appear slightly concave."
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
 "That's all I can tell you."
 
-Alkmain saw a loathsome killer seahorse in the distance! Our hero fixed his gaze on the heinous sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Xurdas called out
 
-He pulls a sand dune potion from his pack and drinks it. He is reinvigorated. The killer seahorse struck with its bite! The adventurer blocks the strike with his sword. 
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. The monster was stunned by the attack. He pulls a cambridge blue potion from his pack and drinks it. He is reinvigorated. 
+"Take this crook. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-The killer seahorse struck with its bite! Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The killer seahorse leans low, ready to strike with its might. 
+With his newfound information, Maixenor departs from Woodilinastoninalembley. 
 
-The killer seahorse struck with its bite! The fearful killer seahorse failed to land its hit. Alkmain lunged toward the killer seahorse, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The ever mythological Maixenor continued his long and tiring journey to find the knight ant.
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The killer seahorse took a glancing blow. The killer seahorse struck with its bite! The terrible killer seahorse failed to land its hit. Alkmain lunged toward the killer seahorse, his sword ready to strike! The killer seahorse was staggered by the immense force. 
+Not once did he regret his choice to not become a lanternmaker.
 
-Alkmain pulls a wenge potion from his pack and drinks it. He is reinvigorated. The killer seahorse leans low, ready to strike with its might. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses Alkmain the gritty. 
+He met a wandering sherrif making his way toward Woodilinastoninalembley. The stranger said to Maixenor
 
-He pulls a rackley potion from his pack and drinks it. He is reinvigorated. The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses he. 
+"The knight ant killed my brother. I would be heading back to end that horrid thing if only it hadn't taken my eye the first time I tried."
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. The killer seahorse struck with its bite! The grim killer seahorse failed to land its hit. Alkmain lunged toward the killer seahorse, his sword ready to strike! Although he's hit landed, killer seahorse is mostly unphased
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The killer seahorse struck with its bite! Alkmain reeled back in pain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The killer seahorse struck with its bite! Alkmain the mythological jumps out of the way. 
+He met a wandering musician making his way toward Woodilinastoninalembley. The stranger said to Maixenor
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The attack from Alkmain surely left a impression. The monster was stunned by the attack. Alkmain the fire-eating sneaked around to killer seahorse's blind spot. 
+"Take care crossing the Arch Mud volcanos! They are especially dangerous this time of year."
 
-He sneaked around to killer seahorse's blind spot. The killer seahorse struck with its bite! Alkmain the high-flown winces from the pain but continues fighting. 
+The ever stouthearted Maixenor continued his long and tiring journey to find the knight ant.
 
-The gutty Alkmain pulls a mantis potion from his pack and drinks it. He is reinvigorated. The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses he. 
+Not once did our hero regret his choice to not become a barber.
 
-The killer seahorse leans low, ready to strike with its might. Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-He pulls a caribbean green potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. 
+He met a wandering sapper making his way toward Woodilinastoninalembley. The stranger said to Maixenor
 
-He sneaked around to killer seahorse's blind spot. The killer seahorse struck with its bite! The unholy killer seahorse failed to land its hit. 
+"I knew a doughty hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. 
+Maixenor saw a fearful knight ant in the distance! Our hero fixed his gaze on the gruesome sight. Maixenor the grand approched the knight ant cautiously, careful not to rush to an untimely death. 
 
-The killer seahorse struck with its bite! Alkmain stunbles backward, gasping for breath. Alkmain lunged toward the killer seahorse, his sword ready to strike! That blow seemed like it could break some bones. 
+The knight ant eyed Maixenor with a dangerous glare. Maixenor took a deep breath and swung toward the scandalous knight ant. The attack from he surely left a impression. 
 
-The killer seahorse struck with its bite! The shocking killer seahorse failed to land its hit. Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. 
+The epic Maixenor sneaked around to knight ant's blind spot. Maixenor lunged toward the knight ant, his crook ready to strike! Although he's hit landed, knight ant is mostly unphased
 
-He pulls a french lime potion from his pack and drinks it. He is reinvigorated. The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
+The knight ant leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the detestable knight ant. The smelly knight ant was too quick to be hit. 
 
-Alkmain lunged toward the killer seahorse, his sword ready to strike! The slippery killer seahorse evaded Alkmain's hit. The killer seahorse struck with its bite! He jumps out of the way. Alkmain lunged toward the killer seahorse, his sword ready to strike! He landed a massive hit on killer seahorse! 
+The crook of Maixenor was raised high only to be brought down onto the knight ant moments later. Although he's hit landed, knight ant is mostly unphasedStruck by the hefty blow, the knight ant needed a second to recover its footing. He made a mighty swing at the knight ant with this crook. Although he's hit landed, knight ant is mostly unphased
 
-The killer seahorse struck with its bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The killer seahorse struck with its bite! The lurid killer seahorse failed to land its hit. 
+The heinous monster took a swipe at Maixenor. The grim knight ant failed to land its hit. The exhilarating combat made the hours seem like seconds. The scandalous monster took a swipe at Maixenor. He jumps out of the way. 
 
-The killer seahorse struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The killer seahorse struck with its bite! He jumps out of the way. 
+The crook of Maixenor was raised high only to be brought down onto the knight ant moments later. The knight ant was struck by the blow! The knight ant struck with its bite! The fierce blow from the monster narrowly misses the adventurer. The crook of Maixenor was raised high only to be brought down onto the knight ant moments later. A sharp crack was heard as the strike left its mark. 
 
-Our hero was victorious! The killer seahorse menaced for no longer! 
+The crook of Maixenor was raised high only to be brought down onto the knight ant moments later. The knight ant was struck by the blow! A powerful swing came from the knight ant with very deadly intent. Our hero jumps out of the way. A tall standing attack suddenly came from Maixenor, its intent to silence the appalling beast once and for all. The slippery knight ant evaded Maixenor's hit. 
 
-## <a name="chapter8"></a> Chapter 8: Edgel and the Kalavakus
+Maixenor made a mighty swing at the knight ant with this crook. The knight ant took a glancing blow. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the fairy knight ant. Maixenor's strike glanced off of the knight ant's hide. 
 
-Alkmain followed a dirt path into the village of Edgel. While the chantry priest slowly carried supplies, a midwife gazed at him from an open window. Two miners hawked fine imported goods from Nord. Alkmain continued down the path. A balancemaker threw punches.
+Maixenor lunged toward the knight ant, his crook ready to strike! That blow seemed like it could break some bones. 
 
-Eventually, Alkmain arrived at the town square, where he found a peasant. The man, eying his strong forearms, beckoned him forward.
+Maixenor's last strike hit the knight ant directly in the heary. A fatal blow.
+
+Maixenor says
+
+"That didn't seem so hard, I don't know what Xurdas was talking about."
+
+## <a name="chapter19"></a> Chapter 19: Weadder and the Ocean Giant
+
+Maixenor followed a dirt path into the village of Weadder. The summoner scuttled out of his way with a waferer. The sapper stood by a market stall, negotiating with the hawker with a chancellor. Maixenor continued down the path. A saltboiler slowly carried supplies.
+
+Eventually, Maixenor arrived at the town square, where he found a confectioner. Maixenor approached him, hoping for some advice.
+
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
+
+The thresher rushed by quickly, ignoring him with a salter. The man sat in silence for a while, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Kili is the best in town. His shop is down the street to the barn and left. You'll see a tavern. It's into the market and towards the inn. Eventually you need to walk past the church. Look for the large hanging sign that reads "Kili Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
+
+Maixenor hurried towards the armory. Nearby, a maidservant scuttled out of his way. Nearby, a silkmaid slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+Kili grabbed a dusty book from the shelf and flipped through it. Pictures of garden oozes and river drakes flew by. Eventually he settled on a page and started to explain.
+
+"Ocean giants embody the great extremes of the sea. Their skin colors vary from deep blue to pale green, and their eyes and hair range from foamy white to coral pink. They decorate themselves with the treasures of the sea, wearing shell jewelry or scrimshaw, and clothing woven from underwater plants, or even salvaged sails. Each ocean giant carries a hand-crafted musical horn made from a conch shell, an object of cultural significance representing its family history and travels on the vast sea." Kili explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the ocean giant?" Maixenor asked.
+
+Kili returned to the book of monsters on the desk and pointed at the terrifying illustration. "Many ocean giants view themselves as guardians of the sea, its creatures, and those who travel the waves, safeguarding their charges from remarkable coral towers. Others, however, claim domains measuring thousands of leagues, enslaving the beasts and aquatic races within and shattering any ship that dares trespass near their citadels of urchins and bones."
+
+Maixenor slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+Kili returned to the book of monsters on the desk and pointed at the terrifying illustration. "Adult ocean giants stand approximately 22 feet tall and weigh about 15,000 pounds. Most live to be about 500 years old."
+
+Maixenor slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Kili called out
+
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the ocean giant." 
+
+"Take this elven curve blade. It has served a well over a dozen adventureres before you and it should serve you well too."
+
+Sheathing his elven curve blade, Maixenor leaves Weadder on a journey to find the ocean giant. 
+
+As Maixenor walked along the path out of Weadder, he turned to his left and saw something courageous.
+
+The Plateaus of Ston towered over the nearby Plains.It reminded he of the town of Cock he had visited long ago.
+
+The ever bold Maixenor continued his long and tiring journey to find the ocean giant.
+
+Not once did the adventurer regret his choice to not become a fletcher.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+The valorous Maixenor met a wandering bronzefounder making his way toward Weadder. The stranger said to Maixenor
+
+"The ocean giant killed my brother. I would be heading back to end that eerie thing if only it hadn't taken my eye the first time I tried."
+
+As Maixenor walked along the path out of Weadder, he turned to his left and saw something classic.
+
+The Vales of Ath towered over the nearby mountain coves.Maybe they might make for a mythological adventure for when Maixenor's current journey is over.
+
+The ever grand Maixenor continued his long and tiring journey to find the ocean giant.
+
+Not once did our hero regret his choice to not become a chandler.
+
+Maixenor saw a shocking ocean giant in the distance! He readied his sword. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The repulsive monster took a swipe at Maixenor. The courageous Maixenor winces from the pain but continues fighting. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The ocean giant eyed Maixenor with a dangerous glare. 
+
+The epic Maixenor sneaked around to ocean giant's blind spot. A gutty attack suddenly came from Maixenor, its intent to silence the repulsive beast once and for all. The ocean giant was struck by the blow! 
+
+The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses Maixenor. He leaned on his elven curve blade to catch a moment's respite. He was worn out by the combat. The ocean giant struck with its mwk trident! He jumps out of the way. 
+
+A powerful swing came from the ocean giant with very deadly intent. The epic Maixenor blocks the strike with his elven curve blade. he stumbles to his knee, gasping for breath. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses he. 
+
+Maixenor took a deep breath and swung toward the repellent ocean giant. The ocean giant was struck by the blow! The monster was stunned by the attack. Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! The ocean giant was struck by the blow! 
+
+A gutty attack suddenly came from Maixenor, its intent to silence the lousy beast once and for all. He landed a massive hit on ocean giant! Struck by the hefty blow, the ocean giant needed a second to recover its footing. He pulled a light green potion from his pack and drinks it. He is reinvigorated. 
+
+A gutsy attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. He landed a massive hit on ocean giant! Struck by the hefty blow, the ocean giant needed a second to recover its footing. Maixenor held his elven curve blade tightly, ready to block any attack. 
+
+The high-flown Maixenor held his elven curve blade tightly, ready to block any attack. The ocean giant eyed Maixenor with a dangerous glare. 
+
+A powerful swing came from the ocean giant with very deadly intent. Our hero blocks the strike with his elven curve blade. The exhilarating combat made the hours seem like seconds. A powerful swing came from the ocean giant with very deadly intent. The fierce blow from the monster narrowly misses he. 
+
+Our hero pulled a iris potion from his pack and drinks it. He is reinvigorated. The grisly monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses Maixenor. 
+
+The menacing monster took a swipe at Maixenor. Maixenor reeled back in pain. Maixenor leaned on his elven curve blade to catch a moment's respite. The undaunted Maixenor was worn out by the combat. A powerful swing came from the ocean giant with very deadly intent. The nasty ocean giant failed to land its hit. 
+
+The ocean giant eyed Maixenor with a dangerous glare. Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! Maixenor's strike glanced off of the ocean giant's hide. 
+
+He pulled a royal azure potion from his pack and drinks it. He is reinvigorated. The ocean giant leans low, ready to strike with its might. 
+
+He pulled a ocean boat blue potion from his pack and drinks it. He is reinvigorated. A powerful swing came from the ocean giant with very deadly intent. He jumps out of the way. 
+
+A powerful swing came from the ocean giant with very deadly intent. Maixenor stunbles backward, gasping for breath. Maixenor stumbles to his knee, gasping for breath. The ocean giant leans low, ready to strike with its might. 
+
+Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! Although the elevated Maixenor's hit landed, ocean giant is mostly unphasedStruck by the hefty blow, the ocean giant needed a second to recover its footing. Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! The ocean giant was staggered by the immense force. 
+
+The ungodly monster took a swipe at Maixenor. He blocks the strike with his elven curve blade. The tall standing Maixenor leaned on his elven curve blade to catch a moment's respite. He was worn out by the combat. A powerful swing came from the ocean giant with very deadly intent. The repellent ocean giant failed to land its hit. 
+
+Maixenor took a deep breath and swung toward the dreadful ocean giant. A sharp crack was heard as the strike left its mark. A powerful swing came from the ocean giant with very deadly intent. The fierce blow from the monster narrowly misses he. He made a mighty swing at the ocean giant with this elven curve blade. The attack from the adventurer surely left a impression. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The ocean giant eyed Maixenor with a dangerous glare. 
+
+Our hero made a mighty swing at the ocean giant with this elven curve blade. The attack from he surely left a impression. The monster was stunned by the attack. Maixenor the impavid held his elven curve blade tightly, ready to block any attack. 
+
+The adventurer pulled a ball blue potion from his pack and drinks it. He is reinvigorated. The ocean giant eyed Maixenor with a dangerous glare. 
+
+He held his elven curve blade tightly, ready to block any attack. The offensive monster took a swipe at Maixenor. Our hero blocks the strike with his elven curve blade. 
+
+The heinous monster took a swipe at Maixenor. Maixenor reeled back in pain. Maixenor leaned on his elven curve blade to catch a moment's respite. He was worn out by the combat. The scary monster took a swipe at Maixenor. He jumps out of the way. 
+
+Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! Maixenor's strike glanced off of the ocean giant's hide. Struck by the hefty blow, the ocean giant needed a second to recover its footing. He sneaked around to ocean giant's blind spot. 
+
+A powerful swing came from the ocean giant with very deadly intent. The adventurer winces from the pain but continues fighting. A stouthearted attack suddenly came from Maixenor, its intent to silence the unkind beast once and for all. The shattering blow from the adventurer rumbled through the ground. 
+
+The nasty monster took a swipe at Maixenor. Maixenor reeled back in pain. He made a mighty swing at the ocean giant with this elven curve blade. The slippery ocean giant evaded Maixenor's hit. 
+
+A powerful swing came from the ocean giant with very deadly intent. He winces from the pain but continues fighting. Maixenor the exaggerated stumbles to his knee, gasping for breath. The execrable monster took a swipe at Maixenor. He jumps out of the way. 
+
+The fearful monster took a swipe at Maixenor. Maixenor the tall standing stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The ocean giant struck with its mwk trident! He winces from the pain but continues fighting. 
+
+He pulled a ginger potion from his pack and drinks it. He is reinvigorated. The ocean giant struck with its mwk trident! Our hero blocks the strike with his elven curve blade. 
+
+The fearful monster took a swipe at Maixenor. The heinous ocean giant failed to land its hit. A noble attack suddenly came from Maixenor, its intent to silence the ruinous beast once and for all. The ocean giant was staggered by the immense force. 
+
+The ocean giant eyed Maixenor with a dangerous glare. The elven curve blade of Maixenor was raised high only to be brought down onto the ocean giant moments later. The ocean giant took a glancing blow. 
+
+He held his elven curve blade tightly, ready to block any attack. The ocean giant leans low, ready to strike with its might. 
+
+He pulled a beige potion from his pack and drinks it. He is reinvigorated. He made a mighty swing at the ocean giant with this elven curve blade. That blow seemed like it could break some bones. 
+
+A elevated attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. The hideous ocean giant was too quick to be hit. The ocean giant struck with its mwk trident! The fierce blow from the monster narrowly misses Maixenor the high-flown. Maixenor took a deep breath and swung toward the scary ocean giant. A sharp crack was heard as the strike left its mark. 
+
+The elven curve blade of Maixenor was raised high only to be brought down onto the ocean giant moments later. The slippery ocean giant evaded Maixenor's hit. The ocean giant struck with its mwk trident! Maixenor jumps out of the way. The elven curve blade of Maixenor was raised high only to be brought down onto the ocean giant moments later. The slippery ocean giant evaded Maixenor's hit. 
+
+A powerful swing came from the ocean giant with very deadly intent. The terrifying ocean giant failed to land its hit. The elven curve blade of Maixenor was raised high only to be brought down onto the ocean giant moments later. The slippery ocean giant evaded Maixenor's hit. 
+
+The ocean giant eyed Maixenor with a dangerous glare. Our hero made a mighty swing at the ocean giant with this elven curve blade. Maixenor's strike glanced off of the ocean giant's hide. 
+
+Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+He pulled a coral potion from his pack and drinks it. He is reinvigorated. The ocean giant eyed Maixenor with a dangerous glare. 
+
+The adventurer sneaked around to ocean giant's blind spot. The ocean giant leans low, ready to strike with its might. 
+
+The ocean giant eyed Maixenor with a dangerous glare. Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! The ungodly ocean giant was too quick to be hit. 
+
+The fearless Maixenor held his elven curve blade tightly, ready to block any attack. The ocean giant eyed Maixenor with a dangerous glare. 
+
+A fire-eating attack suddenly came from Maixenor, its intent to silence the ruinous beast once and for all. He landed a massive hit on ocean giant! The monster was stunned by the attack. Maixenor lunged toward the ocean giant, his elven curve blade ready to strike! Although he's hit landed, ocean giant is mostly unphased
+
+He made a mighty swing at the ocean giant with this elven curve blade. The shattering blow from the mythological Maixenor rumbled through the ground. The abhorrent monster took a swipe at Maixenor. Maixenor the noble stunbles backward, gasping for breath. A fearless attack suddenly came from Maixenor, its intent to silence the obnoxious beast once and for all. The ocean giant was staggered by the immense force. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A gutty attack suddenly came from Maixenor, its intent to silence the repulsive beast once and for all. The disagreeable ocean giant was too quick to be hit. 
+
+Maixenor took a deep breath and swung toward the repulsive ocean giant. The shattering blow from he rumbled through the ground. 
+
+Maixenor's last strike hit the ocean giant directly in the heary. A fatal blow.
+
+The citizens of Weadder could sleep soundly at night. He had vanquished their greatest nightmare.
+
+## <a name="chapter20"></a> Chapter 20: Sough Bring Brewton and the Clockwork Dragon
+
+Maixenor followed a dirt path into the village of Sough Bring Brewton. The chaplain talked excitedly with what appeared to be a palmer with a horse trainer. The old-clothes dealer slowly carried supplies with a weeper. Maixenor continued down the path. Two milliners gazed at him from an open window.
+
+Eventually, Maixenor arrived at the town square, where he found a master of hounds. The man, eying his well-made boots, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-The pilgrim stood by a market stall, negotiating with the lawyer with a joiner. He still looked suspicious, then finally responded.
+While the milliner threw punches, a sergeant slowly carried supplies. The man sat in silence for a while, then finally responded.
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is down the street to the cattle barn and left. You'll see a warehouse. It's past the monastery. There's a small door. You'll find Geramisisthion, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 2 small coins. "I want that Hippus gone as much as anybody."
+"Anastus is the best in town. His shop is just a bit further down the street. Look for the large hanging sign that reads "Anastus Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. The chimney sweep hawked fine imported goods from Cansfooll with a jester. The bricker loaded a market stall with wares with a fool. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. While the bard bit into an apple, a doctor sat by the side of the road. Nearby, a boatman talked excitedly with what appeared to be a drywaller. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Geramisisthion looked up from his work behind a counter at Alkmain.
+Anastus looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Geramisisthion lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The kalavakus."
+Anastus grabbed a dusty book from the shelf and flipped through it. Pictures of titan centipedes and dragon turtles flew by. Eventually he settled on a page and started to explain.
 
-The armorer sighed and continued. "Known to some as "horned demons," the kalavakus demons are hulking, muscled beasts. They work as slavers on the Abyss, sometimes as harem keepers or captains of the guard for a more powerful demon, and at other times as mercenaries who sell their captured victims for profit to anyone with the funds to pay."
+"While the clockwork goliaths possess more brute power, clockwork dragons' powerful breath weapons and mastery of flight make them more versatile and graceful killers. Designed for long flights and missions, the intricate winding mechanism of the clockwork dragon is more efficient than that of other clockwork constructs, partially because it reuses some of the energy generated by its intricate wings and the complex machinery of its breath weapon device. One of the most complicated and subtly crafted clockworks, its many moving parts are fortified by adamantine supports and fixtures, making this killing machine a brilliant mix of intricacy and unyielding terror." Anastus explained.
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+"I could handle that. Tell me again, what makes the clockwork dragon so bad?" Maixenor responded.
 
-"A kalavakus is 7 feet tall and weighs 450 pounds. They form from the souls of evil mortals who were slavers in their mortal lives." Geramisisthion explained.
+"The basic chassis and internal workings of the clockwork dragons are highly adaptable, and many variants of the clockwork dragon exist. Clockwork dragons are typically 20 feet long from snout to the tip of its tail, and weigh nearly 75 tons." Anastus explained.
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+"I could handle that. Tell me again, what makes the clockwork dragon so bad?" Maixenor responded.
+
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
+
+As Maixenor turned to leave the armory, Anastus called out
+
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
+
+"Forged by the finest dwarven smiths in the mountains of Bospool, this khopesh is the finest display of craftsmanship for miles around."
+
+With his newfound information, Maixenor departs from Sough Bring Brewton. 
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering mathematician making his way toward Sough Bring Brewton. The stranger said to Maixenor
+
+"Take care crossing the Fing Volcanic groups! They are especially dangerous this time of year."
+
+The ever elevated Maixenor continued his long and tiring journey to find the clockwork dragon.
+
+Not once did Maixenor regret his choice to not become a girdler.
+
+As Maixenor walked along the path out of Sough Bring Brewton, he turned to his right and saw something undaunted.
+
+Contrasting against the nearby Tidal marshs, the great Midge Gateat Finghlon-Tren Volcanic islands provided a refreshing view.It reminded he of the town of Lon Rotin-Edholl Tellymoolle Putne he had visited long ago.
+
+Continuing along the path, Maixenor crossed paths with another traveler.
+
+He met a wandering summoner making his way toward Sough Bring Brewton. The stranger said to Maixenor
+
+"The clockwork dragon killed my brother. I would be heading back to end that hideous thing if only it hadn't taken my eye the first time I tried."
+
+The ever daring Maixenor continued his long and tiring journey to find the clockwork dragon.
+
+Not once did he regret his choice to not become a miller.
+
+Maixenor saw a scandalous clockwork dragon in the distance! Our hero fixed his gaze on the frightful sight. He approched the clockwork dragon cautiously, careful not to rush to an untimely death. 
+
+The sickie monster took a swipe at Maixenor. He stunbles backward, gasping for breath. The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. The clockwork dragon took a glancing blow. 
+
+He held his khopesh tightly, ready to block any attack. The clockwork dragon struck with its bite! Maixenor jumps out of the way. 
+
+The clockwork dragon eyed Maixenor with a dangerous glare. The cruel monster took a swipe at Maixenor. The gritty Maixenor blocks the strike with his khopesh. 
+
+The clockwork dragon eyed Maixenor with a dangerous glare. The horrid monster took a swipe at Maixenor. The loathsome clockwork dragon failed to land its hit. 
+
+A bold attack suddenly came from Maixenor, its intent to silence the sickie beast once and for all. The clockwork dragon took a glancing blow. The loathsome monster took a swipe at Maixenor. Maixenor the gutty blocks the strike with his khopesh. The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. Maixenor's strike glanced off of the clockwork dragon's hide. 
+
+Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! The clockwork dragon was staggered by the immense force. The monster was stunned by the attack. Maixenor took a deep breath and swung toward the offensive clockwork dragon. The clockwork dragon took a glancing blow. 
+
+A powerful swing came from the clockwork dragon with very deadly intent. He jumps out of the way. the gutsy Maixenor stumbles to his knee, gasping for breath. The revolting monster took a swipe at Maixenor. The adventurer blocks the strike with his khopesh. 
+
+A powerful swing came from the clockwork dragon with very deadly intent. The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The clockwork dragon eyed Maixenor with a dangerous glare. 
+
+The clockwork dragon struck with its bite! The noble Maixenor winces from the pain but continues fighting. He leaned on his khopesh to catch a moment's respite. He was worn out by the combat. The horrid monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses Maixenor the fire-eating. 
+
+He sneaked around to clockwork dragon's blind spot. The clockwork dragon struck with its bite! Maixenor the bold blocks the strike with his khopesh. 
+
+Maixenor took a deep breath and swung toward the detestable clockwork dragon. The mean clockwork dragon was too quick to be hit. Struck by the hefty blow, the clockwork dragon needed a second to recover its footing. Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! The slippery clockwork dragon evaded Maixenor's hit. 
+
+Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the clockwork dragon needed a second to recover its footing. The valorous Maixenor sneaked around to clockwork dragon's blind spot. 
+
+He made a mighty swing at the clockwork dragon with this khopesh. The evil clockwork dragon was too quick to be hit. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+The clockwork dragon eyed Maixenor with a dangerous glare. The clockwork dragon struck with its bite! He winces from the pain but continues fighting. 
+
+The clockwork dragon leans low, ready to strike with its might. A mythological attack suddenly came from Maixenor, its intent to silence the ruinous beast once and for all. The shattering blow from he rumbled through the ground. 
+
+A powerful swing came from the clockwork dragon with very deadly intent. The fierce blow from the monster narrowly misses the adventurer. The exhilarating combat made the hours seem like seconds. The clockwork dragon struck with its bite! Maixenor reeled back in pain. 
+
+The clockwork dragon leans low, ready to strike with its might. The clockwork dragon struck with its bite! Maixenor reeled back in pain. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the clockwork dragon with very deadly intent. He blocks the strike with his khopesh. 
+
+The clockwork dragon leans low, ready to strike with its might. Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! The clockwork dragon took a glancing blow. 
+
+Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
+
+He held his khopesh tightly, ready to block any attack. The clockwork dragon eyed Maixenor with a dangerous glare. 
+
+The clockwork dragon struck with its bite! The ruinous clockwork dragon failed to land its hit. Maixenor the mythological stumbles to his knee, gasping for breath. A powerful swing came from the clockwork dragon with very deadly intent. He blocks the strike with his khopesh. 
+
+A fire-eating attack suddenly came from Maixenor, its intent to silence the evil beast once and for all. The attack from he surely left a impression. The monster was stunned by the attack. He sneaked around to clockwork dragon's blind spot. 
+
+The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. The slippery clockwork dragon evaded Maixenor's hit. A powerful swing came from the clockwork dragon with very deadly intent. Maixenor reeled back in pain. He made a mighty swing at the clockwork dragon with this khopesh. The clockwork dragon was struck by the blow! 
+
+The clockwork dragon eyed Maixenor with a dangerous glare. The adventurer made a mighty swing at the clockwork dragon with this khopesh. The slippery clockwork dragon evaded Maixenor's hit. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor took a deep breath and swung toward the frightful clockwork dragon. Maixenor's strike glanced off of the clockwork dragon's hide. 
+
+The clockwork dragon struck with its bite! The detestable clockwork dragon failed to land its hit. Maixenor the stouthearted stumbles to his knee, gasping for breath. The clockwork dragon leans low, ready to strike with its might. 
+
+He sneaked around to clockwork dragon's blind spot. Our hero made a mighty swing at the clockwork dragon with this khopesh. The revolting clockwork dragon was too quick to be hit. 
+
+The adventurer held his khopesh tightly, ready to block any attack. A powerful swing came from the clockwork dragon with very deadly intent. The fierce blow from the monster narrowly misses he. 
+
+Maixenor cleared his mind, preparing himself for the combat to come.The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. He landed a massive hit on clockwork dragon! 
+
+Our hero pulled a blue pigment potion from his pack and drinks it. He is reinvigorated. Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! That blow seemed like it could break some bones. 
+
+He sneaked around to clockwork dragon's blind spot. Maixenor took a deep breath and swung toward the fearful clockwork dragon. The clockwork dragon was struck by the blow! 
+
+The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. Maixenor's strike glanced off of the clockwork dragon's hide. A powerful swing came from the clockwork dragon with very deadly intent. The fierce blow from the monster narrowly misses the inflated Maixenor. Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! He landed a massive hit on clockwork dragon! 
+
+The lousy monster took a swipe at Maixenor. The undaunted Maixenor blocks the strike with his khopesh. Maixenor took a deep breath and swung toward the shocking clockwork dragon. That blow seemed like it could break some bones. 
+
+The clockwork dragon eyed Maixenor with a dangerous glare. A powerful swing came from the clockwork dragon with very deadly intent. He stunbles backward, gasping for breath. 
+
+The bigger than life Maixenor sneaked around to clockwork dragon's blind spot. The clockwork dragon leans low, ready to strike with its might. 
+
+Maixenor took a deep breath and swung toward the execrable clockwork dragon. The clockwork dragon was struck by the blow! The clockwork dragon struck with its bite! The adventurer jumps out of the way. Maixenor lunged toward the clockwork dragon, his khopesh ready to strike! That blow seemed like it could break some bones. 
+
+The adventurer held his khopesh tightly, ready to block any attack. The clockwork dragon eyed Maixenor with a dangerous glare. 
+
+Our hero sneaked around to clockwork dragon's blind spot. The clockwork dragon eyed Maixenor with a dangerous glare. 
+
+The khopesh of Maixenor was raised high only to be brought down onto the clockwork dragon moments later. He landed a massive hit on clockwork dragon! Struck by the hefty blow, the clockwork dragon needed a second to recover its footing. The adventurer sneaked around to clockwork dragon's blind spot. 
+
+Maixenor the bold made a mighty swing at the clockwork dragon with this khopesh. The clockwork dragon was staggered by the immense force. The eerie monster took a swipe at Maixenor. The adventurer blocks the strike with his khopesh. Maixenor took a deep breath and swung toward the detestable clockwork dragon. The clockwork dragon was struck by the blow! 
+
+He made a mighty swing at the clockwork dragon with this khopesh. The slippery clockwork dragon evaded Maixenor's hit. The monster was stunned by the attack. He made a mighty swing at the clockwork dragon with this khopesh. The high-flown Maixenor landed a massive hit on clockwork dragon! 
+
+A gritty attack suddenly came from Maixenor, its intent to silence the beastly beast once and for all. The clockwork dragon was struck by the blow! 
+
+After a seemingly eternal amount of combat, a victor emerged. The clockwork dragon was slain.
+
+He was victorious! The clockwork dragon menaced for no longer! 
+
+## <a name="chapter21"></a> Chapter 21: Hillonueedon-on and the Giraffe
+
+Maixenor followed a dirt path into the village of Hillonueedon-on. A linenspinner slept in an alleyway. The exchequer stood by a market stall, negotiating with the drywaller with a shepherd. Maixenor continued down the path. Two singers scuttled out of his way.
+
+Eventually, Maixenor arrived at the town square, where he found a pavyler. Maixenor approached him, hoping for some advice.
+
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+
+The fuller eyed him suspiciously with a nakerer. He still looked suspicious, but eventually responded.
+
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
+
+"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+
+"Taiam is past the stables. Look for the large hanging sign that reads "Taiam Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+
+Maixenor hurried towards the armory. While the farmer ran from person to person, asking if they had seen Leicristhelypoemodo, a merchant threw punches. Two woolcombers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+
+Taiam looked up from his work behind a counter at Maixenor.
+
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
+
+"Brave you say? You may have fought the frost drake, or perhaps even the cheetah, but that's nothing compared to the giraffe we've got."
+
+"These long-necked animals roam across plains in loose-knit groups, grazing on the upper reaches of acacia trees. Giraffes usually avoid conflict. However, when its young are threatened or if the giraffe is cornered, it attacks ruthlessly, striking with its powerful hooves. Giraffes rarely use their necks to make slam attacks unless they are fighting among themselves as part of their mating displays." Taiam explained.
+
+"But my weapons may be too weak. Are there any other ways to defeat the giraffe?" Maixenor asked.
+
+"A giraffe is between 16 and 20 feet tall and weighs 3,500 pounds." Taiam explained.
+
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Alkmain saw a revolting kalavakus in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Taiam called out
 
-He pulls a raspberry glace potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! Alkmain blocks the strike with his sword. 
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
 
-The kalavakus struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+"Forged by the finest dwarven smiths in the mountains of Glark, this dagger is the finest display of craftsmanship for miles around."
 
-The adventurer sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
+Sheathing his dagger, Maixenor leaves Hillonueedon-on on a journey to find the giraffe. 
 
-He pulls a india green potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! Alkmain jumps out of the way. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The kalavakus struck with its bite! Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The kalavakus struck with its bite! He winces from the pain but continues fighting. 
+Maixenor met a wandering mapmaker making his way toward Hillonueedon-on. The stranger said to Maixenor
 
-The kalavakus struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The kalavakus struck with its bite! The adventurer blocks the strike with his sword. 
+"The giraffe killed my brother. I would be heading back to end that abhorrent thing if only it hadn't taken my eye the first time I tried."
 
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-He pulls a black bean potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+Maixenor met a wandering lapidary making his way toward Hillonueedon-on. The stranger said to Maixenor
 
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The kalavakus struck with its bite! The disagreeable kalavakus failed to land its hit. Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus was staggered by the immense force. 
+"I knew a gallant hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-Alkmain the fire-eating pulls a majorelle blue potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! The fierce blow from the monster narrowly misses he. 
+As Maixenor walked along the path out of Hillonueedon-on, he turned to his right and saw something courageous.
 
-The kalavakus struck with its bite! Our hero jumps out of the way. The exhilarating combat made the hours seem like seconds. The kalavakus struck with its bite! He blocks the strike with his sword. 
+Maixenor could barely make out some Tessellated pavements in the distance.It reminded he of the town of Wootholds he had visited long ago.
 
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses Alkmain the stouthearted. the unafraid Alkmain stumbles to his knee, gasping for breath. The kalavakus leans low, ready to strike with its might. 
+The ever bold Maixenor continued his long and tiring journey to find the giraffe.
 
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The kalavakus leans low, ready to strike with its might. 
+Not once did Maixenor the stouthearted regret his choice to not become a drywaller.
 
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! The fierce blow from the monster narrowly misses Alkmain the lion-hearted. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus was struck by the blow! 
+The fearless Maixenor met a wandering pardoner making his way toward Hillonueedon-on. The stranger said to Maixenor
 
-The kalavakus struck with its bite! Alkmain jumps out of the way. Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus was struck by the blow! 
+"Take care crossing the Sunlaccast Mountain passes! They are especially dangerous this time of year."
 
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! The bigger than life Alkmain winces from the pain but continues fighting. 
+Maixenor saw a lurid giraffe in the distance! Our hero fixed his gaze on the mean sight. The inflated Maixenor approched the giraffe cautiously, careful not to rush to an untimely death. 
 
-He pulls a almond potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! Alkmain reeled back in pain. 
+The giraffe struck with its hooves! The high-flown Maixenor winces from the pain but continues fighting. the daring Maixenor stumbles to his knee, gasping for breath. A powerful swing came from the giraffe with very deadly intent. Maixenor blocks the strike with his dagger. 
 
-The adventurer pulls a pale gold potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
+A high-flown attack suddenly came from Maixenor, its intent to silence the mean beast once and for all. The slippery giraffe evaded Maixenor's hit. Struck by the hefty blow, the giraffe needed a second to recover its footing. A exaggerated attack suddenly came from Maixenor, its intent to silence the mean beast once and for all. The attack from Maixenor surely left a impression. 
 
-The adventurer sneaked around to kalavakus's blind spot. The kalavakus struck with its bite! Alkmain the bigger than life blocks the strike with his sword. 
+He held his dagger tightly, ready to block any attack. A powerful swing came from the giraffe with very deadly intent. Maixenor the grandiose stunbles backward, gasping for breath. 
 
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! The awful kalavakus failed to land its hit. 
+A powerful swing came from the giraffe with very deadly intent. He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The giraffe leans low, ready to strike with its might. 
 
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor lunged toward the giraffe, his dagger ready to strike! The giraffe took a glancing blow. 
 
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+The giraffe leans low, ready to strike with its might. The repellent monster took a swipe at Maixenor. He stunbles backward, gasping for breath. 
 
-The adventurer pulls a blue pigment potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
+A valiant attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. The giraffe was staggered by the immense force. Struck by the hefty blow, the giraffe needed a second to recover its footing. Maixenor took a deep breath and swung toward the mean giraffe. The slippery giraffe evaded Maixenor's hit. 
 
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! Alkmain reeled back in pain. 
+He held his dagger tightly, ready to block any attack. The loathsome monster took a swipe at Maixenor. He jumps out of the way. 
 
-The adventurer pulls a utah crimson potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! He stunbles backward, gasping for breath. 
+He held his dagger tightly, ready to block any attack. A doughty attack suddenly came from Maixenor, its intent to silence the horrendous beast once and for all. The terrible giraffe was too quick to be hit. 
 
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! He winces from the pain but continues fighting. 
+The giraffe leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the ungodly giraffe. That blow seemed like it could break some bones. 
 
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+Maixenor sneaked around to giraffe's blind spot. The dagger of Maixenor was raised high only to be brought down onto the giraffe moments later. The shattering blow from he rumbled through the ground. 
 
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses our hero. the intrepid Alkmain stumbles to his knee, gasping for breath. The kalavakus leans low, ready to strike with its might. 
+A gallant attack suddenly came from Maixenor, its intent to silence the menacing beast once and for all. Maixenor's strike glanced off of the giraffe's hide. Struck by the hefty blow, the giraffe needed a second to recover its footing. Our hero made a mighty swing at the giraffe with this dagger. A sharp crack was heard as the strike left its mark. 
 
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Maixenor took a deep breath and swung toward the evil giraffe. The giraffe was staggered by the immense force. 
 
-He sneaked around to kalavakus's blind spot. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
+After a seemingly eternal amount of combat, a victor emerged. The giraffe was slain.
 
-Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus was staggered by the immense force. The monster was stunned by the attack. He pulls a lavender blush potion from his pack and drinks it. He is reinvigorated. 
+Maixenor says
 
-The adventurer pulls a vivid cerise potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! The mean kalavakus failed to land its hit. 
+"That didn't seem so hard, I don't know what Taiam was talking about."
 
-Alkmain the fire-eating pulls a portland orange potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! The fierce blow from the monster narrowly misses he. 
+## <a name="chapter22"></a> Chapter 22: Easion-Ter and the Catoblepas
 
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to kalavakus's blind spot. 
+Maixenor followed a dirt path into the village of Easion-Ter. While the rugmaker talked excitedly with what appeared to be a tapestrymaker, a barrister hawked fine imported goods from Doln. A glover scuttled out of his way. Maixenor continued down the path. A drywaller hawked fine imported goods from Queen.
 
-The kalavakus struck with its bite! He winces from the pain but continues fighting. Alkmain stumbles to his knee, gasping for breath. The kalavakus struck with its bite! Alkmain jumps out of the way. 
-
-The kalavakus struck with its bite! He winces from the pain but continues fighting. he stumbles to his knee, gasping for breath. The kalavakus struck with its bite! The abhorrent kalavakus failed to land its hit. 
-
-Our hero sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
-
-He sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
-
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! Alkmain jumps out of the way. 
-
-He pulls a phthalo blue potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! He jumps out of the way. 
-
-The kalavakus struck with its bite! The disagreeable kalavakus failed to land its hit. The exhilarating combat made the hours seem like seconds. The kalavakus leans low, ready to strike with its might. 
-
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! He jumps out of the way. 
-
-He sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! Although the bigger than life Alkmain's hit landed, kalavakus is mostly unphasedThe kalavakus struck with its bite! The offensive kalavakus failed to land its hit. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! The repellent kalavakus failed to land its hit. 
-
-He sneaked around to kalavakus's blind spot. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The adventurer sneaked around to kalavakus's blind spot. The kalavakus struck with its bite! The menacing kalavakus failed to land its hit. 
-
-The kalavakus struck with its bite! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the kalavakus, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain pulls a fawn potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus struck with its bite! Alkmain jumps out of the way. Alkmain the fire-eating stumbles to his knee, gasping for breath. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! Although the adventurer's hit landed, kalavakus is mostly unphasedThe monster was stunned by the attack. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The adventurer sneaked around to kalavakus's blind spot. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus struck with its bite! Alkmain reeled back in pain. our hero stumbles to his knee, gasping for breath. The kalavakus leans low, ready to strike with its might. 
-
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to kalavakus's blind spot. The kalavakus struck with its bite! Alkmain reeled back in pain. 
-
-The kalavakus leans low, ready to strike with its might. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The kalavakus struck with its bite! The fire-eating Alkmain blocks the strike with his sword. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses the daring Alkmain. he stumbles to his knee, gasping for breath. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain the unafraid pulls a navy blue potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
-
-The lion-hearted Alkmain sneaked around to kalavakus's blind spot. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The kalavakus struck with its bite! The fierce blow from the monster narrowly misses the fire-eating Alkmain. Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus took a glancing blow. 
-
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses Alkmain the valorous. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Alkmain the gutty pulls a deep sky blue potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the valiant sneaked around to kalavakus's blind spot. 
-
-He pulls a olive drab web olive drab 3 potion from his pack and drinks it. He is reinvigorated. The kalavakus struck with its bite! Alkmain jumps out of the way. 
-
-The kalavakus leans low, ready to strike with its might. The kalavakus struck with its bite! He jumps out of the way. 
-
-Our hero sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain pulls a iris potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
-
-The kalavakus struck with its bite! Alkmain winces from the pain but continues fighting. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. The kalavakus struck with its bite! Alkmain jumps out of the way. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Our hero sneaked around to kalavakus's blind spot. The kalavakus struck with its bite! Alkmain jumps out of the way. 
-
-Our hero sneaked around to kalavakus's blind spot. The kalavakus leans low, ready to strike with its might. 
-
-Our hero pulls a usc gold potion from his pack and drinks it. He is reinvigorated. The kalavakus leans low, ready to strike with its might. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! He landed a massive hit on kalavakus! The monster was stunned by the attack. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-The kalavakus struck with its bite! The fierce blow from the monster narrowly misses Alkmain the classic. Alkmain lunged toward the kalavakus, his sword ready to strike! The slippery kalavakus evaded Alkmain's hit. 
-
-Alkmain lunged toward the kalavakus, his sword ready to strike! The kalavakus took a glancing blow. The monster was stunned by the attack. He sneaked around to kalavakus's blind spot. 
-
-He was victorious! The kalavakus menaced for no longer! 
-
-## <a name="chapter9"></a> Chapter 9: Bathfor and the Storm Hag
-
-Alkmain followed a dirt path into the village of Bathfor. The smith threw punches with a mapmaker. The thimbler threw punches with a delver. Alkmain continued down the path. Two chaplains stood by a market stall, negotiating with the silversmith.
-
-Eventually, Alkmain arrived at the town square, where he found a carver. The man, eying his determined look, beckoned him forward.
+Eventually, Maixenor arrived at the town square, where he found a boatman. The man, eying his unusual weapons, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-The combmaker finished an apple and tossed the core aside with a sea captain. The man quietly reminised about the past, then finally responded.
+Nearby, a halberdier finished an apple and tossed the core aside. The man sat in silence for a whileHe finally responded.
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. It's just to the right. You'll find Icar, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 4 small coins. "I want that Hippus gone as much as anybody."
-
-Alkmain hurried towards the armory. While the bookprinter slept in an alleyway, a tillerman talked excitedly with what appeared to be a herald. A singer slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Icar lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The storm hag."
-
-The armorer sighed and continued. "When the clouds turn gray and the winds pick up into a howl, wise travelers pray that the cause is only a natural tempest and not a storm hag. A storm hag resembles an old woman with a thundercloud of hair. Her mouth hangs open, revealing thin pointed teeth with small arcs of electricity jumping across them. Black talons sprout from her fingertips, likewise crackling with electricity. A storm hag weighs 70 pounds and stands around 4 feet tall, though if she stood up straight she could easily reach 5 feet."
-
-"I could handle that. Tell me again, what makes the storm hag so bad?" Alkmain responded.
-
-"That's all I can tell you."
-
-Alkmain saw a obnoxious storm hag in the distance! Our hero fixed his gaze on the frightful sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The storm hag leans low, ready to strike with its might. Alkmain lunged toward the storm hag, his sword ready to strike! Although the adventurer's hit landed, storm hag is mostly unphased
-
-He sneaked around to storm hag's blind spot. Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. 
-
-Alkmain the gallant pulls a indigo dye potion from his pack and drinks it. He is reinvigorated. The storm hag struck with its bite! Alkmain the inflated blocks the strike with his sword. 
-
-The adventurer pulls a pastel red potion from his pack and drinks it. He is reinvigorated. The storm hag leans low, ready to strike with its might. 
-
-The storm hag leans low, ready to strike with its might. Alkmain lunged toward the storm hag, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The storm hag struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. 
-
-The storm hag struck with its bite! He jumps out of the way. Alkmain the noble stumbles to his knee, gasping for breath. The storm hag leans low, ready to strike with its might. 
-
-Our hero pulls a bright green potion from his pack and drinks it. He is reinvigorated. The storm hag struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
-
-Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was struck by the blow! The monster was stunned by the attack. He sneaked around to storm hag's blind spot. 
-
-The adventurer sneaked around to storm hag's blind spot. The storm hag struck with its bite! The adventurer stunbles backward, gasping for breath. 
-
-The storm hag struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The storm hag struck with its bite! The sickie storm hag failed to land its hit. 
-
-The storm hag struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. 
-
-The storm hag struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. 
-
-The storm hag struck with its bite! Alkmain stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The storm hag leans low, ready to strike with its might. 
-
-The storm hag struck with its bite! The fierce blow from the monster narrowly misses our hero. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The storm hag leans low, ready to strike with its might. 
-
-Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was struck by the blow! The monster was stunned by the attack. Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. 
-
-Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the storm hag, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The storm hag struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The storm hag leans low, ready to strike with its might. 
-
-Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was struck by the blow! The monster was stunned by the attack. Alkmain lunged toward the storm hag, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to storm hag's blind spot. Alkmain lunged toward the storm hag, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The storm hag leans low, ready to strike with its might. Alkmain lunged toward the storm hag, his sword ready to strike! Although our hero's hit landed, storm hag is mostly unphased
-
-Alkmain lunged toward the storm hag, his sword ready to strike! The slippery storm hag evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was staggered by the immense force. 
-
-The storm hag struck with its bite! The fierce blow from the monster narrowly misses the gutty Alkmain. Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was struck by the blow! 
-
-The grandiose Alkmain sneaked around to storm hag's blind spot. Alkmain lunged toward the storm hag, his sword ready to strike! The storm hag was struck by the blow! 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Icar was talking about."
-
-## <a name="chapter10"></a> Chapter 10: North and the Grick
-
-Alkmain followed a dirt path into the village of North. The ragpicker bit into an apple with a bookprinter. The huntsman threw punches with a restaurateur. Alkmain continued down the path. While the water carrier stood by a market stall, negotiating with the confectioner, a beguine stood by a market stall, negotiating with the jailer.
-
-Eventually, Alkmain arrived at the town square, where he found a ropemaker. Alkmain approached him, hoping for some advice.
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-Two navigators hawked fine imported goods from Easenasey. He still looked suspicious, then finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Ippos is the best in town. His shop is past the monastery. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Hippus gone as much as anybody."
+"The armory is into the market and towards the barn. Eventually you need to walk just a bit further down the street. There's a small door. You'll find Averamnes, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Alkmain hurried towards the armory. A landlord hawked fine imported goods from Ashole. A hurdle maker bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. Two crofters ran from person to person, asking if they had seen Diodoridus. Two gamekeepers finished an apple and tossed the core aside. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Ippos looked up from his work behind a counter at Alkmain.
+Averamnes looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-"Brave you say? You may have fought the giant dragonfly, or perhaps even the giant muckdweller, but that's nothing compared to the grick we've got."
+"Brave you say? You may have fought the shinigami, or perhaps even the akaname, but that's nothing compared to the catoblepas we've got."
 
-Ippos returned to the book of monsters on the desk and pointed at the terrifying illustration. "The worm-like grick is a terror of the caverns and tunnels in which it dwells, lying in wait near heavily traveled underground passages or subterranean cities for the chance to reach forth from the darkness and take its prey. Those laid low by a grick are rarely consumed on the spot. Instead, fresh food is hauled back to the grick's lair in a tight burrow or high on a cavern ledge, where it is consumed in small bites at the grick's leisure."
+Averamnes returned to the book of monsters on the desk and pointed at the terrifying illustration. "The catoblepas is an aggressive beast at the best of times, willing to knock down trees, fences, even small houses to eat whatever it finds interesting, be that meal plant or animal or human being. Though it prefers swamps, the catoblepas has been known to forage in plains and forests for short periods before returning to the buoyant support of water and mud. Few creatures linger near a catoblepas's feeding ground because of the monster's bad temper and poisonous breath, and only rot-loving predators such as oozes or exceptionally large otyughs have any interest in hunting them."
 
-"I could handle that. Tell me again, what makes the grick so bad?" Alkmain responded.
+"But my weapons may be too weak. Are there any other ways to defeat the catoblepas?" Maixenor asked.
 
-The armorer sighed and continued. "The origins of the grick are not known. Even though the grick has a rudimentary intelligence, it does not have any society to speak of, and most are encountered alone. On those occasions when unfortunate travelers meet multiple specimens, groups of gricks do not appear to communicate or work together; each instead attacks individual targets and retreats with its prize as soon as it manages to bring down an opponent. Capable predators, gricks also have a strangely weapon-resistant hide that makes them especially dangerous. Many novice adventurers have fallen to grick attacks merely because they were unable to damage the creature with their nonmagical weapons. Those that are familiar with gricks (especially dwarves, morlocks, and troglodytes) know the best strategy for dealing with them is to fall back and wait for more powerful or magical reinforcements."
+The armorer sighed and continued. "A catoblepas' primary motivation is hunting and exerting its dominance over lesser creatures in its territory. Easily detected by its foul odor, the creature tolerates the presence of wild animals, humanoid tribes, and even predators that it can bully as long as these things flee or act submissive when the poisonous brute lumbers into view. The catoblepas is known to engage in physical battles with other Large swamp creatures such as crocodiles or even froghemoths. Some humanoid tribes claim to know techniques to domesticate a catoblepas for use as a guard animal, but the monster's intractable nature and not insignificant intelligence almost certainly means magic is involved, as the creature has little need for alliances and can wipe out entire villages with its breath. Some have been known to use their breath underwater, creating a churning cloud of bubbles that kills fish in the area and starves out other creatures."
 
-"But my weapons may be too weak. Are there any other ways to defeat the grick?" Alkmain asked.
+"I could handle that. Tell me again, what makes the catoblepas so bad?" Maixenor responded.
 
-Ippos returned to the book of monsters on the desk and pointed at the terrifying illustration. "Gricks rely on their dark coloration and ability to climb walls to keep them out of sight until they're ready to spring an ambush. On occasions when food is scarce in a given region, gricks have been known to travel to the surface and roam the wilderness in search of prey, but these sojourns are almost always out of necessity, and end as soon as the gricks find entrances to new subterranean lairs. They prefer darkness and the comfort of a ceiling overhead, avoiding the open sky and going to great lengths to keep the cover of trees, low clouds, or buildings between them and the empty gulf overhead."
+Averamnes returned to the book of monsters on the desk and pointed at the terrifying illustration. "A catoblepas's sense of smell is blunted by its own ungodly stench, and it can't easily recognize rival odors such as skunk musk (though this provides the beast no immunity to odor-based effects from other creatures)."
 
-"But my weapons may be too weak. Are there any other ways to defeat the grick?" Alkmain asked.
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
+Averamnes returned to the book of monsters on the desk and pointed at the terrifying illustration. "A catoblepas is 15 feet long and weighs 2,200 pounds."
 
-Alkmain saw a horrid grick in the distance! Our hero fixed his gaze on the beastly sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+Maixenor slipped the man 4 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Alkmain lunged toward the grick, his sword ready to strike! The grick was struck by the blow! The grick struck with its bite! The fierce blow from the monster narrowly misses the fire-eating Alkmain. Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. 
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
 
-The grick leans low, ready to strike with its might. Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. 
+As Maixenor turned to leave the armory, Averamnes called out
 
-Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the catoblepas." 
 
-The grick struck with its bite! The abhorrent grick failed to land its hit. Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. 
+"Take this sickle-sword. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. The grick struck with its bite! Alkmain the grand jumps out of the way. Alkmain lunged toward the grick, his sword ready to strike! The shattering blow from Alkmain rumbled through the ground. 
+With his newfound information, Maixenor departs from Easion-Ter. 
 
-Alkmain lunged toward the grick, his sword ready to strike! The slippery grick evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the grick, his sword ready to strike! The grick took a glancing blow. 
+As Maixenor walked along the path out of Easion-Ter, he turned to his left and saw something unafraid.
 
-The grick struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The grick leans low, ready to strike with its might. 
+The Headlands of Weyne towered over the nearby Escarpments.Maybe they might make for a fearless adventure for when Maixenor's current journey is over.
 
-Alkmain says
+The ever fire-eating Maixenor continued his long and tiring journey to find the catoblepas.
 
-"That didn't seem so hard, I don't know what Ippos was talking about."
+Not once did the bold Maixenor regret his choice to not become a thresher.
 
-## <a name="chapter11"></a> Chapter 11: St Hale and the Redcap
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-Alkmain followed a dirt path into the village of St Hale. A nun scuttled out of his way. The monk hawked fine imported goods from Tow with a seneschal. Alkmain continued down the path. Nearby, a cardmaker ran from person to person, asking if they had seen Printzi.
+He met a wandering tallowchandler making his way toward Easion-Ter. The stranger said to Maixenor
 
-Eventually, Alkmain arrived at the town square, where he found a seamstress. Alkmain approached him, hoping for some advice.
+"I knew a epic hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+The ever bold Maixenor continued his long and tiring journey to find the catoblepas.
 
-A goldsmith rushed by quickly, ignoring him. The man eyed him thoughtfully, but eventually responded.
+Not once did he regret his choice to not become a barber.
 
-"Our village of Wilingornostolcher will gladly help you on your quest. What do you need?"
+The ever classic Maixenor continued his long and tiring journey to find the catoblepas.
 
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+Not once did Maixenor regret his choice to not become a cook.
 
-"Unsegisme is past the stables. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+Maixenor saw a unkind catoblepas in the distance! Our hero fixed his gaze on the disgusting sight. Our hero approched the catoblepas cautiously, careful not to rush to an untimely death. 
 
-Alkmain hurried towards the armory. While the builder threw punches, a tutor slept in an alleyway. The sheepshearer gazed at him from an open window with a philosopher. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Our hero pulled a twilight lavender potion from his pack and drinks it. He is reinvigorated. The catoblepas struck with its bite! Our hero jumps out of the way. 
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+The catoblepas eyed Maixenor with a dangerous glare. The lurid monster took a swipe at Maixenor. Maixenor the tall standing winces from the pain but continues fighting. 
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+A powerful swing came from the catoblepas with very deadly intent. The nasty catoblepas failed to land its hit. he stumbles to his knee, gasping for breath. A powerful swing came from the catoblepas with very deadly intent. The mean catoblepas failed to land its hit. 
 
-Unsegisme lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The redcap."
+The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. Maixenor landed a massive hit on catoblepas! Struck by the hefty blow, the catoblepas needed a second to recover its footing. The adventurer held his sickle-sword tightly, ready to block any attack. 
 
-The armorer sighed and continued. "Redcaps embody both capriciousness and sadism. These stumpy, misanthropic fey freaks exist seemingly to indulge in blissful bloodletting and self-indulgent slaughter. Like prune-faced, angry old men, they mollycoddle their own inefficiencies and miseries in gore. Redcaps are most widely recognized for their long woolen caps, which they drench in the blood of their victims. Rumors and fairy stories abound concerning rituals and the cultural significance of their blood-soaked caps, though the practice likely evolved as an easy way for the brutish runts to create both fear and spectacle. Redcaps typically stand only 3 feet tall, with twisted frames, pointed ears, and long white beards. They dress in soiled leather armor and wear oversized, iron-shod boots that make a distinctive clanging when they run."
+Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! Although the adventurer's hit landed, catoblepas is mostly unphasedThe monster was stunned by the attack. The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. The slippery catoblepas evaded Maixenor's hit. 
 
-"I could handle that. Tell me again, what makes the redcap so bad?" Alkmain responded.
+Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! The stouthearted Maixenor landed a massive hit on catoblepas! A powerful swing came from the catoblepas with very deadly intent. The horrendous catoblepas failed to land its hit. A undaunted attack suddenly came from Maixenor, its intent to silence the sickie beast once and for all. Maixenor's strike glanced off of the catoblepas's hide. 
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
+The grand Maixenor pulled a guppie green potion from his pack and drinks it. He is reinvigorated. The offensive monster took a swipe at Maixenor. He blocks the strike with his sickle-sword. 
 
-Alkmain saw a repulsive redcap in the distance! Our hero fixed his gaze on the fairy sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+Maixenor took a deep breath and swung toward the shocking catoblepas. The scandalous catoblepas was too quick to be hit. The awful monster took a swipe at Maixenor. He stunbles backward, gasping for breath. Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! The slippery catoblepas evaded Maixenor's hit. 
 
-The redcap leans low, ready to strike with its might. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+A powerful swing came from the catoblepas with very deadly intent. The abhorrent catoblepas failed to land its hit. The exhilarating combat made the hours seem like seconds. The catoblepas struck with its bite! He winces from the pain but continues fighting. 
 
-The redcap struck with its Medium scythe! The fierce blow from the monster narrowly misses Alkmain the gallant. Alkmain the valiant leaned on his sword to catch a moment's respite. He was worn out by the combat. The redcap struck with its Medium scythe! The fierce blow from the monster narrowly misses he. 
+A powerful swing came from the catoblepas with very deadly intent. Maixenor reeled back in pain. the impavid Maixenor stumbles to his knee, gasping for breath. The catoblepas struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. The redcap struck with its Medium scythe! Alkmain the gutsy winces from the pain but continues fighting. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+He held his sickle-sword tightly, ready to block any attack. The catoblepas leans low, ready to strike with its might. 
 
-He pulls a chartreuse traditional potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the redcap, his sword ready to strike! That blow seemed like it could break some bones. 
+The catoblepas struck with its bite! The obnoxious catoblepas failed to land its hit. the fire-eating Maixenor stumbles to his knee, gasping for breath. The catoblepas leans low, ready to strike with its might. 
 
-The redcap struck with its Medium scythe! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the redcap, his sword ready to strike! That blow seemed like it could break some bones. 
+A powerful swing came from the catoblepas with very deadly intent. The adventurer blocks the strike with his sickle-sword. Maixenor made a mighty swing at the catoblepas with this sickle-sword. The unkind catoblepas was too quick to be hit. 
 
-The redcap struck with its Medium scythe! He jumps out of the way. He leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The redcap leans low, ready to strike with its might. 
+The catoblepas leans low, ready to strike with its might. The catoblepas struck with its bite! The nasty catoblepas failed to land its hit. 
 
-The redcap leans low, ready to strike with its might. The redcap struck with its Medium scythe! He stunbles backward, gasping for breath. 
+Maixenor took a deep breath and swung toward the ungodly catoblepas. The shattering blow from the adventurer rumbled through the ground. Struck by the hefty blow, the catoblepas needed a second to recover its footing. Maixenor held his sickle-sword tightly, ready to block any attack. 
 
-The redcap struck with its Medium scythe! The beastly redcap failed to land its hit. he stumbles to his knee, gasping for breath. The redcap leans low, ready to strike with its might. 
+The catoblepas leans low, ready to strike with its might. The grisly monster took a swipe at Maixenor. Maixenor blocks the strike with his sickle-sword. 
 
-He sneaked around to redcap's blind spot. The redcap leans low, ready to strike with its might. 
+Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! Maixenor's strike glanced off of the catoblepas's hide. Struck by the hefty blow, the catoblepas needed a second to recover its footing. He held his sickle-sword tightly, ready to block any attack. 
 
-The adventurer sneaked around to redcap's blind spot. The redcap struck with its Medium scythe! The classic Alkmain blocks the strike with his sword. 
+The lousy monster took a swipe at Maixenor. The awful catoblepas failed to land its hit. our hero stumbles to his knee, gasping for breath. The catoblepas struck with its bite! The horrid catoblepas failed to land its hit. 
 
-The high-flown Alkmain pulls a avocado potion from his pack and drinks it. He is reinvigorated. The redcap struck with its Medium scythe! The adventurer blocks the strike with his sword. 
+Maixenor the unafraid made a mighty swing at the catoblepas with this sickle-sword. A sharp crack was heard as the strike left its mark. Struck by the hefty blow, the catoblepas needed a second to recover its footing. Maixenor took a deep breath and swung toward the horrid catoblepas. The hideous catoblepas was too quick to be hit. 
 
-Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. The redcap struck with its Medium scythe! Alkmain reeled back in pain. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+Maixenor took a deep breath and swung toward the frightful catoblepas. The fairy catoblepas was too quick to be hit. A powerful swing came from the catoblepas with very deadly intent. The fierce blow from the monster narrowly misses the valiant Maixenor. A doughty attack suddenly came from Maixenor, its intent to silence the awful beast once and for all. The unkind catoblepas was too quick to be hit. 
 
-Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+The catoblepas eyed Maixenor with a dangerous glare. Our hero made a mighty swing at the catoblepas with this sickle-sword. The catoblepas took a glancing blow. 
 
-He pulls a snow potion from his pack and drinks it. He is reinvigorated. The redcap struck with its Medium scythe! He winces from the pain but continues fighting. 
+Maixenor took a deep breath and swung toward the obnoxious catoblepas. Maixenor's strike glanced off of the catoblepas's hide. Struck by the hefty blow, the catoblepas needed a second to recover its footing. Maixenor took a deep breath and swung toward the grisly catoblepas. Maixenor landed a massive hit on catoblepas! 
 
-The redcap struck with its Medium scythe! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The redcap leans low, ready to strike with its might. 
+The hideous monster took a swipe at Maixenor. Our hero blocks the strike with his sickle-sword. He leaned on his sickle-sword to catch a moment's respite. Our hero was worn out by the combat. A powerful swing came from the catoblepas with very deadly intent. The fierce blow from the monster narrowly misses he. 
 
-The redcap struck with its Medium scythe! Alkmain blocks the strike with his sword. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The redcap struck with its Medium scythe! The repulsive redcap failed to land its hit. 
+The adventurer sneaked around to catoblepas's blind spot. The catoblepas eyed Maixenor with a dangerous glare. 
 
-Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+The abominable monster took a swipe at Maixenor. Maixenor reeled back in pain. Maixenor leaned on his sickle-sword to catch a moment's respite. Maixenor was worn out by the combat. The catoblepas struck with its bite! The terrible catoblepas failed to land its hit. 
 
-The redcap struck with its Medium scythe! He stunbles backward, gasping for breath. Alkmain lunged toward the redcap, his sword ready to strike! That blow seemed like it could break some bones. 
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the catoblepas with very deadly intent. The fierce blow from the monster narrowly misses Maixenor. 
 
-Alkmain lunged toward the redcap, his sword ready to strike! The attack from our hero surely left a impression. The redcap struck with its Medium scythe! Alkmain stunbles backward, gasping for breath. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+The catoblepas struck with its bite! He jumps out of the way. The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. The slippery catoblepas evaded Maixenor's hit. 
 
-The adventurer pulls a yale blue potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the redcap, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+Maixenor cleared his mind, preparing himself for the combat to come.A daring attack suddenly came from Maixenor, its intent to silence the menacing beast once and for all. That blow seemed like it could break some bones. 
 
-The redcap leans low, ready to strike with its might. Alkmain lunged toward the redcap, his sword ready to strike! The slippery redcap evaded Alkmain's hit. 
+A powerful swing came from the catoblepas with very deadly intent. The fierce blow from the monster narrowly misses the undaunted Maixenor. he stumbles to his knee, gasping for breath. The catoblepas eyed Maixenor with a dangerous glare. 
 
-The mythological Alkmain sneaked around to redcap's blind spot. Alkmain lunged toward the redcap, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+A mythological attack suddenly came from Maixenor, its intent to silence the appalling beast once and for all. The slippery catoblepas evaded Maixenor's hit. Struck by the hefty blow, the catoblepas needed a second to recover its footing. The gutsy Maixenor held his sickle-sword tightly, ready to block any attack. 
 
-Alkmain was victorious! The redcap menaced for no longer! 
+He made a mighty swing at the catoblepas with this sickle-sword. The shattering blow from the inflated Maixenor rumbled through the ground. A powerful swing came from the catoblepas with very deadly intent. The lousy catoblepas failed to land its hit. The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. The catoblepas was struck by the blow! 
 
-## <a name="chapter12"></a> Chapter 12: Kills and the Mithral Golem
+He made a mighty swing at the catoblepas with this sickle-sword. The unholy catoblepas was too quick to be hit. A powerful swing came from the catoblepas with very deadly intent. Maixenor the grandiose jumps out of the way. The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. The attack from he surely left a impression. 
 
-Alkmain followed a dirt path into the village of Kills. The smith bit into an apple with a abbot. While the illuminator loaded a market stall with wares, a harlot loaded a market stall with wares. Alkmain continued down the path. Nearby, a horse trainer scuttled out of his way.
+Maixenor cleared his mind, preparing himself for the combat to come.The catoblepas leans low, ready to strike with its might. 
 
-Eventually, Alkmain arrived at the town square, where he found a painter. Alkmain approached him, hoping for some advice.
+The catoblepas struck with its bite! The heinous catoblepas failed to land its hit. He leaned on his sickle-sword to catch a moment's respite. He was worn out by the combat. The catoblepas eyed Maixenor with a dangerous glare. 
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+The catoblepas leans low, ready to strike with its might. A powerful swing came from the catoblepas with very deadly intent. The fierce blow from the monster narrowly misses Maixenor the fearless. 
 
-A innkeeper loaded a market stall with wares. He still looked suspicious, then finally responded.
+The sickle-sword of Maixenor was raised high only to be brought down onto the catoblepas moments later. The horrid catoblepas was too quick to be hit. The terrible monster took a swipe at Maixenor. He blocks the strike with his sickle-sword. Our hero made a mighty swing at the catoblepas with this sickle-sword. Maixenor's strike glanced off of the catoblepas's hide. 
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+A noble attack suddenly came from Maixenor, its intent to silence the ungodly beast once and for all. The evil catoblepas was too quick to be hit. Struck by the hefty blow, the catoblepas needed a second to recover its footing. Maixenor took a deep breath and swung toward the ruinous catoblepas. The awful catoblepas was too quick to be hit. 
 
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+The catoblepas eyed Maixenor with a dangerous glare. Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! The slippery catoblepas evaded Maixenor's hit. 
 
-"Prymnes is past the monastery. There's a small door. Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+Maixenor lunged toward the catoblepas, his sickle-sword ready to strike! The slippery catoblepas evaded Maixenor's hit. The monster was stunned by the attack. A stouthearted attack suddenly came from Maixenor, its intent to silence the shocking beast once and for all. Although he's hit landed, catoblepas is mostly unphased
 
-Alkmain hurried towards the armory. A mosaic layer loaded a market stall with wares. While the harper bit into an apple, a housewife eyed him suspiciously. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor the bold pulled a light khaki potion from his pack and drinks it. He is reinvigorated. The adventurer made a mighty swing at the catoblepas with this sickle-sword. Maixenor landed a massive hit on catoblepas! 
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+A dauntless attack suddenly came from Maixenor, its intent to silence the disagreeable beast once and for all. The shattering blow from he rumbled through the ground. Struck by the hefty blow, the catoblepas needed a second to recover its footing. Our hero held his sickle-sword tightly, ready to block any attack. 
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+The catoblepas eyed Maixenor with a dangerous glare. The catoblepas struck with its bite! The fierce blow from the monster narrowly misses he. 
 
-Prymnes lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The mithral golem."
+Maixenor the fearless made a mighty swing at the catoblepas with this sickle-sword. Maixenor the grandiose landed a massive hit on catoblepas! 
 
-The armorer sighed and continued. "The monster mithral golem is terrifying for sure, but I honestly don't know much about that beast."
+Maixenor's last strike hit the catoblepas directly in the heary. A fatal blow.
 
-"I could handle that. Tell me again, what makes the mithral golem so bad?" Alkmain responded.
+Maixenor says
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+"That didn't seem so hard, I don't know what Averamnes was talking about."
 
-Alkmain saw a nasty mithral golem in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+## <a name="chapter23"></a> Chapter 23: Aldsinge and the Vukodlak
 
-The mythological Alkmain sneaked around to mithral golem's blind spot. The mithral golem struck with its slams! He blocks the strike with his sword. 
+Maixenor followed a dirt path into the village of Aldsinge. While the cantor slept in an alleyway, a boatman bit into an apple. Two jewelers slowly carried supplies. Maixenor continued down the path. A bearleader finished an apple and tossed the core aside.
 
-The adventurer sneaked around to mithral golem's blind spot. The mithral golem struck with its slams! The lurid mithral golem failed to land its hit. 
-
-He sneaked around to mithral golem's blind spot. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! The fearful mithral golem failed to land its hit. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem took a glancing blow. The monster was stunned by the attack. Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem was struck by the blow! 
-
-The adventurer sneaked around to mithral golem's blind spot. The mithral golem struck with its slams! Alkmain blocks the strike with his sword. 
-
-The mithral golem struck with its slams! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The mithral golem struck with its slams! He blocks the strike with his sword. 
-
-He pulls a sacramento state green potion from his pack and drinks it. He is reinvigorated. The mithral golem leans low, ready to strike with its might. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The attack from the adventurer surely left a impression. 
-
-He pulls a french rose potion from his pack and drinks it. He is reinvigorated. The mithral golem struck with its slams! Alkmain the valiant jumps out of the way. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem was staggered by the immense force. The monster was stunned by the attack. Alkmain sneaked around to mithral golem's blind spot. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The attack from the grandiose Alkmain surely left a impression. The monster was stunned by the attack. The adventurer sneaked around to mithral golem's blind spot. 
-
-Alkmain pulls a pastel red potion from his pack and drinks it. He is reinvigorated. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He pulls a melon potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The attack from the intrepid Alkmain surely left a impression. The mithral golem struck with its slams! The epic Alkmain jumps out of the way. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-He pulls a dark electric blue potion from his pack and drinks it. He is reinvigorated. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the mithral golem, his sword ready to strike! Alkmain landed a massive hit on mithral golem! 
-
-The mithral golem struck with its slams! The adventurer stunbles backward, gasping for breath. Alkmain stumbles to his knee, gasping for breath. The mithral golem struck with its slams! The fierce blow from the monster narrowly misses he. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! He landed a massive hit on mithral golem! The monster was stunned by the attack. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The mithral golem struck with its slams! The adventurer jumps out of the way. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-He sneaked around to mithral golem's blind spot. The mithral golem leans low, ready to strike with its might. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! He jumps out of the way. 
-
-Alkmain the epic sneaked around to mithral golem's blind spot. The mithral golem leans low, ready to strike with its might. 
-
-The mithral golem struck with its slams! The fierce blow from the monster narrowly misses our hero. Alkmain stumbles to his knee, gasping for breath. The mithral golem leans low, ready to strike with its might. 
-
-The mithral golem struck with its slams! He blocks the strike with his sword. Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem was struck by the blow! 
-
-The mithral golem struck with its slams! He winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The monster was stunned by the attack. The doughty Alkmain pulls a carmine potion from his pack and drinks it. He is reinvigorated. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem took a glancing blow. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The revolting mithral golem failed to land its hit. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! The revolting mithral golem failed to land its hit. Alkmain leaned on his sword to catch a moment's respite. Alkmain the elevated was worn out by the combat. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The mithral golem struck with its slams! He jumps out of the way. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The mithral golem struck with its slams! He jumps out of the way. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! The gruesome mithral golem failed to land its hit. Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem took a glancing blow. 
-
-The mithral golem struck with its slams! The scandalous mithral golem failed to land its hit. Alkmain leaned on his sword to catch a moment's respite. Alkmain the unafraid was worn out by the combat. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! A sharp crack was heard as the strike left its mark. The mithral golem struck with its slams! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the mithral golem, his sword ready to strike! Although he's hit landed, mithral golem is mostly unphased
-
-The mithral golem struck with its slams! The fierce blow from the monster narrowly misses our hero. The exhilarating combat made the hours seem like seconds. The mithral golem leans low, ready to strike with its might. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! The fearful mithral golem failed to land its hit. The exhilarating combat made the hours seem like seconds. The mithral golem struck with its slams! Alkmain reeled back in pain. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The grisly mithral golem failed to land its hit. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! He landed a massive hit on mithral golem! The monster was stunned by the attack. He pulls a peach orange potion from his pack and drinks it. He is reinvigorated. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The fierce blow from the monster narrowly misses Alkmain. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The revolting mithral golem failed to land its hit. 
-
-He pulls a teal blue potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the mithral golem, his sword ready to strike! The attack from Alkmain the courageous surely left a impression. 
-
-The mithral golem leans low, ready to strike with its might. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The eerie mithral golem failed to land its hit. 
-
-The fearless Alkmain pulls a electric cyan potion from his pack and drinks it. He is reinvigorated. The mithral golem struck with its slams! He jumps out of the way. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem was struck by the blow! The mithral golem struck with its slams! He winces from the pain but continues fighting. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem leans low, ready to strike with its might. The mithral golem struck with its slams! The fierce blow from the monster narrowly misses the adventurer. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. The mithral golem struck with its slams! Alkmain reeled back in pain. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! He jumps out of the way. The exhilarating combat made the hours seem like seconds. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain lunged toward the mithral golem, his sword ready to strike! The mithral golem was struck by the blow! The mithral golem struck with its slams! Alkmain the fearless blocks the strike with his sword. Alkmain lunged toward the mithral golem, his sword ready to strike! The slippery mithral golem evaded Alkmain's hit. 
-
-The mithral golem struck with its slams! The fierce blow from the monster narrowly misses he. Alkmain stumbles to his knee, gasping for breath. The mithral golem struck with its slams! He jumps out of the way. 
-
-The mithral golem struck with its slams! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The mithral golem leans low, ready to strike with its might. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Prymnes was talking about."
-
-## <a name="chapter13"></a> Chapter 13: Sudbridge and the Xtabay
-
-Alkmain followed a dirt path into the village of Sudbridge. Nearby, a shipwright talked excitedly with what appeared to be a scabbard maker. Nearby, a upholder eyed him suspiciously. Alkmain continued down the path. The woodcarver slept in an alleyway with a waxchandler.
-
-Eventually, Alkmain arrived at the town square, where he found a tentsman. Alkmain approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Nearby, a bard scuttled out of his way. The man sat in silence for a while, then finally responded.
-
-"Our village of Mingsburn will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Thorus is into the market and towards the church. Eventually you need to walk just a bit further down the street. There's a small door. Tell him I sent you. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 8 small coins. "I want that Hippus gone as much as anybody."
-
-Alkmain hurried towards the armory. The poacher talked excitedly with what appeared to be a cordwainer with a maidservant. A chimney sweep gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Thorus looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the cat lord, or perhaps even the ramidreju, but that's nothing compared to the xtabay we've got."
-
-Thorus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Known for their potentóand ultimately deadlyóscent, xtabays are a floral hazard to the unwary. As fast-spreading as ivy, a xtabay's vines are sturdy and adaptive, making the plant a potential threat nearly everywhereófrom gardens to wells to forest groves."
-
-"I could handle that. Tell me again, what makes the xtabay so bad?" Alkmain responded.
-
-"Attractive flowers blossom from the vines of xtabays, emitting the spores that mean a slow death for their victims. The strange, face-like patterns that grow on the petals are disturbing but seem to have no real function. Hermits or other reclusive types have been known to surround their territory with xtabays, warding off pesky creatures and adventurers alike. Instances of xtabays of larger-than-usual size have also been reported. These massive plants possess tendrils as thick as tree limbs and flowers that can fell even the hardiest of warriors with their overwhelming perfume. Underground, xtabays thrive in the wet, dark environment, covering the walls and floors of entire caverns and anesthetizing whole dens of subterranean creatures." Thorus explained.
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-Thorus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Nomadic plants, xtabays traverse large expanses of land until they sense nearby life, at which point they lie dormant and take on the guise of harmless flowers while releasing their deceptive aroma. Once a creature is subdued, the beast-like plant wastes no time in devouring it, disregarding creatures unaffected by its aroma. Because of their carnivorous nature, xtabays only rarely run short on nutrients, consuming the entirety of a victim's body over the course of several days following the initial process of draining its blood. Xtabays are able to devour creatures thanks to their lengthy roots, which produce a corrosive acid that breaks down and absorbs flesh and bone."
-
-Alkmain slipped the man 5 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a nasty xtabay in the distance! Our hero fixed his gaze on the scandalous sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The adventurer sneaked around to xtabay's blind spot. The xtabay struck with its stings! Alkmain reeled back in pain. 
-
-The xtabay leans low, ready to strike with its might. Alkmain lunged toward the xtabay, his sword ready to strike! Although he's hit landed, xtabay is mostly unphased
-
-Our hero pulls a cherry potion from his pack and drinks it. He is reinvigorated. The xtabay leans low, ready to strike with its might. 
-
-Alkmain lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the xtabay, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Alkmain's hit. The xtabay struck with its stings! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the xtabay, his sword ready to strike! The slippery xtabay evaded Alkmain's hit. 
-
-He sneaked around to xtabay's blind spot. The xtabay leans low, ready to strike with its might. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Thorus was talking about."
-
-## <a name="chapter14"></a> Chapter 14: Greend and the Nightgaunt
-
-Alkmain followed a dirt path into the village of Greend. A master of hounds sat by the side of the road. Nearby, a crossbowman hawked fine imported goods from North Kend. Alkmain continued down the path. Two tapestrymakers talked excitedly with what appeared to be a organist.
-
-Eventually, Alkmain arrived at the town square, where he found a waxchandler. The man, eying his impressive armor, beckoned him forward.
+Eventually, Maixenor arrived at the town square, where he found a beekeeper. The man, eying his well-made boots, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
+"Do you remember the glory days before the evil wizard Kebad took over?" Maixenor asked. "I seek to destroy him and restore this kingdom's rightful rule!"
 
-The feltmaker ran from person to person, asking if they had seen Gillo with a oilmaker. The man sat in silence for a while, but eventually responded.
+Two heralds talked excitedly with what appeared to be a harper. The man sat in silence for a while, but eventually responded.
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is just a bit further down the street. Look for the large hanging sign that reads "Edmos Fine Supplies". You'll find Edmos, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Alkmain hurried towards the armory. The gunsmith finished an apple and tossed the core aside with a halberdier. While the spinster bit into an apple, a apothecary stood by a market stall, negotiating with the tallowchandler. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Edmos lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The nightgaunt."
-
-The armorer sighed and continued. "Nightgaunts haunt the deepest and darkest chasms of dreams. They lurk in the shadows that loom at the edges of sane slumber, but are ready at any moment to snatch a blithe dreamer away, carrying it off into realms of endless nightmare and tickling it terribly all the way. They appear as stooped, emaciated humanoids, yet possess a remarkable strength in their sinewy limbs. With inky black skin, batlike wings, a long spiny tail, and demonic horns protruding from its skull, a nightgaunt is a fearsome foeóyet the lack of any facial features is what makes it truly nightmarish."
-
-"But my weapons may be too weak. Are there any other ways to defeat the nightgaunt?" Alkmain asked.
-
-"A typical nightgaunt would stand 7 feet tall if fully upright, and weighs 175 pounds." Edmos explained.
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Nightgaunts feed on emotions, preferring despair, horror, and nervous laughter. They enjoy carrying their prey high over the mountains, tickling their prey to create a mix of emotions, and finally dropping their victims in remote areas where other monsters can stalk and kill them. Some creatures pay nightgaunts to serve as guardians or carry them from place to place, though the nightgaunts are prone to turn on their employers at the smallest slight."
-
-"I could handle that. Tell me again, what makes the nightgaunt so bad?" Alkmain responded.
-
-The armorer sighed and continued. "Most nightgaunts have little interest in anything other than sating their hunger on sleepers, and gather in colonies to entertain each other by sharing emotion-memories through strange caresses. They sometimes war with the other creatures found in their desolate realms."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
-
-Alkmain saw a hideous nightgaunt in the distance! Alkmain readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-Alkmain pulls a cardinal potion from his pack and drinks it. He is reinvigorated. The nightgaunt struck with its claws! Alkmain the lion-hearted jumps out of the way. 
-
-The inflated Alkmain sneaked around to nightgaunt's blind spot. The nightgaunt leans low, ready to strike with its might. 
-
-He pulls a dark goldenrod potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the nightgaunt, his sword ready to strike! The slippery nightgaunt evaded Alkmain's hit. 
-
-The nightgaunt struck with its claws! Alkmain the bold jumps out of the way. Alkmain lunged toward the nightgaunt, his sword ready to strike! The shattering blow from Alkmain rumbled through the ground. 
-
-The nightgaunt leans low, ready to strike with its might. Alkmain lunged toward the nightgaunt, his sword ready to strike! The shattering blow from Alkmain rumbled through the ground. 
-
-The nightgaunt leans low, ready to strike with its might. Alkmain lunged toward the nightgaunt, his sword ready to strike! The slippery nightgaunt evaded Alkmain's hit. 
-
-He pulls a purple pizzazz potion from his pack and drinks it. He is reinvigorated. The nightgaunt struck with its claws! He stunbles backward, gasping for breath. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Edmos was talking about."
-
-## <a name="chapter15"></a> Chapter 15: Hiltown and the Stormghost
-
-Alkmain followed a dirt path into the village of Hiltown. A glazier bit into an apple. The sawyer finished an apple and tossed the core aside with a spearman. Alkmain continued down the path. Two bankers ran from person to person, asking if they had seen Tarchalikraterila.
-
-Eventually, Alkmain arrived at the town square, where he found a water carrier. Alkmain approached him, hoping for some advice.
-
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-A lanternmaker finished an apple and tossed the core aside. The man sat in silence for a while, but eventually responded.
-
-"Our village of Ipstont will gladly help you on your quest. What do you need?"
+"We have waited for your arrival for many years, Maixenor. Is there any way I can be of help?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"Gaua is the best in town. His shop is into the market and towards the barn. Eventually you need to walk just a bit further down the street. It's just to the right. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 7 small coins. "I want that Hippus gone as much as anybody."
+"The armory is past the monastery. There's a small door. You'll find Cissiones, the best weapons expert we've got. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
 
-Alkmain hurried towards the armory. A pope bit into an apple. Two pioneers rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. While the joiner gazed at him from an open window, a archer sat by the side of the road. Two spinsters loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Gaua looked up from his work behind a counter at Alkmain.
+Cissiones looked up from his work behind a counter at Maixenor.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Gaua grabbed a dusty book from the shelf and flipped through it. Pictures of astomois and giant termites flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the marilith, or perhaps even the saxra, but that's nothing compared to the vukodlak we've got."
 
-"Cunning hunters, stormghosts prowl lonely arctic tors, so named by their victims for their ability to conjure malignant weather and attack unseen. Stormghosts search constantly for food, tracking animals and intelligent creatures alike, and their appearances vary depending on the season, allowing them to blend into any environment. While stormghosts are thankfully rare, their regeneration mitigates the effects of aging, allowing them to live for more than 2,000 years. A typical stormghost stands 8 feet tall in its regular posture, but can extend its legs to reach up to 14 feet, with its muscled flesh and hardened chitin armor making it weigh roughly 1,500 pounds." Gaua explained.
+"Vukodlaks spawn from the malignant spirits of powerful, intelligent, wolflike creatures such as worgs, winter wolves, or werewolves. Often they arise from such creatures thatóthrough desperation or depravityófed on undead flesh or drank the blood of a vampiric creature. Their blackened souls arise after death, twisting their bodies into monstrous shapes. Like vampires, vukodlaks share an insatiable thirst for blood." Cissiones explained.
 
-"But my weapons may be too weak. Are there any other ways to defeat the stormghost?" Alkmain asked.
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
+The armorer sighed and continued. "Vukodlaks measure 8 feet long and 6 feet tall at the shoulder, and they weigh 1,000 pounds. A vukodlak typically walks on all fours, and from a distance can easily be mistaken for a large, shaggy horse. However, it has a distinct wolflike muzzle filled with sharp canine teeth, as well as other wolfish features. Vukodlaks possess monstrous strength, making them ideal mounts for powerful undead masters or other evil creatures. While serving as mounts, they keep to all fours, and might easily be mistaken for worgs or great fanged horses. Masters seeking to control vukodlaks find the most success relying on fear and intimidation, as well as providing a constant source of blood for the creature to feed upon. Vukodlaks share a natural kinship with vampires and often serve them willingly."
 
-Alkmain saw a abhorrent stormghost in the distance! Our hero fixed his gaze on the grim sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+"I could handle that. Tell me again, what makes the vukodlak so bad?" Maixenor responded.
 
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost was staggered by the immense force. 
+"Vukodlaks hunger for blood, gorging themselves rather than saving victims to feed on later. When feeding, they can prove difficult to command. Riders who are not careful in their attempts to restrain a hungry vukodlak risk having their mount turn on them. While vukodlaks can go days without feeding, they gradually become weaker if they do not feed daily, and have difficulty operating on anything other than pure instinct. Though intelligent, vukodlaks rarely think or plan ahead, instead focusing on feeding or obeying their masters' commands." Cissiones explained.
 
-The adventurer pulls a pale lavender potion from his pack and drinks it. He is reinvigorated. The stormghost struck with its bite! Alkmain reeled back in pain. 
+"But my weapons may be too weak. Are there any other ways to defeat the vukodlak?" Maixenor asked.
 
-Alkmain the gutsy sneaked around to stormghost's blind spot. The stormghost struck with its bite! Alkmain reeled back in pain. 
+"Vukodlaks without masters often form small packs. These packs annihilate all life in entire areas, overfeeding until destroyed or forced to move on. Vukodlaks hate sunlight and hunt only at night, making their lairs in deep caves or ruins. They don't care for treasure; anything of worth found in a vukodlak lair is simply something its latest victim was carrying that the beast couldn't eat." Cissiones explained.
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost was struck by the blow! The monster was stunned by the attack. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+"I could handle that. Tell me again, what makes the vukodlak so bad?" Maixenor responded.
 
-Alkmain lunged toward the stormghost, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+Cissiones returned to the book of monsters on the desk and pointed at the terrifying illustration. "Although vukodlaks don't appear undead at first glance, any creature that wounds one or finds a vukodlak corpse can tell they're not living creaturesótheir bodies being largely hollow, filled with the rotten, stinking remains of organs that ceased functioning long ago."
 
-The stormghost struck with its bite! Alkmain jumps out of the way. Alkmain the impavid stumbles to his knee, gasping for breath. The stormghost struck with its bite! The fierce blow from the monster narrowly misses he. 
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-Our hero pulls a ecru potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The stormghost struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the stormghost, his sword ready to strike! That blow seemed like it could break some bones. 
+As Maixenor turned to leave the armory, Cissiones called out
 
-Alkmain sneaked around to stormghost's blind spot. The stormghost leans low, ready to strike with its might. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the vukodlak." 
 
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+"Take this orc double axe. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The stormghost struck with its bite! The shocking stormghost failed to land its hit. Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost was struck by the blow! 
+Sheathing his orc double axe, Maixenor leaves Aldsinge on a journey to find the vukodlak. 
 
-The doughty Alkmain pulls a gray asparagus potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost took a glancing blow. 
+As Maixenor walked along the path out of Aldsinge, he turned to his left and saw something gutty.
 
-The daring Alkmain sneaked around to stormghost's blind spot. Alkmain lunged toward the stormghost, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+Some distant Domes stood out against the horizon.It reminded our hero of the town of Sunton he had visited long ago.
 
-The stormghost struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The stormghost struck with its bite! Our hero blocks the strike with his sword. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+Maixenor met a wandering oil merchant making his way toward Aldsinge. The stranger said to Maixenor
 
-Alkmain the courageous pulls a ghost white potion from his pack and drinks it. He is reinvigorated. The stormghost struck with its bite! He blocks the strike with his sword. 
+"I knew a fearless hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost took a glancing blow. The monster was stunned by the attack. Alkmain the bigger than life pulls a ghost white potion from his pack and drinks it. He is reinvigorated. 
+The ever epic Maixenor continued his long and tiring journey to find the vukodlak.
 
-The elevated Alkmain pulls a malachite potion from his pack and drinks it. He is reinvigorated. The stormghost struck with its bite! Alkmain the undaunted jumps out of the way. 
+Not once did he regret his choice to not become a panter.
 
-The stormghost struck with its bite! The awful stormghost failed to land its hit. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+As Maixenor walked along the path out of Aldsinge, he turned to his left and saw something valorous.
 
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+He could barely make out some Swamps in the distance.It reminded he of the town of Oly Road-d√ªm he had visited long ago.
 
-The stormghost struck with its bite! He jumps out of the way. the lion-hearted Alkmain stumbles to his knee, gasping for breath. The stormghost struck with its bite! Our hero winces from the pain but continues fighting. 
+As Maixenor walked along the path out of Aldsinge, he turned to his right and saw something grandiose.
 
-The stormghost struck with its bite! The doughty Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The stormghost struck with its bite! Alkmain blocks the strike with his sword. 
+Contrasting against the nearby Desert pavements, the great St. Juntreens Abyssal fans provided a refreshing view.It reminded the adventurer of the town of Maner he had visited long ago.
 
-The intrepid Alkmain pulls a pale violet red potion from his pack and drinks it. He is reinvigorated. The stormghost leans low, ready to strike with its might. 
+Maixenor saw a horrendous vukodlak in the distance! Our hero readied his sword. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
 
-He sneaked around to stormghost's blind spot. The stormghost struck with its bite! The fierce blow from the monster narrowly misses he. 
+Maixenor took a deep breath and swung toward the repellent vukodlak. That blow seemed like it could break some bones. Struck by the hefty blow, the vukodlak needed a second to recover its footing. Maixenor the tall standing made a mighty swing at the vukodlak with this orc double axe. Maixenor's strike glanced off of the vukodlak's hide. 
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+A powerful swing came from the vukodlak with very deadly intent. The fierce blow from the monster narrowly misses he. The adventurer leaned on his orc double axe to catch a moment's respite. He was worn out by the combat. The vukodlak leans low, ready to strike with its might. 
 
-Alkmain lunged toward the stormghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He sneaked around to stormghost's blind spot. 
+A powerful swing came from the vukodlak with very deadly intent. The fierce blow from the monster narrowly misses the grand Maixenor. Maixenor lunged toward the vukodlak, his orc double axe ready to strike! The vukodlak was staggered by the immense force. 
 
-The stormghost struck with its bite! Alkmain the high-flown stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The stormghost leans low, ready to strike with its might. 
+The vukodlak eyed Maixenor with a dangerous glare. The vukodlak struck with its bite! He jumps out of the way. 
 
-He pulls a medium violet red potion from his pack and drinks it. He is reinvigorated. The stormghost leans low, ready to strike with its might. 
+He held his orc double axe tightly, ready to block any attack. A impavid attack suddenly came from Maixenor, its intent to silence the ungodly beast once and for all. A sharp crack was heard as the strike left its mark. 
 
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost was struck by the blow! 
+Maixenor lunged toward the vukodlak, his orc double axe ready to strike! The vukodlak was staggered by the immense force. 
 
-Alkmain pulls a french lilac potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the stormghost, his sword ready to strike! The stormghost was struck by the blow! 
+Maixenor's last strike hit the vukodlak directly in the heary. A fatal blow.
 
-The stormghost leans low, ready to strike with its might. The stormghost struck with its bite! Alkmain reeled back in pain. 
+The citizens of Aldsinge could sleep soundly at night. He had vanquished their greatest nightmare.
 
-Alkmain lunged toward the stormghost, his sword ready to strike! Although the adventurer's hit landed, stormghost is mostly unphasedThe stormghost struck with its bite! Alkmain jumps out of the way. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
+## <a name="chapter24"></a> Chapter 24: Bebor and the Tengu
 
-The stormghost struck with its bite! He winces from the pain but continues fighting. our hero stumbles to his knee, gasping for breath. The stormghost leans low, ready to strike with its might. 
+Maixenor followed a dirt path into the village of Bebor. Nearby, a bailiff eyed him suspiciously. A ditcher sat by the side of the road. Maixenor continued down the path. Nearby, a papermaker gazed at him from an open window.
 
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The monster was stunned by the attack. He pulls a dark salmon potion from his pack and drinks it. He is reinvigorated. 
+Eventually, Maixenor arrived at the town square, where he found a carpenter. Maixenor approached him, hoping for some advice.
 
-Our hero sneaked around to stormghost's blind spot. Alkmain lunged toward the stormghost, his sword ready to strike! Although he's hit landed, stormghost is mostly unphased
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
 
-The stormghost struck with its bite! Alkmain the gallant stunbles backward, gasping for breath. Alkmain the exaggerated stumbles to his knee, gasping for breath. The stormghost struck with its bite! He blocks the strike with his sword. 
+The alchemist bit into an apple with a farrier. The man quietly reminised about the pastHe finally responded.
 
-The stormghost struck with its bite! Alkmain the doughty winces from the pain but continues fighting. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-He pulls a zinnwaldite brown potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-The stormghost struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The stormghost leans low, ready to strike with its might. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. He pulls a safety orange blaze orange potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The monster was stunned by the attack. He pulls a cg red potion from his pack and drinks it. He is reinvigorated. 
-
-The stormghost leans low, ready to strike with its might. The stormghost struck with its bite! The fierce blow from the monster narrowly misses Alkmain the daring. 
-
-The stormghost struck with its bite! The adventurer stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The stormghost leans low, ready to strike with its might. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! The adventurer landed a massive hit on stormghost! The monster was stunned by the attack. Alkmain lunged toward the stormghost, his sword ready to strike! Alkmain landed a massive hit on stormghost! 
-
-The valorous Alkmain pulls a light apricot potion from his pack and drinks it. He is reinvigorated. The stormghost leans low, ready to strike with its might. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! Alkmain landed a massive hit on stormghost! The monster was stunned by the attack. He pulls a dodger blue potion from his pack and drinks it. He is reinvigorated. 
-
-The stormghost struck with its bite! He blocks the strike with his sword. he stumbles to his knee, gasping for breath. The stormghost leans low, ready to strike with its might. 
-
-The stormghost leans low, ready to strike with its might. The stormghost struck with its bite! The lousy stormghost failed to land its hit. 
-
-He pulls a light slate gray potion from his pack and drinks it. He is reinvigorated. The stormghost struck with its bite! The revolting stormghost failed to land its hit. 
-
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! Although Alkmain the impavid's hit landed, stormghost is mostly unphased
-
-The stormghost struck with its bite! The lion-hearted Alkmain blocks the strike with his sword. Our hero leaned on his sword to catch a moment's respite. Alkmain was worn out by the combat. The stormghost struck with its bite! Alkmain the bigger than life blocks the strike with his sword. 
-
-The stormghost struck with its bite! The fierce blow from the monster narrowly misses the adventurer. the dauntless Alkmain stumbles to his knee, gasping for breath. The stormghost leans low, ready to strike with its might. 
-
-The stormghost struck with its bite! The repulsive stormghost failed to land its hit. Alkmain leaned on his sword to catch a moment's respite. He was worn out by the combat. The stormghost leans low, ready to strike with its might. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The stormghost struck with its bite! Our hero stunbles backward, gasping for breath. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-He sneaked around to stormghost's blind spot. The stormghost struck with its bite! He blocks the strike with his sword. 
-
-The stormghost struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The stormghost struck with its bite! He winces from the pain but continues fighting. 
-
-Alkmain sneaked around to stormghost's blind spot. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. The stormghost struck with its bite! Our hero jumps out of the way. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! Although he's hit landed, stormghost is mostly unphasedThe monster was stunned by the attack. The adventurer pulls a dark electric blue potion from his pack and drinks it. He is reinvigorated. 
-
-The stormghost leans low, ready to strike with its might. The stormghost struck with its bite! Alkmain blocks the strike with his sword. 
-
-Our hero sneaked around to stormghost's blind spot. The stormghost struck with its bite! Alkmain reeled back in pain. 
-
-He pulls a blanched almond potion from his pack and drinks it. He is reinvigorated. The stormghost leans low, ready to strike with its might. 
-
-The stormghost struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-The stormghost struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the stormghost, his sword ready to strike! The slippery stormghost evaded Alkmain's hit. 
-
-He sneaked around to stormghost's blind spot. The stormghost leans low, ready to strike with its might. 
-
-The stormghost struck with its bite! He jumps out of the way. Alkmain lunged toward the stormghost, his sword ready to strike! The attack from Alkmain surely left a impression. 
-
-The stormghost leans low, ready to strike with its might. Alkmain lunged toward the stormghost, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain pulls a carnation pink potion from his pack and drinks it. He is reinvigorated. The stormghost leans low, ready to strike with its might. 
-
-Alkmain lunged toward the stormghost, his sword ready to strike! The adventurer landed a massive hit on stormghost! The stormghost struck with its bite! The fierce blow from the monster narrowly misses Alkmain the gritty. Alkmain lunged toward the stormghost, his sword ready to strike! Although our hero's hit landed, stormghost is mostly unphased
-
-He was victorious! The stormghost menaced for no longer! 
-
-## <a name="chapter16"></a> Chapter 16: Sougby and the Jinushigami
-
-Alkmain followed a dirt path into the village of Sougby. While the spinster threw punches, a old-clothes dealer sat by the side of the road. The spice merchant ran from person to person, asking if they had seen Poin with a costermonger. Alkmain continued down the path. Nearby, a miller scuttled out of his way.
-
-Eventually, Alkmain arrived at the town square, where he found a rivener. Alkmain approached him, hoping for some advice.
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-While the charcoalburner threw punches, a basketmaker talked excitedly with what appeared to be a blockcutter. The man sat in silence for a whileHe finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+"Our village of Bebor will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is into the market and towards the stables. Eventually you need to walk just a bit further down the street. Look for the large hanging sign that reads "Ones Fine Supplies". You'll find Ones, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Hippus gone as much as anybody."
+"Alkmaios is the best in town. His shop is just a bit further down the street. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. Two bricklayers scuttled out of his way. Two princes gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. A horner bit into an apple. Two besom makers rushed by quickly, ignoring him. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Ones looked up from his work behind a counter at Alkmain.
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Ones grabbed a dusty book from the shelf and flipped through it. Pictures of rakshasas and gelatinous cubes flew by. Eventually he settled on a page and started to explain.
+Alkmaios lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The tengu."
 
-The armorer sighed and continued. "Guardians of significant natural wonders like mountains, large lakes, forests, and so on, jinushigami (known also as land kami) are the most powerful and revered of all kami, commanding the very forces of nature itself to ensure the safety and security of their wards. These potent spirits garner the most respect among other kami, wielding great influence over both them and the native creatures that dwell within their territories. Jinushigami tend to stay hidden amongst their land, however, knowing that their intimate tie with the environment makes them highly desirable targets among those who would seek to do harm to nature."
+The armorer sighed and continued. "Tengus are a race of avian humanoids that resemble crows or ravens, and often bear much of the same stigma. Though they frequently choose to live among other races in densely populated cities, their society is tight and closed, and they rarely allow others to see its inner workings. Tengus often band together in small groups to create roosts in vacant warehouses or condemned buildings, and these raucous gathering places are generally assumed to be thieves' guilds by outsidersóan assumption that's correct roughly half the time."
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+"I could handle that. Tell me again, what makes the tengu so bad?" Maixenor responded.
 
-"Strangers to lands protected by jinushigami are well-advised to take the utmost care to not offend the powerful spirit creatures. When displeased, jinushigami can eradicate trails and warp the contours of their terrain, forcing travelers to endure unreasonable hardship in travel. These goliaths have little patience for those who would defile their efforts, and offenders who fail to listen to a jinushigami's initial hints quickly discover how devastating the kami's powers can be as they are forced from the land either by the lesser kami who serve their superior or by the towering jinushigami itself. Of course, those who respect and honor the jinushigami see the kami's other side, as the kami eases their travel by lessening undergrowth, shifting rivers, and otherwise providing subtle but incredible aid to travelers." Ones explained.
+"Like the crows they share physical traits with, tengus are naturally covetous, especially of shiny or colorful items, and prone to bouts of good-natured kleptomania if they don't carefully keep themselves in check. Vain and prideful creatures, they are easily persuaded with flattery." Alkmaios explained.
 
-"I could handle that. Tell me again, what makes the jinushigami so bad?" Alkmain responded.
-
-"Jinushigami are ancient and wise, and while they are no fools, they prefer to give visitors to their domains the benefit of the doubt. Only when an individual makes known his disruptive intentions toward the structure and cohesion of nature does a jinushigami react with violence. Of course, those who align themselves with naturally opposing forces of the kami, such as the oni, do not receive this friendly grace period, and a jinushigami can perceive most treacherous thoughts, sensing a suspicious visitor through its connection with the land, then tracking it down to stealthily observe it more closely." Ones explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the jinushigami?" Alkmain asked.
-
-Ones returned to the book of monsters on the desk and pointed at the terrifying illustration. "A jinushigami is 38 feet tall and weighs over 30,000 pounds. When they manifest physical bodies, they appear as lumbering humanoid forms made of earth and stone and plant matter, sometimes with strange humanoid affectations like hats or jewelry."
-
-"I could handle that. Tell me again, what makes the jinushigami so bad?" Alkmain responded.
-
-"That's all I can tell you."
-
-Alkmain saw a ungodly jinushigami in the distance! Our hero fixed his gaze on the beastly sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses our hero. The exhilarating combat made the hours seem like seconds. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! Although the inflated Alkmain's hit landed, jinushigami is mostly unphased
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He sneaked around to jinushigami's blind spot. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jinushigami struck with its quarterstaff! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The beastly jinushigami failed to land its hit. Alkmain lunged toward the jinushigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! Alkmain stunbles backward, gasping for breath. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! He jumps out of the way. Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from he surely left a impression. 
-
-Alkmain the bold sneaked around to jinushigami's blind spot. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses Alkmain the impavid. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses the gutsy Alkmain. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jinushigami struck with its quarterstaff! The repulsive jinushigami failed to land its hit. 
-
-The jinushigami struck with its quarterstaff! He stunbles backward, gasping for breath. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! The disgusting jinushigami failed to land its hit. Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from he surely left a impression. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. He sneaked around to jinushigami's blind spot. 
-
-The jinushigami struck with its quarterstaff! The frightful jinushigami failed to land its hit. The exhilarating combat made the hours seem like seconds. The jinushigami struck with its quarterstaff! Alkmain stunbles backward, gasping for breath. 
-
-The jinushigami struck with its quarterstaff! He blocks the strike with his sword. the high-flown Alkmain stumbles to his knee, gasping for breath. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! He stunbles backward, gasping for breath. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! He blocks the strike with his sword. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain pulls a blue crayola potion from his pack and drinks it. He is reinvigorated. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses the adventurer. 
-
-The jinushigami struck with its quarterstaff! Alkmain the daring stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The terrifying jinushigami failed to land its hit. Alkmain lunged toward the jinushigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-He pulls a viridian potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from he surely left a impression. 
-
-The stand tall Alkmain pulls a golden yellow potion from his pack and drinks it. He is reinvigorated. The jinushigami struck with its quarterstaff! He winces from the pain but continues fighting. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! Although our hero's hit landed, jinushigami is mostly unphasedThe monster was stunned by the attack. The bold Alkmain pulls a rose bonbon potion from his pack and drinks it. He is reinvigorated. 
-
-He pulls a falu red potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jinushigami struck with its quarterstaff! Alkmain reeled back in pain. Alkmain lunged toward the jinushigami, his sword ready to strike! Although the undaunted Alkmain's hit landed, jinushigami is mostly unphased
-
-The jinushigami struck with its quarterstaff! The scandalous jinushigami failed to land its hit. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The jinushigami struck with its quarterstaff! He jumps out of the way. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses the grandiose Alkmain. Alkmain lunged toward the jinushigami, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from he surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! The adventurer jumps out of the way. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The shattering blow from Alkmain rumbled through the ground. 
-
-Our hero pulls a pink potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! Alkmain reeled back in pain. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! The nasty jinushigami failed to land its hit. The exhilarating combat made the hours seem like seconds. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! Alkmain the epic blocks the strike with his sword. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was struck by the blow! 
-
-The adventurer sneaked around to jinushigami's blind spot. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! The adventurer jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jinushigami struck with its quarterstaff! The shocking jinushigami failed to land its hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He pulls a saffron potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami struck with its quarterstaff! He jumps out of the way. 
-
-Alkmain the grand sneaked around to jinushigami's blind spot. The jinushigami struck with its quarterstaff! Alkmain winces from the pain but continues fighting. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-Our hero pulls a bright ube potion from his pack and drinks it. He is reinvigorated. The jinushigami struck with its quarterstaff! He stunbles backward, gasping for breath. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses our hero. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He pulls a peach puff potion from his pack and drinks it. He is reinvigorated. The jinushigami leans low, ready to strike with its might. 
-
-He pulls a electric lavender potion from his pack and drinks it. He is reinvigorated. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses Alkmain the gutty. 
-
-The jinushigami struck with its quarterstaff! The horrendous jinushigami failed to land its hit. The exhilarating combat made the hours seem like seconds. The jinushigami struck with its quarterstaff! Alkmain the doughty blocks the strike with his sword. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from the valorous Alkmain surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! Alkmain reeled back in pain. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The bigger than life Alkmain pulls a emerald potion from his pack and drinks it. He is reinvigorated. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The hideous jinushigami failed to land its hit. Alkmain stumbles to his knee, gasping for breath. The jinushigami struck with its quarterstaff! He winces from the pain but continues fighting. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The attack from he surely left a impression. The jinushigami struck with its quarterstaff! He winces from the pain but continues fighting. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was staggered by the immense force. 
-
-The jinushigami struck with its quarterstaff! He jumps out of the way. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jinushigami struck with its quarterstaff! Alkmain reeled back in pain. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami took a glancing blow. 
-
-The jinushigami struck with its quarterstaff! He jumps out of the way. Alkmain the gutsy leaned on his sword to catch a moment's respite. He was worn out by the combat. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The ungodly jinushigami failed to land its hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! The lion-hearted Alkmain blocks the strike with his sword. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was struck by the blow! 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! He blocks the strike with his sword. 
-
-The jinushigami struck with its quarterstaff! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jinushigami struck with its quarterstaff! He blocks the strike with his sword. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! He landed a massive hit on jinushigami! 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was struck by the blow! 
-
-The jinushigami struck with its quarterstaff! Our hero winces from the pain but continues fighting. Alkmain lunged toward the jinushigami, his sword ready to strike! Our hero landed a massive hit on jinushigami! 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! Although he's hit landed, jinushigami is mostly unphased
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses our hero. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He pulls a pastel brown potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! Although he's hit landed, jinushigami is mostly unphased
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The revolting jinushigami failed to land its hit. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was staggered by the immense force. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. He pulls a peridot potion from his pack and drinks it. He is reinvigorated. 
-
-The jinushigami struck with its quarterstaff! The mythological Alkmain blocks the strike with his sword. Alkmain lunged toward the jinushigami, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The jinushigami struck with its quarterstaff! The horrid jinushigami failed to land its hit. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jinushigami leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain pulls a english lavender potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. He pulls a daffodil potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain pulls a candy pink potion from his pack and drinks it. He is reinvigorated. The jinushigami struck with its quarterstaff! Alkmain the intrepid stunbles backward, gasping for breath. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses Alkmain the fearless. Alkmain stumbles to his knee, gasping for breath. The jinushigami struck with its quarterstaff! He stunbles backward, gasping for breath. 
-
-The jinushigami struck with its quarterstaff! The appalling jinushigami failed to land its hit. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The jinushigami struck with its quarterstaff! Alkmain reeled back in pain. 
-
-The jinushigami struck with its quarterstaff! Alkmain winces from the pain but continues fighting. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. He pulls a hot pink potion from his pack and drinks it. He is reinvigorated. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The stand tall Alkmain blocks the strike with his sword. he stumbles to his knee, gasping for breath. The jinushigami struck with its quarterstaff! The unholy jinushigami failed to land its hit. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! Our hero stunbles backward, gasping for breath. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses he. the adventurer stumbles to his knee, gasping for breath. The jinushigami leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! Alkmain stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! He winces from the pain but continues fighting. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-Our hero sneaked around to jinushigami's blind spot. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses the dauntless Alkmain. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! He jumps out of the way. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! Alkmain the elevated blocks the strike with his sword. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The monster was stunned by the attack. Our hero pulls a slate blue potion from his pack and drinks it. He is reinvigorated. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The adventurer jumps out of the way. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was struck by the blow! The monster was stunned by the attack. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! He winces from the pain but continues fighting. 
-
-The exaggerated Alkmain pulls a gray potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami leans low, ready to strike with its might. Alkmain lunged toward the jinushigami, his sword ready to strike! The jinushigami was struck by the blow! 
-
-Our hero pulls a onyx potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-The jinushigami struck with its quarterstaff! The heinous jinushigami failed to land its hit. He leaned on his sword to catch a moment's respite. Alkmain the fearless was worn out by the combat. The jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses Alkmain the gallant. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! Alkmain the bold blocks the strike with his sword. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! Although he's hit landed, jinushigami is mostly unphasedThe jinushigami struck with its quarterstaff! The fierce blow from the monster narrowly misses the daring Alkmain. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He pulls a dark cerulean potion from his pack and drinks it. He is reinvigorated. The jinushigami leans low, ready to strike with its might. 
-
-The jinushigami struck with its quarterstaff! He stunbles backward, gasping for breath. the dauntless Alkmain stumbles to his knee, gasping for breath. The jinushigami leans low, ready to strike with its might. 
-
-He pulls a lavender purple potion from his pack and drinks it. He is reinvigorated. The jinushigami leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. The jinushigami struck with its quarterstaff! He jumps out of the way. Alkmain lunged toward the jinushigami, his sword ready to strike! The slippery jinushigami evaded Alkmain's hit. 
-
-He sneaked around to jinushigami's blind spot. Alkmain lunged toward the jinushigami, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jinushigami leans low, ready to strike with its might. The jinushigami struck with its quarterstaff! The scary jinushigami failed to land its hit. 
-
-Alkmain sneaked around to jinushigami's blind spot. The jinushigami leans low, ready to strike with its might. 
-
-Alkmain the bigger than life was victorious! The jinushigami menaced for no longer! 
-
-## <a name="chapter17"></a> Chapter 17: Wimbleyden and the Spirit Oni
-
-Alkmain followed a dirt path into the village of Wimbleyden. While the bard scuttled out of his way, a typefounder stood by a market stall, negotiating with the tinker. Two pardoners slept in an alleyway. Alkmain continued down the path. The plattner bit into an apple with a farrier.
-
-Eventually, Alkmain arrived at the town square, where he found a poet. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-Nearby, a brushbinder scuttled out of his way. He still looked suspiciousHe finally responded.
-
-"Our village of Preet will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Pres is the best in town. His shop is down the street to the church and right. You'll see a inn. It's down the street to the barn and right. You'll see a barn. It's just a bit further down the street. There's a small door. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Alkmain hurried towards the armory. Nearby, a tentsman gazed at him from an open window. The archer threw punches with a stewsman. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Pres looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the saxra, or perhaps even the cave scorpion, but that's nothing compared to the spirit oni we've got."
-
-Pres returned to the book of monsters on the desk and pointed at the terrifying illustration. "Most oni that emerge on the Material Plane do so into a new body of humanoid flesh, yet this is not the case for all oni. Periodically, when an evil spellcaster wishes to engage the servitude of an oni as a familiar, the result is something relatively unusualóan oni made flesh directly from its spiritual form rather than one who takes the features of a humanoid as its own."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-Pres returned to the book of monsters on the desk and pointed at the terrifying illustration. "Any lawful evil 7th-level spellcaster who takes the Improved Familiar feat can gain a spirit oni as a familiar. The ritual to gain such a familiar requires the spellcaster to craft a particularly fiendish and fierce-looking oni maskóthis does not require a Craft check or any additional expenditure of gold, and is assumed to be part of the overall ritual for securing the familiar. When the ritual is complete a raw oni spirit is lured into the mask, which immediately transforms it into the animate, living creature presented here."
-
-Alkmain slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-The armorer sighed and continued. "While the ritual binds the oni to its new master, it also robs the oni of its immediate chance to achieve a human form. As a result, spirit oni are foul-tempered and cantankerous creatures, even to their masters. They must be regularly reprimanded and disciplined, lest their jealousy and bitterness get the better of them. "
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-Pres returned to the book of monsters on the desk and pointed at the terrifying illustration. "When a spirit oni's master dies, the spirit oni gains free will and the ability to make its own choicesóbut the spirit oni's innate cowardice and dishonor usually prevents it from taking its own life in hopes of returning to true spirit form and then returning as a proper oni. Rather than extinguishing themselves, such masterless spirit oni seek out more powerful oni and offer their services to their superiors, in hopes that they might someday be granted a promotion from their lowly state to something more befitting their egos and desires."
-
-"But my weapons may be too weak. Are there any other ways to defeat the spirit oni?" Alkmain asked.
+Maixenor slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
 "Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
 
-Alkmain saw a hideous spirit oni in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+As Maixenor turned to leave the armory, Alkmaios called out
 
-Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. The spirit oni struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+"Before you go, get rid of that useless sword. It won't make a dent against the carapace of the tengu." 
 
-The spirit oni struck with its bite! He winces from the pain but continues fighting. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+"Forged by the finest dwarven smiths in the mountains of Oly Crodsize Streens, this warhammer is the finest display of craftsmanship for miles around."
 
-The spirit oni struck with its bite! The shocking spirit oni failed to land its hit. he stumbles to his knee, gasping for breath. The spirit oni struck with its bite! He jumps out of the way. 
+Sheathing his warhammer, Maixenor leaves Bebor on a journey to find the tengu. 
 
-He sneaked around to spirit oni's blind spot. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+As Maixenor walked along the path out of Bebor, he turned to his right and saw something daring.
 
-The spirit oni struck with its bite! He blocks the strike with his sword. The adventurer leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The spirit oni struck with its bite! He jumps out of the way. 
+Some distant Crevasses stood out against the horizon.Maybe they might make for a gallant adventure for when Maixenor's current journey is over.
 
-He pulls a light khaki potion from his pack and drinks it. He is reinvigorated. The spirit oni leans low, ready to strike with its might. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+He met a wandering playwright making his way toward Bebor. The stranger said to Maixenor
 
-The spirit oni struck with its bite! The disgusting spirit oni failed to land its hit. The adventurer leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The spirit oni struck with its bite! The fierce blow from the monster narrowly misses he. 
+"The tengu killed my brother. I would be heading back to end that sickie thing if only it hadn't taken my eye the first time I tried."
 
-The spirit oni leans low, ready to strike with its might. The spirit oni struck with its bite! He stunbles backward, gasping for breath. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The spirit oni struck with its bite! The detestable spirit oni failed to land its hit. Alkmain lunged toward the spirit oni, his sword ready to strike! The spirit oni was struck by the blow! 
+Our hero met a wandering dean making his way toward Bebor. The stranger said to Maixenor
 
-He pulls a sea blue potion from his pack and drinks it. He is reinvigorated. The spirit oni struck with its bite! Alkmain jumps out of the way. 
+"I knew a classic hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-The spirit oni struck with its bite! The grim spirit oni failed to land its hit. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+The ever valorous Maixenor continued his long and tiring journey to find the tengu.
 
-Our hero sneaked around to spirit oni's blind spot. The spirit oni leans low, ready to strike with its might. 
+Not once did our hero regret his choice to not become a sheepshearer.
 
-The spirit oni leans low, ready to strike with its might. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+As Maixenor walked along the path out of Bebor, he turned to his right and saw something dauntless.
 
-Alkmain lunged toward the spirit oni, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Alkmain lunged toward the spirit oni, his sword ready to strike! The slippery spirit oni evaded Alkmain's hit. 
+The Desert pavements of Oxfor towered over the nearby Tors.Maybe they might make for a doughty adventure for when Maixenor's current journey is over.
 
-The spirit oni struck with its bite! The intrepid Alkmain jumps out of the way. The exhilarating combat made the hours seem like seconds. The spirit oni struck with its bite! Alkmain reeled back in pain. 
+Maixenor saw a offensive tengu in the distance! Our hero fixed his gaze on the ungodly sight. Maixenor hurried towards the enemy, ready to strike it down with all his might! 
 
-The spirit oni leans low, ready to strike with its might. The spirit oni struck with its bite! The fierce blow from the monster narrowly misses he. 
+The tengu struck with its dagger! Maixenor reeled back in pain. The exhilarating combat made the hours seem like seconds. The tengu struck with its dagger! The fearless Maixenor stunbles backward, gasping for breath. 
 
-Alkmain says
+A powerful swing came from the tengu with very deadly intent. The adventurer jumps out of the way. The exhilarating combat made the hours seem like seconds. The tengu leans low, ready to strike with its might. 
 
-"That didn't seem so hard, I don't know what Pres was talking about."
+Our hero sneaked around to tengu's blind spot. The tengu struck with its dagger! The fierce blow from the monster narrowly misses Maixenor the grand. 
 
-## <a name="chapter18"></a> Chapter 18: Marminnon Cirlastereston Dewtoketsbury Comber and the Sangoi
+The tengu struck with its dagger! He stunbles backward, gasping for breath. The exhilarating combat made the hours seem like seconds. The tengu leans low, ready to strike with its might. 
 
-Alkmain followed a dirt path into the village of Marminnon Cirlastereston Dewtoketsbury Comber. A harper sat by the side of the road. Nearby, a hay merchant finished an apple and tossed the core aside. Alkmain continued down the path. A playwright stood by a market stall, negotiating with the franklin.
+The warhammer of Maixenor was raised high only to be brought down onto the tengu moments later. The tengu took a glancing blow. Struck by the hefty blow, the tengu needed a second to recover its footing. He pulled a buff potion from his pack and drinks it. He is reinvigorated. 
 
-Eventually, Alkmain arrived at the town square, where he found a weeper. The man, eying his well-made boots, beckoned him forward.
+The hideous monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses he. A exaggerated attack suddenly came from Maixenor, its intent to silence the unholy beast once and for all. That blow seemed like it could break some bones. 
+
+The tengu eyed Maixenor with a dangerous glare. A gallant attack suddenly came from Maixenor, its intent to silence the unholy beast once and for all. The tengu was struck by the blow! 
+
+A epic attack suddenly came from Maixenor, its intent to silence the shameful beast once and for all. The tengu took a glancing blow. The monster was stunned by the attack. Maixenor lunged toward the tengu, his warhammer ready to strike! The dreadful tengu was too quick to be hit. 
+
+The tengu struck with its dagger! The adventurer blocks the strike with his warhammer. The exhilarating combat made the hours seem like seconds. The tengu struck with its dagger! Maixenor the fearless blocks the strike with his warhammer. 
+
+Maixenor took a deep breath and swung toward the awful tengu. The shattering blow from he rumbled through the ground. 
+
+Covered with wounds and bruises, the offensive tengu fell over for the last time.
+
+He was victorious! The tengu menaced for no longer! 
+
+## <a name="chapter25"></a> Chapter 25: Kham and the Vishap
+
+Maixenor followed a dirt path into the village of Kham. Nearby, a pursuivant loaded a market stall with wares. A gluttonous fool loaded a market stall with wares. Maixenor continued down the path. Nearby, a begger slept in an alleyway.
+
+Eventually, Maixenor arrived at the town square, where he found a pavyler. The man, eying his dangerous demeanor, beckoned him forward.
 
 "Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+"The evil wizard Kebad has terrorized these lands for far too long. I Maixenor have come to destroy him!" Maixenor exclaimed.
 
-Nearby, a clothier ran from person to person, asking if they had seen Doneus. The man sat in silence for a while, but eventually responded.
+While the scout ran from person to person, asking if they had seen Wintxo, a belter bit into an apple. The man eyed him thoughtfully, but eventually responded.
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Amal is the best in town. His shop is past the stables. Look for the large hanging sign that reads "Amal Fine Supplies". I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Alkmain hurried towards the armory. The brazier slept in an alleyway with a mailmaker. A sexton slowly carried supplies. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the ancient gold dragon, or perhaps even the fire beetle, but that's nothing compared to the sangoi we've got."
-
-"Sometimes mistaken for vampires, sangois are evil nocturnal fey that haunt towns and graveyards, feeding on blood and hunting by the sounds of victims' hearts. They prefer humanoid blood but settle for animal blood when hungry." Amal explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the sangoi?" Alkmain asked.
-
-"Sangoi stand 4 feet tall and weigh 35 to 40 pounds." Amal explained.
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a dreadful sangoi in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-He was victorious! The sangoi menaced for no longer! 
-
-## <a name="chapter19"></a> Chapter 19: Lonellihulhamark and the Elephant
-
-Alkmain followed a dirt path into the village of Lonellihulhamark. Nearby, a thonger hawked fine imported goods from Southwickneterpood Gatephammell Grenham Hast. Two smelters slept in an alleyway. Alkmain continued down the path. Two doctors ran from person to person, asking if they had seen Beatus.
-
-Eventually, Alkmain arrived at the town square, where he found a harberdasher. Alkmain approached him, hoping for some advice.
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-Nearby, a poacher gazed at him from an open window. The man quietly reminised about the past, then finally responded.
-
-"Our village of Higham will gladly help you on your quest. What do you need?"
+"Our village of Kham will gladly help you on your quest. What do you need?"
 
 "My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
 
-"The armory is down the street to the warehouse and left. You'll see a inn. It's just a bit further down the street. There's a small door. You'll find Walet, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
+"Guardus is past the tavern. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
 
-Alkmain hurried towards the armory. Two mirrorers scuttled out of his way. Nearby, a oyster raker loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor hurried towards the armory. Two pastrycooks finished an apple and tossed the core aside. A tanner gazed at him from an open window. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
 
-Walet looked up from his work behind a counter at Alkmain.
+There was no one there. Maixenor cleared his throat and a man ran out from a backroom.
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+"I'm Maixenor, a brave adventurer seeking to destroy Kebad. What dangers lurk nearby?" he asked.
 
-Walet grabbed a dusty book from the shelf and flipped through it. Pictures of girtablilus and leopards flew by. Eventually he settled on a page and started to explain.
+"Brave you say? You may have fought the jungle giant, or perhaps even the shinigami, but that's nothing compared to the vishap we've got."
 
-The armorer sighed and continued. "These large land animals, majestically wandering the plains in tightly knit family herds, are symbols of wisdom and strength. Having few natural predators, elephants are sometimes hunted for their ivory tusks. These tusks often become jewelry, statuettes, and trinkets for the wealthy. "
+The armorer sighed and continued. "Vishaps think of themselves as guardians of the ley lines that connect the life forces of the Material Plane to one another. Like all dragons, vishaps claim expansive territories, but these territories often make little geographical sense to othersóa single vishap might claim unconnected areas on different hemispheres of a planet, for example, and yet multiple vishaps sometimes coexist within mere miles of each other with no apparent animosity. To those attuned to the occult mysteries of ley lines, however, the vishaps' territorial borders are clear. Each vishap claims one or more networks of ley lines, which may stretch for thousands of miles (or even across galaxies), and sometimes overlap with each other without ever touching. A vishap's first priority is the integrity of its ley line network, so any corruption of a ley line draws the attention of the vishap that cares for it."
 
-Alkmain slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+Maixenor slipped the man 7 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
+The armorer sighed and continued. "Vishaps claim only small physical territories in places where their ley lines coincide with interesting geography. In these places, vishaps make psychic contact with intelligent creatures nearby, encouraging them to create standing stones called vishapakars. A vishap can't place a vishapakar on its own, but the presence of a vishapakar on a ley line allows the vishap a great deal of control over that ley line. Evil or less diplomatic vishaps often travel to these desirable locations to intimidate the local people into appeasing the dragons with standing stones. Vishapakars can stand for thousands of years, even as the ley lines that they once marked drift and change course, so a vishap must return to each vishapakar periodically, entreating (or forcing) locals to create new vishapakars on the ley lines' new locations. At particularly ancient locations, it is possible to map the gradual drift of ley lines by the age of the nearby vishapakars."
 
-Alkmain saw a nasty elephant in the distance! Alkmain the valorous readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-The adventurer pulls a medium champagne potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+"Vishaps become deeply attached to their ley line networks over their millennia-long life spans, and can live peacefully alongside other vishaps with nearby networks. When ley lines drift and converge, however, it often results in a mortal duel. Sometimes this happens as a corporeal battle in the skies of a planet, or between the dragons while in their ethereal forms. Most commonly, vishaps engaged in mortal combat for control of converging ley lines meet each other in elaborate psychic duels. These duels can last for years, and often spill over into the Material Plane, with each vishap subtly manipulating the creatures and locations along the converging ley lines in a proxy war to defeat its opponent." Guardus explained.
 
-Our hero sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-The elephant leans low, ready to strike with its might. Alkmain lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. 
+The armorer sighed and continued. "Vishaps keep their treasure hoards, like their territories, in strange places, hidden in eddies of psychic energy along their favorite ley lines. A vishap's hoard might be physically scattered across dozens of planes, though to the vishap each cache is only minutes away from the others. A vishap favors items of psychic significance, so one is as likely to find a mundane wooden spoon that belonged to a powerful occultist or the skull of a famous psychic in a vishap's hoard as a magical sword or mountains of gold."
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the stand tall pulls a electric ultramarine potion from his pack and drinks it. He is reinvigorated. 
+Maixenor slipped the man 6 coins. "I get the feeling you've been here for a while. Surely you know more than that."
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the gutsy sneaked around to elephant's blind spot. 
+Guardus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Vishaps procreate only once during their lives, as tending to their ley lines takes priority over almost any biological imperative. When a vishap is finally ready to mate, it commits its form wholly to the ley line network, drifting listlessly along the psychic currents. Inevitably, it meets with some other drifting vishap, and the two consciousnesses merge, exploding in a spray of psychic force. The resulting motes of ethereal energy scatter across the universe, slowly drifting back toward each other and forming eggs, which sometimes drift along ley lines for millennia before hatching a young, ethereal vishap that awakens to full consciousness upon hatching."
 
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer blocks the strike with his sword. 
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-The elephant struck with its gore! Our hero blocks the strike with his sword. Alkmain lunged toward the elephant, his sword ready to strike! The elephant was struck by the blow! 
+The armorer sighed and continued. "A fully grown vishap is 70 feet from head to tail and weighs 60,000 pounds."
 
-Alkmain sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+Maixenor looked surprised. "Incredible! Is there anything else I should know?"
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Maixenor.
 
-Alkmain the daring sneaked around to elephant's blind spot. The elephant struck with its gore! He jumps out of the way. 
+As Maixenor turned to leave the armory, Guardus called out
 
-The elephant leans low, ready to strike with its might. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+"Wait, you'll need a weapon worthy of your great cause. That rusty sword won't do." 
 
-The fire-eating Alkmain pulls a black bean potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the elephant, his sword ready to strike! Our hero landed a massive hit on elephant! 
+"Take this heavy spiked shield. It has served a well over a dozen adventureres before you and it should serve you well too."
 
-Alkmain lunged toward the elephant, his sword ready to strike! The attack from he surely left a impression. The elephant struck with its gore! Alkmain jumps out of the way. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+Sheathing his heavy spiked shield, Maixenor leaves Kham on a journey to find the vishap. 
 
-The elephant struck with its gore! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The elephant struck with its gore! The fierce blow from the monster narrowly misses Alkmain the classic. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+He met a wandering stillroom maid making his way toward Kham. The stranger said to Maixenor
 
-The elephant leans low, ready to strike with its might. Alkmain lunged toward the elephant, his sword ready to strike! The elephant was struck by the blow! 
+"I knew a noble hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-The elephant leans low, ready to strike with its might. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+The ever valorous Maixenor continued his long and tiring journey to find the vishap.
 
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The adventurer jumps out of the way. 
+Not once did our hero regret his choice to not become a netmaker.
 
-The elephant struck with its gore! The fierce blow from the monster narrowly misses our hero. The exhilarating combat made the hours seem like seconds. The elephant struck with its gore! Alkmain stunbles backward, gasping for breath. 
+The ever tall standing Maixenor continued his long and tiring journey to find the vishap.
 
-The elephant struck with its gore! The fearless Alkmain blocks the strike with his sword. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+Not once did our hero regret his choice to not become a bodyservant.
 
-The elephant struck with its gore! The fierce blow from the monster narrowly misses Alkmain. Our hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The elephant struck with its gore! Alkmain reeled back in pain. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-Alkmain sneaked around to elephant's blind spot. The elephant struck with its gore! The nasty elephant failed to land its hit. 
+The adventurer met a wandering mercenary making his way toward Kham. The stranger said to Maixenor
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. 
+"I knew a daring hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-Alkmain pulls a dark cerulean potion from his pack and drinks it. He is reinvigorated. The elephant leans low, ready to strike with its might. 
+Continuing along the path, Maixenor crossed paths with another traveler.
 
-The elephant struck with its gore! He winces from the pain but continues fighting. Alkmain lunged toward the elephant, his sword ready to strike! That blow seemed like it could break some bones. 
+He met a wandering swineherd making his way toward Kham. The stranger said to Maixenor
 
-The elephant leans low, ready to strike with its might. The elephant struck with its gore! The awful elephant failed to land its hit. 
+"I knew a classic hero like you. He met his end far too early. I hope that you are better prepared for your future."
 
-The elephant struck with its gore! The beastly elephant failed to land its hit. Alkmain lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. 
+Maixenor saw a frightful vishap in the distance! Our hero fixed his gaze on the loathsome sight. Maixenor the fire-eating approched the vishap cautiously, careful not to rush to an untimely death. 
 
-Alkmain the noble sneaked around to elephant's blind spot. The elephant leans low, ready to strike with its might. 
+He sneaked around to vishap's blind spot. The vishap struck with its bite! He blocks the strike with his heavy spiked shield. 
 
-The elephant leans low, ready to strike with its might. Alkmain lunged toward the elephant, his sword ready to strike! That blow seemed like it could break some bones. 
+He pulled a mustard potion from his pack and drinks it. He is reinvigorated. The vishap eyed Maixenor with a dangerous glare. 
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to elephant's blind spot. 
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The shattering blow from the adventurer rumbled through the ground. Struck by the hefty blow, the vishap needed a second to recover its footing. Maixenor sneaked around to vishap's blind spot. 
 
-Alkmain lunged toward the elephant, his sword ready to strike! The slippery elephant evaded Alkmain's hit. The elephant struck with its gore! The shocking elephant failed to land its hit. Alkmain lunged toward the elephant, his sword ready to strike! The elephant was staggered by the immense force. 
+The offensive monster took a swipe at Maixenor. The abominable vishap failed to land its hit. The exhilarating combat made the hours seem like seconds. The vishap eyed Maixenor with a dangerous glare. 
 
-The valiant Alkmain was victorious! The elephant menaced for no longer! 
+The vishap eyed Maixenor with a dangerous glare. A powerful swing came from the vishap with very deadly intent. The fierce blow from the monster narrowly misses the gallant Maixenor. 
 
-## <a name="chapter20"></a> Chapter 20: Easen and the Seps
+The vishap eyed Maixenor with a dangerous glare. A powerful swing came from the vishap with very deadly intent. The fierce blow from the monster narrowly misses he. 
 
-Alkmain followed a dirt path into the village of Easen. While the linenspinner bit into an apple, a mathematician rushed by quickly, ignoring him. A gluttonous fool loaded a market stall with wares. Alkmain continued down the path. The lighter man hawked fine imported goods from Eale with a scholar.
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The attack from he surely left a impression. Struck by the hefty blow, the vishap needed a second to recover its footing. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Maixenor's strike glanced off of the vishap's hide. 
 
-Eventually, Alkmain arrived at the town square, where he found a fletcher. The man, eying his foreboding cloak, beckoned him forward.
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The vishap was staggered by the immense force. The monster was stunned by the attack. The adventurer held his heavy spiked shield tightly, ready to block any attack. 
 
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
+The adventurer made a mighty swing at the vishap with this heavy spiked shield. The slippery vishap evaded Maixenor's hit. The monster was stunned by the attack. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. A sharp crack was heard as the strike left its mark. 
 
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! Maixenor's strike glanced off of the vishap's hide. Struck by the hefty blow, the vishap needed a second to recover its footing. Maixenor the inflated pulled a little boy blue potion from his pack and drinks it. He is reinvigorated. 
 
-While the horner scuttled out of his way, a pattenmaker hawked fine imported goods from Newsbrith. The man eyed him thoughtfully, but eventually responded.
+The vishap struck with its bite! The fierce blow from the monster narrowly misses Maixenor. Maixenor made a mighty swing at the vishap with this heavy spiked shield. A sharp crack was heard as the strike left its mark. 
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+Maixenor cleared his mind, preparing himself for the combat to come.He made a mighty swing at the vishap with this heavy spiked shield. That blow seemed like it could break some bones. 
 
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Maixenor's strike glanced off of the vishap's hide. The vishap struck with its bite! The grand Maixenor stunbles backward, gasping for breath. Maixenor took a deep breath and swung toward the gruesome vishap. The vishap was struck by the blow! 
 
-"Ibarrator is the best in town. His shop is down the street to the monastery and left. You'll see a church. It's past the warehouse. It's just to the right. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The heinous vishap was too quick to be hit. Struck by the hefty blow, the vishap needed a second to recover its footing. Maixenor cleared his mind, preparing himself for the combat to come.
 
-Alkmain hurried towards the armory. Two old-clothes dealers stood by a market stall, negotiating with the roofer. While the tanner rushed by quickly, ignoring him, a minnesinger ran from person to person, asking if they had seen Polydos. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+The vishap leans low, ready to strike with its might. A powerful swing came from the vishap with very deadly intent. Our hero blocks the strike with his heavy spiked shield. 
 
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
+He made a mighty swing at the vishap with this heavy spiked shield. The repulsive vishap was too quick to be hit. Struck by the hefty blow, the vishap needed a second to recover its footing. He held his heavy spiked shield tightly, ready to block any attack. 
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+The vishap struck with its bite! Maixenor reeled back in pain. The exhilarating combat made the hours seem like seconds. The vishap leans low, ready to strike with its might. 
 
-"Brave you say? You may have fought the bodythief, or perhaps even the ogre spider, but that's nothing compared to the seps we've got."
+Maixenor pulled a indigo dye potion from his pack and drinks it. He is reinvigorated. The vishap eyed Maixenor with a dangerous glare. 
 
-The armorer sighed and continued. "A seps is an exotic snake-like creature whose powerful jaws contain acidic venom so potent that it quickly dissolves prey into liquid."
+A impavid attack suddenly came from Maixenor, its intent to silence the execrable beast once and for all. The awful vishap was too quick to be hit. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
 
-Alkmain slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
+The vishap eyed Maixenor with a dangerous glare. Maixenor the gutty made a mighty swing at the vishap with this heavy spiked shield. The slippery vishap evaded Maixenor's hit. 
 
-"An adult seps is 30 feet long and weighs 1,500 pounds." Ibarrator explained.
+The awful monster took a swipe at Maixenor. The cruel vishap failed to land its hit. A high-flown attack suddenly came from Maixenor, its intent to silence the repulsive beast once and for all. Although he's hit landed, vishap is mostly unphased
 
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
+The adventurer sneaked around to vishap's blind spot. A stouthearted attack suddenly came from Maixenor, its intent to silence the execrable beast once and for all. The vishap was staggered by the immense force. 
 
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
+He pulled a flame potion from his pack and drinks it. He is reinvigorated. The vishap eyed Maixenor with a dangerous glare. 
 
-Alkmain saw a terrifying seps in the distance! Our hero fixed his gaze on the ruinous sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
+The grisly monster took a swipe at Maixenor. Maixenor reeled back in pain. he stumbles to his knee, gasping for breath. A powerful swing came from the vishap with very deadly intent. Our hero blocks the strike with his heavy spiked shield. 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! The seps was struck by the blow! 
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Although Maixenor the bold's hit landed, vishap is mostly unphasedThe monster was stunned by the attack. Maixenor the bigger than life held his heavy spiked shield tightly, ready to block any attack. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the grand pulls a han blue potion from his pack and drinks it. He is reinvigorated. 
+The horrendous monster took a swipe at Maixenor. He blocks the strike with his heavy spiked shield. A exaggerated attack suddenly came from Maixenor, its intent to silence the horrid beast once and for all. Maixenor landed a massive hit on vishap! 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! Although our hero's hit landed, seps is mostly unphased
+The vishap leans low, ready to strike with its might. The vishap struck with its bite! The valiant Maixenor stunbles backward, gasping for breath. 
 
-Alkmain the mythological pulls a rose taupe potion from his pack and drinks it. He is reinvigorated. The seps struck with its bite! The adventurer jumps out of the way. 
+He held his heavy spiked shield tightly, ready to block any attack. The vishap struck with its bite! The adventurer jumps out of the way. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. The noble Alkmain pulls a yellow green potion from his pack and drinks it. He is reinvigorated. 
+He held his heavy spiked shield tightly, ready to block any attack. The vishap struck with its bite! The cruel vishap failed to land its hit. 
 
-Alkmain lunged toward the seps, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+A noble attack suddenly came from Maixenor, its intent to silence the disagreeable beast once and for all. The abhorrent vishap was too quick to be hit. The evil monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses the adventurer. Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The abhorrent vishap was too quick to be hit. 
 
-The seps leans low, ready to strike with its might. The seps struck with its bite! He jumps out of the way. 
+The vishap struck with its bite! Our hero jumps out of the way. he stumbles to his knee, gasping for breath. The hideous monster took a swipe at Maixenor. The adventurer blocks the strike with his heavy spiked shield. 
 
-The seps struck with its bite! He winces from the pain but continues fighting. Our hero leaned on his sword to catch a moment's respite. Alkmain the mythological was worn out by the combat. The seps struck with its bite! Alkmain reeled back in pain. 
+The vishap eyed Maixenor with a dangerous glare. A elevated attack suddenly came from Maixenor, its intent to silence the cruel beast once and for all. The gruesome vishap was too quick to be hit. 
 
-The seps struck with its bite! The gutsy Alkmain jumps out of the way. The exhilarating combat made the hours seem like seconds. The seps leans low, ready to strike with its might. 
+A epic attack suddenly came from Maixenor, its intent to silence the shameful beast once and for all. A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. Maixenor the tall standing pulled a pear potion from his pack and drinks it. He is reinvigorated. 
 
-The adventurer sneaked around to seps's blind spot. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+The vishap leans low, ready to strike with its might. The vishap struck with its bite! He jumps out of the way. 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! The seps was staggered by the immense force. 
+The terrifying monster took a swipe at Maixenor. The fierce blow from the monster narrowly misses the bold Maixenor. The exhilarating combat made the hours seem like seconds. The vishap eyed Maixenor with a dangerous glare. 
 
-The adventurer pulls a napier green potion from his pack and drinks it. He is reinvigorated. The seps leans low, ready to strike with its might. 
+The vishap eyed Maixenor with a dangerous glare. The smelly monster took a swipe at Maixenor. Maixenor reeled back in pain. 
 
-He pulls a purple x11 potion from his pack and drinks it. He is reinvigorated. The seps struck with its bite! The stouthearted Alkmain jumps out of the way. 
+Maixenor cleared his mind, preparing himself for the combat to come.Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The slippery vishap evaded Maixenor's hit. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The seps struck with its bite! The fierce blow from the monster narrowly misses Alkmain. Alkmain lunged toward the seps, his sword ready to strike! The seps was staggered by the immense force. 
+A epic attack suddenly came from Maixenor, its intent to silence the grisly beast once and for all. The vishap was struck by the blow! Struck by the hefty blow, the vishap needed a second to recover its footing. The classic Maixenor made a mighty swing at the vishap with this heavy spiked shield. The terrible vishap was too quick to be hit. 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+A powerful swing came from the vishap with very deadly intent. He jumps out of the way. A fearless attack suddenly came from Maixenor, its intent to silence the scary beast once and for all. The vishap was staggered by the immense force. 
 
-Alkmain sneaked around to seps's blind spot. The seps struck with its bite! He jumps out of the way. 
+The vishap eyed Maixenor with a dangerous glare. A powerful swing came from the vishap with very deadly intent. The tall standing Maixenor winces from the pain but continues fighting. 
 
-The seps struck with its bite! He blocks the strike with his sword. He leaned on his sword to catch a moment's respite. The undaunted Alkmain was worn out by the combat. The seps struck with its bite! Alkmain reeled back in pain. 
+A undaunted attack suddenly came from Maixenor, its intent to silence the dreadful beast once and for all. The smelly vishap was too quick to be hit. The vishap struck with its bite! Our hero jumps out of the way. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Maixenor's strike glanced off of the vishap's hide. 
 
-The seps leans low, ready to strike with its might. The seps struck with its bite! The fierce blow from the monster narrowly misses he. 
+The adventurer held his heavy spiked shield tightly, ready to block any attack. A powerful swing came from the vishap with very deadly intent. Our hero jumps out of the way. 
 
-The seps struck with its bite! The fairy seps failed to land its hit. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The slippery vishap evaded Maixenor's hit. A powerful swing came from the vishap with very deadly intent. Maixenor blocks the strike with his heavy spiked shield. Maixenor took a deep breath and swung toward the scandalous vishap. The attack from Maixenor surely left a impression. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to seps's blind spot. 
+He made a mighty swing at the vishap with this heavy spiked shield. The slippery vishap evaded Maixenor's hit. Struck by the hefty blow, the vishap needed a second to recover its footing. Maixenor cleared his mind, preparing himself for the combat to come.
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. He sneaked around to seps's blind spot. 
+The dauntless Maixenor made a mighty swing at the vishap with this heavy spiked shield. The vishap was struck by the blow! The monster was stunned by the attack. A fire-eating attack suddenly came from Maixenor, its intent to silence the hideous beast once and for all. The shattering blow from he rumbled through the ground. 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! The seps was struck by the blow! 
+Our hero made a mighty swing at the vishap with this heavy spiked shield. The cruel vishap was too quick to be hit. Struck by the hefty blow, the vishap needed a second to recover its footing. He held his heavy spiked shield tightly, ready to block any attack. 
 
-The seps struck with its bite! He winces from the pain but continues fighting. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+The repulsive monster took a swipe at Maixenor. He jumps out of the way. Maixenor stumbles to his knee, gasping for breath. The vishap leans low, ready to strike with its might. 
 
-The seps struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. The fearless Alkmain was worn out by the combat. The seps struck with its bite! The beastly seps failed to land its hit. 
+The vishap eyed Maixenor with a dangerous glare. The offensive monster took a swipe at Maixenor. Maixenor the fire-eating jumps out of the way. 
 
-He sneaked around to seps's blind spot. Alkmain lunged toward the seps, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
+The ghastly monster took a swipe at Maixenor. Maixenor jumps out of the way. A doughty attack suddenly came from Maixenor, its intent to silence the abhorrent beast once and for all. The vishap took a glancing blow. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. Our hero pulls a burnt umber potion from his pack and drinks it. He is reinvigorated. 
+He held his heavy spiked shield tightly, ready to block any attack. The vishap eyed Maixenor with a dangerous glare. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The seps was staggered by the immense force. The monster was stunned by the attack. He sneaked around to seps's blind spot. 
+Maixenor cleared his mind, preparing himself for the combat to come.The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. That blow seemed like it could break some bones. 
 
-Alkmain lunged toward the seps, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain lunged toward the seps, his sword ready to strike! The seps took a glancing blow. 
+He pulled a fandango potion from his pack and drinks it. He is reinvigorated. The vishap leans low, ready to strike with its might. 
 
-The seps leans low, ready to strike with its might. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! That blow seemed like it could break some bones. The lousy monster took a swipe at Maixenor. He stunbles backward, gasping for breath. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The shameful vishap was too quick to be hit. 
 
-Our hero pulls a air force blue raf potion from his pack and drinks it. He is reinvigorated. The seps struck with its bite! He stunbles backward, gasping for breath. 
+The vishap leans low, ready to strike with its might. Maixenor took a deep breath and swung toward the loathsome vishap. Maixenor's strike glanced off of the vishap's hide. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The attack from our hero surely left a impression. The monster was stunned by the attack. He sneaked around to seps's blind spot. 
+Maixenor sneaked around to vishap's blind spot. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The slippery vishap evaded Maixenor's hit. 
 
-He sneaked around to seps's blind spot. The seps leans low, ready to strike with its might. 
+Maixenor cleared his mind, preparing himself for the combat to come.The vishap eyed Maixenor with a dangerous glare. 
 
-He sneaked around to seps's blind spot. The seps struck with its bite! The adventurer jumps out of the way. 
+The vishap leans low, ready to strike with its might. A high-flown attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. Although he's hit landed, vishap is mostly unphased
 
-The seps struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The seps leans low, ready to strike with its might. 
+The vishap struck with its bite! Maixenor reeled back in pain. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Although he's hit landed, vishap is mostly unphased
 
-Alkmain lunged toward the seps, his sword ready to strike! He landed a massive hit on seps! The monster was stunned by the attack. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+The vishap eyed Maixenor with a dangerous glare. A valiant attack suddenly came from Maixenor, its intent to silence the scary beast once and for all. A sharp crack was heard as the strike left its mark. 
 
-He sneaked around to seps's blind spot. The seps struck with its bite! The ungodly seps failed to land its hit. 
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The vishap took a glancing blow. Struck by the hefty blow, the vishap needed a second to recover its footing. A doughty attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. Maixenor's strike glanced off of the vishap's hide. 
 
-The seps struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The seps leans low, ready to strike with its might. 
+Maixenor took a deep breath and swung toward the hideous vishap. The vishap was struck by the blow! The monster was stunned by the attack. A valiant attack suddenly came from Maixenor, its intent to silence the ghastly beast once and for all. The shattering blow from the unafraid Maixenor rumbled through the ground. 
 
-The seps struck with its bite! The awful seps failed to land its hit. The inflated Alkmain leaned on his sword to catch a moment's respite. Alkmain was worn out by the combat. The seps struck with its bite! He winces from the pain but continues fighting. 
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! A sharp crack was heard as the strike left its mark. A powerful swing came from the vishap with very deadly intent. Maixenor blocks the strike with his heavy spiked shield. Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! Maixenor's strike glanced off of the vishap's hide. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The seps struck with its bite! The adventurer jumps out of the way. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+Maixenor took a deep breath and swung toward the unkind vishap. A sharp crack was heard as the strike left its mark. The vishap struck with its bite! He blocks the strike with his heavy spiked shield. A bold attack suddenly came from Maixenor, its intent to silence the gruesome beast once and for all. That blow seemed like it could break some bones. 
 
-He pulls a gray html css gray potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. 
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the vishap with very deadly intent. The fierce blow from the monster narrowly misses he. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the seps, his sword ready to strike! The shattering blow from he rumbled through the ground. 
+Maixenor cleared his mind, preparing himself for the combat to come.The vishap struck with its bite! Maixenor winces from the pain but continues fighting. 
 
-The adventurer pulls a snow potion from his pack and drinks it. He is reinvigorated. The seps leans low, ready to strike with its might. 
+Maixenor cleared his mind, preparing himself for the combat to come.A powerful swing came from the vishap with very deadly intent. He stunbles backward, gasping for breath. 
 
-Alkmain lunged toward the seps, his sword ready to strike! The slippery seps evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the seps, his sword ready to strike! The seps was struck by the blow! 
+The vishap eyed Maixenor with a dangerous glare. Our hero made a mighty swing at the vishap with this heavy spiked shield. The vishap took a glancing blow. 
 
-Alkmain says
+The mean monster took a swipe at Maixenor. Our hero stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The vishap leans low, ready to strike with its might. 
 
-"That didn't seem so hard, I don't know what Ibarrator was talking about."
+The vishap leans low, ready to strike with its might. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The dreadful vishap was too quick to be hit. 
 
-## <a name="chapter21"></a> Chapter 21: Upnelda Valon-Sea and the Undigested Swarm
+Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! Maixenor's strike glanced off of the vishap's hide. The monster was stunned by the attack. Maixenor cleared his mind, preparing himself for the combat to come.
 
-Alkmain followed a dirt path into the village of Upnelda Valon-Sea. Nearby, a woolcomber slept in an alleyway. Nearby, a minnesinger slowly carried supplies. Alkmain continued down the path. While the saltboiler slept in an alleyway, a pattenmaker loaded a market stall with wares.
+He sneaked around to vishap's blind spot. Maixenor lunged toward the vishap, his heavy spiked shield ready to strike! The awful vishap was too quick to be hit. 
 
-Eventually, Alkmain arrived at the town square, where he found a draper. Alkmain approached him, hoping for some advice.
+A powerful swing came from the vishap with very deadly intent. Our hero blocks the strike with his heavy spiked shield. The exhilarating combat made the hours seem like seconds. The vishap eyed Maixenor with a dangerous glare. 
 
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
+He held his heavy spiked shield tightly, ready to block any attack. The vishap struck with its bite! The fierce blow from the monster narrowly misses Maixenor the doughty. 
 
-Nearby, a drayman finished an apple and tossed the core aside. The man sat in silence for a whileHe finally responded.
+He held his heavy spiked shield tightly, ready to block any attack. The vishap leans low, ready to strike with its might. 
 
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
+Maixenor took a deep breath and swung toward the ghastly vishap. Maixenor's strike glanced off of the vishap's hide. A powerful swing came from the vishap with very deadly intent. The terrible vishap failed to land its hit. A fire-eating attack suddenly came from Maixenor, its intent to silence the terrible beast once and for all. Maixenor the impavid landed a massive hit on vishap! 
 
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
+He sneaked around to vishap's blind spot. The vishap eyed Maixenor with a dangerous glare. 
 
-"Lewinus is into the market and towards the stables. Eventually you need to walk just a bit further down the street. There's a small door. Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
+He made a mighty swing at the vishap with this heavy spiked shield. The awful vishap was too quick to be hit. The vishap struck with its bite! The hideous vishap failed to land its hit. Maixenor took a deep breath and swung toward the shocking vishap. The vishap was struck by the blow! 
 
-Alkmain hurried towards the armory. Nearby, a chancellor bit into an apple. While the mercer rushed by quickly, ignoring him, a tanner scuttled out of his way. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
+Maixenor took a deep breath and swung toward the terrible vishap. The vishap was struck by the blow! The vishap struck with its bite! The disgusting vishap failed to land its hit. The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. Although Maixenor the dauntless's hit landed, vishap is mostly unphased
 
-Lewinus looked up from his work behind a counter at Alkmain.
+The heavy spiked shield of Maixenor was raised high only to be brought down onto the vishap moments later. The shattering blow from he rumbled through the ground. A powerful swing came from the vishap with very deadly intent. He jumps out of the way. Maixenor took a deep breath and swung toward the smelly vishap. The vishap was struck by the blow! 
 
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
+Maixenor took a deep breath and swung toward the hideous vishap. That blow seemed like it could break some bones. 
 
-Lewinus grabbed a dusty book from the shelf and flipped through it. Pictures of medium air elementals and lampads flew by. Eventually he settled on a page and started to explain.
+After a seemingly eternal amount of combat, a victor emerged. The vishap was slain.
 
-Lewinus returned to the book of monsters on the desk and pointed at the terrifying illustration. "Whereas individual undigested are more of a nuisance than a threat to adventurers, a swarm of such creatures can be dangerous to even experienced adventurers. An undigested swarm comprises hundreds of individual undigested. Driven by insatiable hunger, they fall upon and consume any living creatures crossing their path, surrounding the unfortunate victims and drenching them in acidic slime, digesting their still-living prey even before the screaming ends."
-
-"I could handle that. Tell me again, what makes the undigested swarm so bad?" Alkmain responded.
-
-"That's all I can tell you."
-
-Alkmain saw a mean undigested swarm in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. The monster was stunned by the attack. He pulls a urobilin potion from his pack and drinks it. He is reinvigorated. 
-
-The undigested swarm struck with its swarm! He jumps out of the way. Alkmain lunged toward the undigested swarm, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain sneaked around to undigested swarm's blind spot. Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The undigested swarm was struck by the blow! The undigested swarm struck with its swarm! The sickie undigested swarm failed to land its hit. Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The attack from the gritty Alkmain surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the undigested swarm, his sword ready to strike! Alkmain the classic landed a massive hit on undigested swarm! 
-
-He pulls a robin egg blue potion from his pack and drinks it. He is reinvigorated. The undigested swarm leans low, ready to strike with its might. 
-
-Our hero sneaked around to undigested swarm's blind spot. The undigested swarm leans low, ready to strike with its might. 
-
-The classic Alkmain pulls a medium tuscan red potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. 
-
-Our hero sneaked around to undigested swarm's blind spot. The undigested swarm struck with its swarm! Alkmain the noble blocks the strike with his sword. 
-
-The undigested swarm leans low, ready to strike with its might. The undigested swarm struck with its swarm! The lousy undigested swarm failed to land its hit. 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. The monster was stunned by the attack. Alkmain pulls a khaki html css khaki potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. The monster was stunned by the attack. He pulls a golden poppy potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. The undigested swarm struck with its swarm! Alkmain the mythological stunbles backward, gasping for breath. Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. 
-
-He pulls a unmellow yellow potion from his pack and drinks it. He is reinvigorated. The undigested swarm struck with its swarm! He jumps out of the way. 
-
-The undigested swarm struck with its swarm! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the undigested swarm, his sword ready to strike! The undigested swarm was staggered by the immense force. 
-
-The undigested swarm struck with its swarm! The fierce blow from the monster narrowly misses he. Alkmain the fire-eating leaned on his sword to catch a moment's respite. He was worn out by the combat. The undigested swarm leans low, ready to strike with its might. 
-
-The undigested swarm leans low, ready to strike with its might. Alkmain lunged toward the undigested swarm, his sword ready to strike! The slippery undigested swarm evaded Alkmain's hit. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Lewinus was talking about."
-
-## <a name="chapter22"></a> Chapter 22: Stockburt and the Catoblepas
-
-Alkmain followed a dirt path into the village of Stockburt. Nearby, a purse maker hawked fine imported goods from Wesburnal. A librarian finished an apple and tossed the core aside. Alkmain continued down the path. Two netmakers rushed by quickly, ignoring him.
-
-Eventually, Alkmain arrived at the town square, where he found a link man. Alkmain approached him, hoping for some advice.
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-Two bankers talked excitedly with what appeared to be a wine seller. The man eyed him thoughtfully, but eventually responded.
-
-"Our village of Widgwer will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Orabon is down the street to the tavern and left. You'll see a stables. It's down the street to the warehouse and left. You'll see a inn. It's past the monastery. Look for the large hanging sign that reads "Orabon Fine Supplies". Tell him I sent you. Be careful out there. You're not the first to try this adventure. Men stronger than you have vanished or worse."
-
-Alkmain hurried towards the armory. Two paperers slowly carried supplies. Nearby, a dentist sat by the side of the road. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the tizheruk, or perhaps even the water orm, but that's nothing compared to the catoblepas we've got."
-
-Orabon returned to the book of monsters on the desk and pointed at the terrifying illustration. "The catoblepas is an aggressive beast at the best of times, willing to knock down trees, fences, even small houses to eat whatever it finds interesting, be that meal plant or animal or human being. Though it prefers swamps, the catoblepas has been known to forage in plains and forests for short periods before returning to the buoyant support of water and mud. Few creatures linger near a catoblepas's feeding ground because of the monster's bad temper and poisonous breath, and only rot-loving predators such as oozes or exceptionally large otyughs have any interest in hunting them."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-Orabon returned to the book of monsters on the desk and pointed at the terrifying illustration. "A catoblepas' primary motivation is hunting and exerting its dominance over lesser creatures in its territory. Easily detected by its foul odor, the creature tolerates the presence of wild animals, humanoid tribes, and even predators that it can bully as long as these things flee or act submissive when the poisonous brute lumbers into view. The catoblepas is known to engage in physical battles with other Large swamp creatures such as crocodiles or even froghemoths. Some humanoid tribes claim to know techniques to domesticate a catoblepas for use as a guard animal, but the monster's intractable nature and not insignificant intelligence almost certainly means magic is involved, as the creature has little need for alliances and can wipe out entire villages with its breath. Some have been known to use their breath underwater, creating a churning cloud of bubbles that kills fish in the area and starves out other creatures."
-
-"I could handle that. Tell me again, what makes the catoblepas so bad?" Alkmain responded.
-
-"A catoblepas's sense of smell is blunted by its own ungodly stench, and it can't easily recognize rival odors such as skunk musk (though this provides the beast no immunity to odor-based effects from other creatures)." Orabon explained.
-
-"I could handle that. Tell me again, what makes the catoblepas so bad?" Alkmain responded.
-
-Orabon returned to the book of monsters on the desk and pointed at the terrifying illustration. "A catoblepas is 15 feet long and weighs 2,200 pounds."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
-
-Alkmain saw a abhorrent catoblepas in the distance! Our hero fixed his gaze on the abominable sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain pulls a dark pastel purple potion from his pack and drinks it. He is reinvigorated. The catoblepas leans low, ready to strike with its might. 
-
-The catoblepas leans low, ready to strike with its might. The catoblepas struck with its bite! He jumps out of the way. 
-
-The catoblepas struck with its bite! Alkmain the bigger than life blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The catoblepas struck with its bite! Alkmain the classic jumps out of the way. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain the valorous pulls a persian blue potion from his pack and drinks it. He is reinvigorated. The catoblepas leans low, ready to strike with its might. 
-
-Alkmain pulls a electric blue potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas struck with its bite! Our hero winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The catoblepas leans low, ready to strike with its might. 
-
-He pulls a canary yellow potion from his pack and drinks it. He is reinvigorated. The catoblepas struck with its bite! The terrible catoblepas failed to land its hit. 
-
-The catoblepas struck with its bite! The fierce blow from the monster narrowly misses Alkmain the undaunted. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The catoblepas struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The catoblepas leans low, ready to strike with its might. The catoblepas struck with its bite! Alkmain the gritty blocks the strike with his sword. 
-
-The doughty Alkmain pulls a chocolate web potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The catoblepas struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! The catoblepas took a glancing blow. 
-
-Alkmain the lion-hearted pulls a cadmium green potion from his pack and drinks it. He is reinvigorated. The catoblepas leans low, ready to strike with its might. 
-
-The catoblepas struck with its bite! Alkmain the high-flown blocks the strike with his sword. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-The catoblepas struck with its bite! The adventurer blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The catoblepas struck with its bite! He blocks the strike with his sword. 
-
-He pulls a flax potion from his pack and drinks it. He is reinvigorated. The catoblepas leans low, ready to strike with its might. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! The attack from the high-flown Alkmain surely left a impression. 
-
-The unafraid Alkmain pulls a sandy brown potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The fire-eating Alkmain sneaked around to catoblepas's blind spot. The catoblepas struck with its bite! Our hero blocks the strike with his sword. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The catoblepas struck with its bite! The adventurer jumps out of the way. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas struck with its bite! He jumps out of the way. Alkmain lunged toward the catoblepas, his sword ready to strike! Although the adventurer's hit landed, catoblepas is mostly unphased
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! The catoblepas was struck by the blow! 
-
-He pulls a hollywood cerise potion from his pack and drinks it. He is reinvigorated. The catoblepas leans low, ready to strike with its might. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The catoblepas was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The catoblepas struck with its bite! Alkmain jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The catoblepas struck with its bite! The hideous catoblepas failed to land its hit. 
-
-He sneaked around to catoblepas's blind spot. Alkmain lunged toward the catoblepas, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The adventurer pulls a mountbatten pink potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The catoblepas took a glancing blow. The catoblepas struck with its bite! The adventurer stunbles backward, gasping for breath. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The catoblepas was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-The catoblepas leans low, ready to strike with its might. Alkmain lunged toward the catoblepas, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The undaunted Alkmain pulls a british racing green potion from his pack and drinks it. He is reinvigorated. The catoblepas struck with its bite! Alkmain the high-flown stunbles backward, gasping for breath. 
-
-He pulls a hooker s green potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The monster was stunned by the attack. The mythological Alkmain sneaked around to catoblepas's blind spot. 
-
-The catoblepas struck with its bite! The nasty catoblepas failed to land its hit. the adventurer stumbles to his knee, gasping for breath. The catoblepas leans low, ready to strike with its might. 
-
-Alkmain lunged toward the catoblepas, his sword ready to strike! The slippery catoblepas evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the catoblepas, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The adventurer sneaked around to catoblepas's blind spot. Alkmain lunged toward the catoblepas, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The catoblepas leans low, ready to strike with its might. The catoblepas struck with its bite! Alkmain blocks the strike with his sword. 
-
-Alkmain the gutty was victorious! The catoblepas menaced for no longer! 
-
-## <a name="chapter23"></a> Chapter 23: Norack and the Dire Polar Bear
-
-Alkmain followed a dirt path into the village of Norack. The harlot stood by a market stall, negotiating with the cannoneer with a apothecary. While the attendent hawked fine imported goods from Woolburton, a thimbler finished an apple and tossed the core aside. Alkmain continued down the path. The master of hounds eyed him suspiciously with a joiner.
-
-Eventually, Alkmain arrived at the town square, where he found a beekeeper. Alkmain approached him, hoping for some advice.
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-Two stonecutters gazed at him from an open window. He still looked suspiciousHe finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Mecion is down the street to the warehouse and left. You'll see a cattle barn. It's down the street to the cattle barn and left. You'll see a inn. It's just a bit further down the street. Look for the large hanging sign that reads "Mecion Fine Supplies". Tell him I sent you. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Alkmain hurried towards the armory. The pardoner stood by a market stall, negotiating with the jeweler with a costermonger. The seamstress ran from person to person, asking if they had seen Frandyn with a palmer. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Mecion looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Mecion grabbed a dusty book from the shelf and flipped through it. Pictures of water leapers and plesiosauruss flew by. Eventually he settled on a page and started to explain.
-
-"Dire polar bears, kin to cave bears, are larger and more aggressive than cave bears and normal polar bears alike. These short-tempered animals tend to avoid settled regions, but sometimes venture dangerously close to them while hunting, potentially resulting in bloody massacres." Mecion explained.
-
-Alkmain slipped the man 10 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"That's all I can tell you."
-
-Alkmain saw a grim dire polar bear in the distance! Our hero fixed his gaze on the hideous sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-He sneaked around to dire polar bear's blind spot. The dire polar bear struck with its bite! The adventurer blocks the strike with his sword. 
-
-The adventurer pulls a seal brown potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! He jumps out of the way. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. Alkmain pulls a burnt orange potion from his pack and drinks it. He is reinvigorated. 
-
-The dire polar bear struck with its bite! Alkmain the undaunted jumps out of the way. He leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The dire polar bear struck with its bite! The eerie dire polar bear failed to land its hit. 
-
-He pulls a aqua potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses Alkmain the lion-hearted. 
-
-He sneaked around to dire polar bear's blind spot. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain the grand leaned on his sword to catch a moment's respite. He was worn out by the combat. The dire polar bear leans low, ready to strike with its might. 
-
-He pulls a jungle green potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses our hero. Our hero leaned on his sword to catch a moment's respite. The fearless Alkmain was worn out by the combat. The dire polar bear struck with its bite! He blocks the strike with his sword. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! The adventurer stunbles backward, gasping for breath. Alkmain lunged toward the dire polar bear, his sword ready to strike! Although he's hit landed, dire polar bear is mostly unphased
-
-The dire polar bear struck with its bite! The adventurer winces from the pain but continues fighting. Alkmain the fearless leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The dire polar bear struck with its bite! He stunbles backward, gasping for breath. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the fire-eating pulls a folly potion from his pack and drinks it. He is reinvigorated. 
-
-The dire polar bear struck with its bite! He blocks the strike with his sword. The epic Alkmain leaned on his sword to catch a moment's respite. He was worn out by the combat. The dire polar bear struck with its bite! The doughty Alkmain jumps out of the way. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The dire polar bear took a glancing blow. The monster was stunned by the attack. Alkmain lunged toward the dire polar bear, his sword ready to strike! The attack from he surely left a impression. 
-
-He pulls a red pigment potion from his pack and drinks it. He is reinvigorated. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses Alkmain. The exhilarating combat made the hours seem like seconds. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses our hero. 
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! The gutsy Alkmain landed a massive hit on dire polar bear! 
-
-Alkmain pulls a usafa blue potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! He blocks the strike with his sword. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The attack from he surely left a impression. The dire polar bear struck with its bite! Our hero stunbles backward, gasping for breath. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. The exhilarating combat made the hours seem like seconds. The dire polar bear struck with its bite! The ruinous dire polar bear failed to land its hit. 
-
-The dire polar bear struck with its bite! The gritty Alkmain stunbles backward, gasping for breath. Alkmain lunged toward the dire polar bear, his sword ready to strike! Although the adventurer's hit landed, dire polar bear is mostly unphased
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The adventurer sneaked around to dire polar bear's blind spot. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! Alkmain reeled back in pain. He leaned on his sword to catch a moment's respite. The adventurer was worn out by the combat. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses our hero. 
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! The attack from he surely left a impression. 
-
-The dire polar bear struck with its bite! The nasty dire polar bear failed to land its hit. Alkmain leaned on his sword to catch a moment's respite. The gutsy Alkmain was worn out by the combat. The dire polar bear struck with its bite! The stand tall Alkmain jumps out of the way. 
-
-The dire polar bear struck with its bite! He jumps out of the way. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The adventurer sneaked around to dire polar bear's blind spot. The dire polar bear leans low, ready to strike with its might. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear leans low, ready to strike with its might. The dire polar bear struck with its bite! He jumps out of the way. 
-
-Our hero sneaked around to dire polar bear's blind spot. The dire polar bear struck with its bite! Our hero stunbles backward, gasping for breath. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain pulls a big dip o ruby potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses the adventurer. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The dire polar bear struck with its bite! He jumps out of the way. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear leans low, ready to strike with its might. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses Alkmain the elevated. 
-
-Alkmain the elevated sneaked around to dire polar bear's blind spot. The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-The dire polar bear struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the dire polar bear, his sword ready to strike! The dire polar bear was struck by the blow! 
-
-Alkmain the daring pulls a redwood potion from his pack and drinks it. He is reinvigorated. The dire polar bear struck with its bite! Alkmain blocks the strike with his sword. 
-
-The dire polar bear struck with its bite! The scandalous dire polar bear failed to land its hit. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. He pulls a heliotrope potion from his pack and drinks it. He is reinvigorated. 
-
-The dire polar bear struck with its bite! Alkmain blocks the strike with his sword. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-He pulls a french rose potion from his pack and drinks it. He is reinvigorated. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! The grisly dire polar bear failed to land its hit. Alkmain lunged toward the dire polar bear, his sword ready to strike! Although the adventurer's hit landed, dire polar bear is mostly unphased
-
-The dire polar bear struck with its bite! He stunbles backward, gasping for breath. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! Alkmain winces from the pain but continues fighting. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. The monster was stunned by the attack. The undaunted Alkmain pulls a orange red potion from his pack and drinks it. He is reinvigorated. 
-
-The dire polar bear struck with its bite! Alkmain the inflated blocks the strike with his sword. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the dire polar bear, his sword ready to strike! The dire polar bear was staggered by the immense force. 
-
-Alkmain the inflated pulls a wine potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the dire polar bear, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain the bigger than life pulls a razzmatazz potion from his pack and drinks it. He is reinvigorated. The dire polar bear leans low, ready to strike with its might. 
-
-He sneaked around to dire polar bear's blind spot. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! Although the gutsy Alkmain's hit landed, dire polar bear is mostly unphased
-
-The dire polar bear struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the dire polar bear, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The dire polar bear struck with its bite! Our hero blocks the strike with his sword. Alkmain the inflated leaned on his sword to catch a moment's respite. Alkmain was worn out by the combat. The dire polar bear leans low, ready to strike with its might. 
-
-The adventurer sneaked around to dire polar bear's blind spot. The dire polar bear struck with its bite! He jumps out of the way. 
-
-The dire polar bear struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The dire polar bear leans low, ready to strike with its might. 
-
-The dire polar bear struck with its bite! He jumps out of the way. The dauntless Alkmain leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The dire polar bear leans low, ready to strike with its might. 
-
-Alkmain pulls a shamrock green potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Alkmain lunged toward the dire polar bear, his sword ready to strike! The dire polar bear was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-The bigger than life Alkmain pulls a rose ebony potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the dire polar bear, his sword ready to strike! Although the adventurer's hit landed, dire polar bear is mostly unphased
-
-The dire polar bear leans low, ready to strike with its might. Alkmain lunged toward the dire polar bear, his sword ready to strike! The slippery dire polar bear evaded Alkmain's hit. 
-
-Our hero was victorious! The dire polar bear menaced for no longer! 
-
-## <a name="chapter24"></a> Chapter 24: Hamwinal and the Hieracosphinx
-
-Alkmain followed a dirt path into the village of Hamwinal. A leadworker eyed him suspiciously. A baker scuttled out of his way. Alkmain continued down the path. The playwright stood by a market stall, negotiating with the siever with a cook.
-
-Eventually, Alkmain arrived at the town square, where he found a hobbler. The man, eying his dangerous demeanor, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"The evil wizard Hippus has terrorized these lands for far too long. I Alkmain have come to destroy him!" Alkmain exclaimed.
-
-A canaller talked excitedly with what appeared to be a fowler. The man eyed him thoughtfullyHe finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Ctes is the best in town. His shop is into the market and towards the barn. Eventually you need to walk just a bit further down the street. There's a small door. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 6 small coins. "I want that Hippus gone as much as anybody."
-
-Alkmain hurried towards the armory. Two shipwrights talked excitedly with what appeared to be a clockmaker. The rat catcher sat by the side of the road with a chancellor. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Ctes grabbed a dusty book from the shelf and flipped through it. Pictures of esipils and hungry fogs flew by. Eventually he settled on a page and started to explain.
-
-The armorer sighed and continued. "The least intelligent of the common sphinxes, hieracosphinxes are a cowardly, cruel-hearted lot. All are male. They despise the larger and cleverer androsphinxes and criosphinxes. Toward gynosphinxes they hold a twisted mix of a lust and hate, simultaneously envying their beauty and power while craving them as mates. Hieracosphinxes attack other sphinxes whenever they have them at a disadvantage. Male sphinxes of other species they tear to shreds or drive away, whereas they prefer to leave gynosphinxes ravaged but alive. The other species of sphinx likewise hold nothing but disdain for hieracosphinxes, and typically attack these vile beasts on sight."
-
-Alkmain slipped the man 8 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-The armorer sighed and continued. "Hieracosphinxes guard their territory ruthlessly against weaker intruders, seldom giving warning before they attack. They have no use for banter and riddles, making most efforts at diplomacy rather ineffective, but can be convinced to call off their attacks by convincing shows of force coupled with information on the location of weaker prey or a gynosphinx. Though poor fliers, they still prefer to fight from the air, the better to escape if the combat turns against them."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-Ctes returned to the book of monsters on the desk and pointed at the terrifying illustration. "As they lack the ego and resourcefulness of the rest of their breed, hieracosphinxes can be pressed into service of mounts, particularly by those of similarly evil dispositions. Hieracosphinxes chafe under such service but submit to more powerful riders, though they still inflict their foul tempers on any weaker creatures that happen by. A grown hieracosphinx can easily consume a full horse's worth of meat in a day, making their upkeep rather expensive. Even with these drawbacks, hieracosphinx eggs command values of up to 1,500 gp on the open market, as do young hieracosphinxes. It takes 3 years for a hieracosphinx to reach maturity, after which an untrained hieracosphinx only rarely accepts a rider without magical compulsion. Trainers, though hard to come by, charge thousands of gold pieces to rear and train a hieracosphinx, owing to the risk to life and limb."
-
-"But my weapons may be too weak. Are there any other ways to defeat the hieracosphinx?" Alkmain asked.
-
-"A light load for a hieracosphinx is up to 350 pounds; a medium load, 351ñ700 pounds; and a heavy load, 701ñ1,050 pounds. A typical hieracosphinx is just short of 9 feet long and weighs 600 pounds.  Hieracosphinxes detest bearing a rider into battle, thus increasing the DCs of any combat-related Ride checks by +5. " Ctes explained.
-
-"I could handle that. Tell me again, what makes the hieracosphinx so bad?" Alkmain responded.
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a evil hieracosphinx in the distance! Our hero fixed his gaze on the terrible sight. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The hieracosphinx leans low, ready to strike with its might. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-He sneaked around to hieracosphinx's blind spot. The hieracosphinx struck with its bite! The adventurer blocks the strike with his sword. 
-
-The hieracosphinx leans low, ready to strike with its might. The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-He pulls a purple mountain majesty potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx struck with its bite! Alkmain blocks the strike with his sword. he stumbles to his knee, gasping for breath. The hieracosphinx struck with its bite! The beastly hieracosphinx failed to land its hit. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx struck with its bite! Alkmain reeled back in pain. The exhilarating combat made the hours seem like seconds. The hieracosphinx leans low, ready to strike with its might. 
-
-He sneaked around to hieracosphinx's blind spot. The hieracosphinx leans low, ready to strike with its might. 
-
-He pulls a pastel red potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-Alkmain the fire-eating sneaked around to hieracosphinx's blind spot. The hieracosphinx leans low, ready to strike with its might. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The monster was stunned by the attack. He pulls a titanium yellow potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The attack from he surely left a impression. The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The attack from he surely left a impression. 
-
-The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses the fearless Alkmain. Alkmain stumbles to his knee, gasping for breath. The hieracosphinx leans low, ready to strike with its might. 
-
-The hieracosphinx leans low, ready to strike with its might. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx leans low, ready to strike with its might. The hieracosphinx struck with its bite! Alkmain jumps out of the way. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The attack from Alkmain the bigger than life surely left a impression. The monster was stunned by the attack. Alkmain lunged toward the hieracosphinx, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The hieracosphinx struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The hieracosphinx struck with its bite! He winces from the pain but continues fighting. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The hieracosphinx struck with its bite! The sickie hieracosphinx failed to land its hit. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx struck with its bite! The adventurer stunbles backward, gasping for breath. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx leans low, ready to strike with its might. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-He sneaked around to hieracosphinx's blind spot. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx leans low, ready to strike with its might. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the hieracosphinx, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The hieracosphinx struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The adventurer sneaked around to hieracosphinx's blind spot. The hieracosphinx leans low, ready to strike with its might. 
-
-The hieracosphinx struck with its bite! The fierce blow from the monster narrowly misses he. He leaned on his sword to catch a moment's respite. Our hero was worn out by the combat. The hieracosphinx leans low, ready to strike with its might. 
-
-The hieracosphinx struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx leans low, ready to strike with its might. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. The monster was stunned by the attack. He pulls a light red ochre potion from his pack and drinks it. He is reinvigorated. 
-
-The intrepid Alkmain sneaked around to hieracosphinx's blind spot. The hieracosphinx struck with its bite! Alkmain reeled back in pain. 
-
-The hieracosphinx struck with its bite! The menacing hieracosphinx failed to land its hit. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The attack from our hero surely left a impression. 
-
-The hieracosphinx struck with its bite! Alkmain reeled back in pain. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The hieracosphinx took a glancing blow. 
-
-The stand tall Alkmain sneaked around to hieracosphinx's blind spot. The hieracosphinx leans low, ready to strike with its might. 
-
-The hieracosphinx leans low, ready to strike with its might. The hieracosphinx struck with its bite! The scandalous hieracosphinx failed to land its hit. 
-
-Alkmain sneaked around to hieracosphinx's blind spot. The hieracosphinx struck with its bite! The gutsy Alkmain jumps out of the way. 
-
-Alkmain lunged toward the hieracosphinx, his sword ready to strike! A sharp crack was heard as the strike left its mark. The hieracosphinx struck with its bite! Alkmain jumps out of the way. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The hieracosphinx was staggered by the immense force. 
-
-The hieracosphinx struck with its bite! He blocks the strike with his sword. Alkmain lunged toward the hieracosphinx, his sword ready to strike! The slippery hieracosphinx evaded Alkmain's hit. 
-
-The hieracosphinx leans low, ready to strike with its might. The hieracosphinx struck with its bite! He stunbles backward, gasping for breath. 
-
-Our hero was victorious! The hieracosphinx menaced for no longer! 
-
-## <a name="chapter25"></a> Chapter 25: Soll and the Jubjub Bird
-
-Alkmain followed a dirt path into the village of Soll. Nearby, a pissprophet stood by a market stall, negotiating with the buffoon. While the nobleman finished an apple and tossed the core aside, a wheelwright talked excitedly with what appeared to be a hawker. Alkmain continued down the path. Two pot menders eyed him suspiciously.
-
-Eventually, Alkmain arrived at the town square, where he found a bodyservant. The man, eying his unusual weapons, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-A exchequer scuttled out of his way. The man sat in silence for a while, but eventually responded.
-
-"Our village of Bech will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is into the market and towards the tavern. Eventually you need to walk down the street to the monastery and right. You'll see a church. It's just a bit further down the street. There's a small door. You'll find Hremalricet, the best weapons expert we've got. And here, take a few gold pieces to buy the best." He reached into his pocket and pulled out 5 small coins. "I want that Hippus gone as much as anybody."
-
-Alkmain hurried towards the armory. A chicken butcher bit into an apple. Two clockmakers bit into an apple. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Hremalricet looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the ypotryll, or perhaps even the elder earth elemental, but that's nothing compared to the jubjub bird we've got."
-
-"The jubjub bird is a rare and dangerous bird that resembles a giant dodo bird, but with long, muscular legs and wings that provide functional, if awkward, flight. When attacked with magic, a jubjub bird's plumage shifts randomly in hue and pattern with each spell hurled against it. " Hremalricet explained.
-
-"I could handle that. Tell me again, what makes the jubjub bird so bad?" Alkmain responded.
-
-The armorer sighed and continued. "Like the bandersnatch and other legendary creatures such as the jabberwock, the jubjub bird originally hails from the primal world of the fey. It has the dubious honor of being the least powerful and least intelligent of these creatures, which are known collectively as the "Tane," yet one should never assume that the jubjub bird is a pushoveróits penchant for snapping off heads with its razor-sharp beak can quickly put such ideas to rest."
-
-"But my weapons may be too weak. Are there any other ways to defeat the jubjub bird?" Alkmain asked.
-
-The armorer sighed and continued. "Powerful fey sometimes keep jubjub birds as guardians, and there are even reports of giants (particularly powerful tribes of jungle giants) using them as mounts. Such avian allies must be carefully trained, for few giants and fey are able to comfortably exist alongside a creature so prone to uttering such stunning shrieks so often."
-
-Alkmain slipped the man 3 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-Hremalricet returned to the book of monsters on the desk and pointed at the terrifying illustration. "Jubjub birds stand about 20 feet tall and weigh roughly 6,000 pounds."
-
-Alkmain slipped the man 2 coins. "I get the feeling you've been here for a while. Surely you know more than that."
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a hideous jubjub bird in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-The jubjub bird struck with its bite! Alkmain reeled back in pain. Alkmain the fire-eating leaned on his sword to catch a moment's respite. He was worn out by the combat. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses Alkmain the unafraid. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The attack from the stouthearted Alkmain surely left a impression. 
-
-The jubjub bird struck with its bite! Alkmain stunbles backward, gasping for breath. our hero stumbles to his knee, gasping for breath. The jubjub bird struck with its bite! Alkmain jumps out of the way. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! He blocks the strike with his sword. 
-
-He pulls a rich maroon potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The loathsome jubjub bird failed to land its hit. 
-
-The jubjub bird struck with its bite! The scary jubjub bird failed to land its hit. The exhilarating combat made the hours seem like seconds. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The adventurer pulls a granny smith apple potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses the dauntless Alkmain. 
-
-The jubjub bird struck with its bite! The menacing jubjub bird failed to land its hit. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses our hero. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The jubjub bird struck with its bite! The valiant Alkmain jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird was struck by the blow! 
-
-The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses Alkmain. Alkmain lunged toward the jubjub bird, his sword ready to strike! He landed a massive hit on jubjub bird! 
-
-Our hero sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! The attack from Alkmain surely left a impression. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! He blocks the strike with his sword. 
-
-Our hero sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! The attack from the mythological Alkmain surely left a impression. 
-
-The jubjub bird leans low, ready to strike with its might. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-He pulls a cream potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! Alkmain jumps out of the way. 
-
-The jubjub bird struck with its bite! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses the adventurer. 
-
-The jubjub bird struck with its bite! Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jubjub bird struck with its bite! Alkmain reeled back in pain. 
-
-The jubjub bird struck with its bite! He blocks the strike with his sword. Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain sneaked around to jubjub bird's blind spot. The jubjub bird struck with its bite! He blocks the strike with his sword. 
-
-Alkmain the noble sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. The grand Alkmain sneaked around to jubjub bird's blind spot. 
-
-The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses the daring Alkmain. Our hero leaned on his sword to catch a moment's respite. He was worn out by the combat. The jubjub bird leans low, ready to strike with its might. 
-
-The jubjub bird struck with its bite! Our hero blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jubjub bird struck with its bite! Alkmain winces from the pain but continues fighting. 
-
-The jubjub bird struck with its bite! He winces from the pain but continues fighting. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! He stunbles backward, gasping for breath. he stumbles to his knee, gasping for breath. The jubjub bird leans low, ready to strike with its might. 
-
-Our hero pulls a grullo potion from his pack and drinks it. He is reinvigorated. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird took a glancing blow. The jubjub bird struck with its bite! Alkmain winces from the pain but continues fighting. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! The adventurer winces from the pain but continues fighting. The exhilarating combat made the hours seem like seconds. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The attack from he surely left a impression. The jubjub bird struck with its bite! The gallant Alkmain blocks the strike with his sword. Alkmain lunged toward the jubjub bird, his sword ready to strike! The shattering blow from he rumbled through the ground. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! He jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! Although he's hit landed, jubjub bird is mostly unphased
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. 
-
-He sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! He landed a massive hit on jubjub bird! 
-
-Our hero pulls a flax potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! He stunbles backward, gasping for breath. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses he. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird was struck by the blow! The jubjub bird struck with its bite! The ghastly jubjub bird failed to land its hit. Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird took a glancing blow. 
-
-The jubjub bird leans low, ready to strike with its might. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-He pulls a carmine red potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! Our hero jumps out of the way. 
-
-The jubjub bird struck with its bite! The heinous jubjub bird failed to land its hit. Alkmain the lion-hearted leaned on his sword to catch a moment's respite. He was worn out by the combat. The jubjub bird struck with its bite! He blocks the strike with his sword. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird was struck by the blow! The jubjub bird struck with its bite! He jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! Alkmain jumps out of the way. The exhilarating combat made the hours seem like seconds. The jubjub bird leans low, ready to strike with its might. 
-
-He sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses he. he stumbles to his knee, gasping for breath. The jubjub bird struck with its bite! He stunbles backward, gasping for breath. 
-
-He pulls a pale magenta potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The terrifying jubjub bird failed to land its hit. 
-
-The bigger than life Alkmain pulls a dark lava potion from his pack and drinks it. He is reinvigorated. The jubjub bird leans low, ready to strike with its might. 
-
-He pulls a phlox potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! Our hero blocks the strike with his sword. 
-
-The jubjub bird struck with its bite! Alkmain reeled back in pain. The exaggerated Alkmain leaned on his sword to catch a moment's respite. Alkmain was worn out by the combat. The jubjub bird struck with its bite! The lousy jubjub bird failed to land its hit. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! The hideous jubjub bird failed to land its hit. 
-
-The adventurer pulls a sepia potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The terrible jubjub bird failed to land its hit. 
-
-Alkmain the elevated pulls a mode beige potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses Alkmain. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The jubjub bird struck with its bite! Alkmain the noble jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird was struck by the blow! 
-
-The jubjub bird struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jubjub bird struck with its bite! Alkmain the gritty jumps out of the way. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! Our hero landed a massive hit on jubjub bird! The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain pulls a blue crayola potion from his pack and drinks it. He is reinvigorated. The jubjub bird leans low, ready to strike with its might. 
-
-The adventurer sneaked around to jubjub bird's blind spot. The jubjub bird leans low, ready to strike with its might. 
-
-He sneaked around to jubjub bird's blind spot. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! The revolting jubjub bird failed to land its hit. 
-
-The jubjub bird leans low, ready to strike with its might. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird leans low, ready to strike with its might. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! He jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The jubjub bird leans low, ready to strike with its might. 
-
-The jubjub bird leans low, ready to strike with its might. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The inflated Alkmain sneaked around to jubjub bird's blind spot. The jubjub bird struck with its bite! Our hero winces from the pain but continues fighting. 
-
-Alkmain pulls a pale plum potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The grand Alkmain sneaked around to jubjub bird's blind spot. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! He blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The jubjub bird leans low, ready to strike with its might. 
-
-The jubjub bird struck with its bite! Alkmain reeled back in pain. He leaned on his sword to catch a moment's respite. Alkmain the classic was worn out by the combat. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the bigger than life sneaked around to jubjub bird's blind spot. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! He jumps out of the way. 
-
-The jubjub bird struck with its bite! The disagreeable jubjub bird failed to land its hit. Alkmain lunged toward the jubjub bird, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses he. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird leans low, ready to strike with its might. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses Alkmain. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird took a glancing blow. 
-
-Alkmain pulls a jasmine potion from his pack and drinks it. He is reinvigorated. The jubjub bird struck with its bite! The fierce blow from the monster narrowly misses the courageous Alkmain. 
-
-The jubjub bird struck with its bite! The adventurer blocks the strike with his sword. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The jubjub bird struck with its bite! He jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-He sneaked around to jubjub bird's blind spot. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. The monster was stunned by the attack. The adventurer sneaked around to jubjub bird's blind spot. 
-
-The jubjub bird struck with its bite! Alkmain blocks the strike with his sword. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-Our hero sneaked around to jubjub bird's blind spot. The jubjub bird struck with its bite! The heinous jubjub bird failed to land its hit. 
-
-Alkmain lunged toward the jubjub bird, his sword ready to strike! The jubjub bird was staggered by the immense force. The jubjub bird struck with its bite! The adventurer jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The jubjub bird struck with its bite! Alkmain jumps out of the way. Alkmain lunged toward the jubjub bird, his sword ready to strike! The slippery jubjub bird evaded Alkmain's hit. 
-
-The bigger than life Alkmain sneaked around to jubjub bird's blind spot. The jubjub bird leans low, ready to strike with its might. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Hremalricet was talking about."
-
-## <a name="chapter26"></a> Chapter 26: Ayledon-Tham and the Silvanshee
-
-Alkmain followed a dirt path into the village of Ayledon-Tham. While the minnesinger hawked fine imported goods from Isenbross Pad, a mariner bit into an apple. A guardsman talked excitedly with what appeared to be a tapestrymaker. Alkmain continued down the path. Two oilmakers scuttled out of his way.
-
-Eventually, Alkmain arrived at the town square, where he found a tentsman. Alkmain approached him, hoping for some advice.
-
-"My name is Alkmain, and it is my quest to defeat the evil wizard Hippus." Alkmain announced.
-
-The pavyler scuttled out of his way with a charcoalburner. The man sat in silence for a while, but eventually responded.
-
-"Our village of And will gladly help you on your quest. What do you need?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"Ragart is the best in town. His shop is past the monastery. It's just to the left. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Alkmain hurried towards the armory. The parish priest bit into an apple with a harper. A compasssmith loaded a market stall with wares. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-There was no one there. Alkmain cleared his throat and a man ran out from a backroom.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-"Brave you say? You may have fought the elder air elemental, or perhaps even the ram, but that's nothing compared to the silvanshee we've got."
-
-"Silvanshees are curious but reclusive cat agathions. Unobtrusive and able to blend in among normal animals (unlike the more anthropomorphic agathions), they are the eyes and ears of the good planes in the mortal world. Most roam hills, forests, and plains, keeping an eye out for evil influences. They can be taken as familiars by 7th-level good spellcasters who utilize the Improved Familiar feat and meet the proper prerequisites. As familiars, silvanshees act as moral guides and steer their mortal allies toward corruptive forces that must be eliminated. In some mortal lands, they are called cat sÏth or cath sidhe, and are believed to be disguised witches or fairiesóand not necessarily benign creatures, which only encourages silvanshees to avoid strangers." Ragart explained.
-
-"I could handle that. Tell me again, what makes the silvanshee so bad?" Alkmain responded.
-
-The armorer sighed and continued. "Silvanshees are not fond of open combat, even against demons, devils, or other fiendish threats, and they're likely to run away if confronted. When they must fight, they prefer greater numbers and the element of surprise, using their magic to temporarily overcome their physical weaknesses, and melting away into mist if the battle turns against them."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "A silvanshee is the size of a large domestic cat, though almost always sleek rather than fat, and weighs 20 pounds on average."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-"Look I've got other things to attend to. Do you need weapons or not?" His frusturation was visible.
-
-Alkmain saw a unkind silvanshee in the distance! He readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-Alkmain lunged toward the silvanshee, his sword ready to strike! A sharp crack was heard as the strike left its mark. The monster was stunned by the attack. The epic Alkmain pulls a pastel purple potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the silvanshee, his sword ready to strike! The slippery silvanshee evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the silvanshee, his sword ready to strike! The slippery silvanshee evaded Alkmain's hit. 
-
-The silvanshee struck with its bite! Alkmain the mythological jumps out of the way. He leaned on his sword to catch a moment's respite. He was worn out by the combat. The silvanshee struck with its bite! The fierce blow from the monster narrowly misses the dauntless Alkmain. 
-
-The silvanshee leans low, ready to strike with its might. The silvanshee struck with its bite! The courageous Alkmain jumps out of the way. 
-
-The silvanshee struck with its bite! Our hero stunbles backward, gasping for breath. Alkmain the elevated stumbles to his knee, gasping for breath. The silvanshee leans low, ready to strike with its might. 
-
-The silvanshee struck with its bite! He jumps out of the way. Alkmain lunged toward the silvanshee, his sword ready to strike! Our hero landed a massive hit on silvanshee! 
-
-The silvanshee leans low, ready to strike with its might. The silvanshee struck with its bite! He winces from the pain but continues fighting. 
-
-Alkmain lunged toward the silvanshee, his sword ready to strike! The slippery silvanshee evaded Alkmain's hit. The silvanshee struck with its bite! He stunbles backward, gasping for breath. Alkmain lunged toward the silvanshee, his sword ready to strike! The slippery silvanshee evaded Alkmain's hit. 
-
-Alkmain says
-
-"That didn't seem so hard, I don't know what Ragart was talking about."
-
-## <a name="chapter27"></a> Chapter 27: Ell and the Putrid Ooze
-
-Alkmain followed a dirt path into the village of Ell. The drycooper slept in an alleyway with a mathematician. A cardmaker finished an apple and tossed the core aside. Alkmain continued down the path. A pot mender scuttled out of his way.
-
-Eventually, Alkmain arrived at the town square, where he found a cartier. The man, eying his impressive armor, beckoned him forward.
-
-"Not many people around here like you." he said gruffly. "What makes you think you can step foot in these parts?"
-
-"Do you remember the glory days before the evil wizard Hippus took over?" Alkmain asked. "I seek to destroy him and restore this kingdom's rightful rule!"
-
-The fruitier finished an apple and tossed the core aside with a poet. The man quietly reminised about the past, then finally responded.
-
-"We have waited for your arrival for many years, Alkmain. Is there any way I can be of help?"
-
-"My weapons were badly damaged on the way here. Could you point me to your armory to get some new supplies?"
-
-"The armory is down the street to the inn and left. You'll see a monastery. It's down the street to the barn and left. You'll see a tavern. It's into the market and towards the inn. Eventually you need to walk into the market and towards the monastery. Eventually you need to walk down the street to the barn and right. You'll see a tavern. It's into the market and towards the warehouse. Eventually you need to walk down the street to the inn and left. You'll see a inn. It's down the street to the cattle barn and left. You'll see a tavern. It's just a bit further down the street. It's just to the right. You'll find Johun, the best weapons expert we've got. I'd show you myself, but I have urgent matters to attend to here in the square."
-
-Alkmain hurried towards the armory. While the canon threw punches, a thonger loaded a market stall with wares. The mercer rushed by quickly, ignoring him with a dyer. Turning the corner, he saw the armory in front of him. He pushed the door open and walked inside.
-
-Johun looked up from his work behind a counter at Alkmain.
-
-"I'm Alkmain, a brave adventurer seeking to destroy Hippus. What dangers lurk nearby?" he asked.
-
-Johun lifted up his tunic and pointed to a scar. "You see this?" he asked. "Only one monster can do this kind of damage. The putrid ooze."
-
-"Putrid oozes are primarily made from organic mire animated with Abyssal energies. These creatures can exist near any rift or portal to the Abyss. They caustically burn through plants and animals in pursuit of their vicious, mindless hunger. Putrid oozes get their name from their disturbing habit of subsuming dead creatures into their own gelatinous bodies. Putrid oozes generally are a combination of churning, gray-and-black slurries, similar to chunky tar mixed with wet gravel, but their bodies also hold undigested portions of the creatures they consume. At any one time, they present a mixture of rotting limbs, severed heads, and entangled entrails among the miscellaneous sludge that makes up their bodies." Johun explained.
-
-"But my weapons may be too weak. Are there any other ways to defeat the putrid ooze?" Alkmain asked.
-
-Johun returned to the book of monsters on the desk and pointed at the terrifying illustration. "Most hardy materials putrid oozes consume are never completely devoured. Putrid oozes slowly break down their meals into the same gray-black, chunky morass that makes up their bodies. Although it's rare for a putrid ooze to starve, those weakening from hunger use the last of their dwindling energy to seek out chasms or ravines where they can lie in wait, hoping for meals to wander past. In these dark places, the putrid oozes go dormant, existing as murky pools of sticky acid until a living creature draws near. Though the creatures are essentially in hibernation, all it takes is a simple touch to awaken them. In contrast, active putrid oozes are intimidating sights to behold, and rarely take anyone by surprise."
-
-Alkmain looked surprised. "Incredible! Is there anything else I should know?"
-
-The armorer sighed and continued. "Unlike other oozes, putrid oozes don't reproduce via mitosisósplitting into two identical, smaller oozes. Instead, they form spontaneously from corrupted rifts to the Abyss. Some cultists of Jubilex, demon lord of ooze monsters, have experimented with generating putrid oozes by exposing slurries of entrails, filth, and acid to foul energies. They see the spontaneous creation of these oozes as manifestations of the Faceless Lord."
-
-"But my weapons may be too weak. Are there any other ways to defeat the putrid ooze?" Alkmain asked.
-
-"When putrid oozes take enough damage to be destroyed, they melt into an inert pool of muck like most other oozes, though whether putrid oozes eventually reform from such remnants is a point of debate. Some say that sunlight further breaks down putrid oozes once they are destroyed." Johun explained.
-
-"I could handle that. Tell me again, what makes the putrid ooze so bad?" Alkmain responded.
-
-Johun returned to the book of monsters on the desk and pointed at the terrifying illustration. "A putrid ooze typically covers an area that measures 12 feet by 12 feet, and piles up on itself to a height of no more than 8 feet. A putrid ooze weighs about 20 tons."
-
-"But my weapons may be too weak. Are there any other ways to defeat the putrid ooze?" Alkmain asked.
-
-"Anything else you need to know can be found it the book. Take your time." He took the book of monsters and handed it to Alkmain.
-
-Alkmain saw a eerie putrid ooze in the distance! The adventurer readied his sword. Alkmain hurried towards the enemy, ready to strike it down with all his might! 
-
-Alkmain the valorous sneaked around to putrid ooze's blind spot. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! Although the bigger than life Alkmain's hit landed, putrid ooze is mostly unphasedThe monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! The attack from he surely left a impression. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The putrid ooze was struck by the blow! The monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-Alkmain the mythological pulls a purple heart potion from his pack and drinks it. He is reinvigorated. The putrid ooze struck with its slam! The fierce blow from the monster narrowly misses Alkmain the inflated. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The putrid ooze struck with its slam! The fierce blow from the monster narrowly misses Alkmain. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze leans low, ready to strike with its might. The putrid ooze struck with its slam! Alkmain reeled back in pain. 
-
-The putrid ooze struck with its slam! The unholy putrid ooze failed to land its hit. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze leans low, ready to strike with its might. Alkmain lunged toward the putrid ooze, his sword ready to strike! The attack from he surely left a impression. 
-
-He pulls a cerise pink potion from his pack and drinks it. He is reinvigorated. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The putrid ooze struck with its slam! The ghastly putrid ooze failed to land its hit. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze struck with its slam! The fierce blow from the monster narrowly misses the gritty Alkmain. Alkmain leaned on his sword to catch a moment's respite. He was worn out by the combat. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain the valiant sneaked around to putrid ooze's blind spot. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The putrid ooze was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The shattering blow from he rumbled through the ground. The putrid ooze struck with its slam! Our hero blocks the strike with his sword. Alkmain lunged toward the putrid ooze, his sword ready to strike! The putrid ooze was struck by the blow! 
-
-The putrid ooze leans low, ready to strike with its might. The putrid ooze struck with its slam! Alkmain reeled back in pain. 
-
-He sneaked around to putrid ooze's blind spot. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze struck with its slam! He jumps out of the way. Alkmain lunged toward the putrid ooze, his sword ready to strike! That blow seemed like it could break some bones. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The monster was stunned by the attack. Alkmain the high-flown pulls a cadmium orange potion from his pack and drinks it. He is reinvigorated. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! The putrid ooze took a glancing blow. 
-
-Alkmain pulls a cocoa brown potion from his pack and drinks it. He is reinvigorated. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze leans low, ready to strike with its might. Alkmain lunged toward the putrid ooze, his sword ready to strike! That blow seemed like it could break some bones. 
-
-The putrid ooze struck with its slam! Alkmain the stouthearted blocks the strike with his sword. the adventurer stumbles to his knee, gasping for breath. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The putrid ooze struck with its slam! The inflated Alkmain jumps out of the way. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-The putrid ooze leans low, ready to strike with its might. The putrid ooze struck with its slam! Alkmain reeled back in pain. 
-
-The putrid ooze struck with its slam! Alkmain blocks the strike with his sword. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The attack from Alkmain surely left a impression. The putrid ooze struck with its slam! The fearful putrid ooze failed to land its hit. Alkmain lunged toward the putrid ooze, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The putrid ooze struck with its slam! The fearless Alkmain blocks the strike with his sword. The exhilarating combat made the hours seem like seconds. The putrid ooze leans low, ready to strike with its might. 
-
-Alkmain pulls a lawn green potion from his pack and drinks it. He is reinvigorated. The putrid ooze leans low, ready to strike with its might. 
-
-The putrid ooze leans low, ready to strike with its might. The putrid ooze struck with its slam! The fierce blow from the monster narrowly misses the grand Alkmain. 
-
-The putrid ooze struck with its slam! The adventurer jumps out of the way. Alkmain lunged toward the putrid ooze, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The putrid ooze was staggered by the immense force. The monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! A sharp crack was heard as the strike left its mark. 
-
-The putrid ooze leans low, ready to strike with its might. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. The monster was stunned by the attack. Alkmain lunged toward the putrid ooze, his sword ready to strike! The slippery putrid ooze evaded Alkmain's hit. 
-
-He was victorious! The putrid ooze menaced for no longer! 
-
+The citizens of Kham could sleep soundly at night. Our hero had vanquished their greatest nightmare.
 
